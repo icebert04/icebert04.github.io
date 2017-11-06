@@ -1,6 +1,6 @@
 ---
 layout: post
-title: What is it like to have 1 Million Friends?
+title: Are we ready?
 published: true
 ---
 
