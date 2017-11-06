@@ -13,4 +13,4 @@ A place to include any other types of information that you'd like to include abo
 
 ### Contact me
 
-[email@domain.com](mailto:friendillion@gmail.com)
+[friendillion@gmail.com](mailto:friendillion@gmail.com)
