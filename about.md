@@ -1,7 +1,8 @@
 ---
 layout: page
-title: About
+title: Call me maybe?
 permalink: /about/
+published: true
 ---
 
 Some information about you!
@@ -12,4 +13,4 @@ A place to include any other types of information that you'd like to include abo
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[email@domain.com](mailto:friendillion@gmail.com)
