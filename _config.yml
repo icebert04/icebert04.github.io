@@ -5,7 +5,7 @@
 # Friendillion (displayed in the header)
 name: Welcome to FRIENDILLION
 
-
+<br>
 # It's better to have friends than money... (displayed in the header)
 description: Join me on my journey on gaining new friends, additional knowledge, and gain more adventures along the way....
 
@@ -27,7 +27,7 @@ footer-links:
   linkedin:
   pinterest:
   rss: # just type anything here for a working RSS icon
-  twitter:
+  twitter: https://twitter.com/FrancisIsberto
   stackoverflow:
   youtube: 
   googleplus: # anything in your profile username that comes after plus.google.com/
