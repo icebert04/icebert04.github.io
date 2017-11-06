@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Call me maybe?
-permalink: /contact/
+permalink: /about/
 published: true
 ---
 
