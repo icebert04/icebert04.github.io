@@ -39,4 +39,4 @@ _Email_ : [friendillion@gmail.com](mailto:friendillion@gmail.com)
 
 You can also reach me through my social media sites...  
 
-Click the any of the icons below:  
+Click any of the icons below:  
