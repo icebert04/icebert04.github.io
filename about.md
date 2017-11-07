@@ -12,7 +12,7 @@ I love outdoor sports and go swimming laps workout regularly. Whenever there is 
 
 ![alt text](https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png "Logo Title Text 1")
 
-![Image description](/images/Raya Garden 39.jpg)
+![Image description](/images/RayaGarden39.jpg)
 
 
 
