@@ -12,6 +12,8 @@ I love outdoor sports and go swimming laps workout regularly. Whenever there is 
 
 ![]({{site.baseurl}}//Raya%20Garden%2039.jpg)
 
+![]({{site.baseurl}}/https://scontent.fmnl4-6.fna.fbcdn.net/v/t31.0-8/16487591_10212641799139825_7417655342297092489_o.jpg?oh=a581de26187d795d3463be6b9ad302e1&oe=5AABD93E)
+
 But now, I want to spice up my life and add more things that really matters... particularly gaining new friends.
 
 Are you willing to be one of them?
@@ -30,4 +32,4 @@ If most of the people from every part of the world embrace this belief, our worl
 
 _Email_ : [friendillion@gmail.com](mailto:friendillion@gmail.com)
 
-You can also reach to my social media sites. Click the icon below...
+You can also reach me through my social media sites. Click the icon below...
