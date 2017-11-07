@@ -5,7 +5,14 @@ permalink: /about/
 published: true
 ---
 
-Some information about you!
+I'm living a happy life! Blessed with a loving wife and 2 obedient boys. 
+As a Full Stack Developer I get to work on the comforts on my home and spend more time with my Siamese Cat and play NBA2K.
+I love outdoor sports and go swimming regularly.
+
+But now, I want to add more things in my life... particularly gaining new friends.
+
+Are you willing to be one of them?
+
 
 ### More Information
 
