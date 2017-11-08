@@ -1,9 +1,11 @@
 ---
 layout: page
-title: Call me maybe?
+title: About the Author
 permalink: /about/
 published: true
 ---
+
+Hi! My name is Francis Isberto.
 
 I'm living a happy life! Blessed with a loving wife and 2 obedient boys. 
 
@@ -39,4 +41,4 @@ _Email_ : [friendillion@gmail.com](mailto:friendillion@gmail.com)
 
 You can also reach me through my social media sites...  
 
-Click any of the icons below:  
+Click any of the icons below:
