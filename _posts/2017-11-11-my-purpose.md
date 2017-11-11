@@ -16,5 +16,8 @@ And when the time comes when I go back to my creator, I can say that I did my Pu
 Did I really did my Purpose? I feel that there is something more.. Each one of us has a gift. God gave me a gift being good in Personal Relationships. Some say it's a little bit intrusive but for me it is my way of helping and enlighting people with problems and insecurities to live a Happy Life. 
 I may not be Perfect and still lack a lot of things but I am more than contented in life.
 
+That is why I created Friendillion... To gain more friends, To meet interesting inviduals and Learn from them, To maintain my Old friends, To add more adventures, and add more Spice in my life.
+Hopefully, this project will influence other people to live a Better Life by not closing their doors but rather open their gates of more friends
+
 
 
