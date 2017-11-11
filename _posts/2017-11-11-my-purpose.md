@@ -17,7 +17,14 @@ Did I really did my Purpose? I feel that there is something more.. Each one of u
 I may not be Perfect and still lack a lot of things but I am more than contented in life.
 
 That is why I created Friendillion... To gain more friends, To meet interesting inviduals and Learn from them, To maintain my Old friends, To add more adventures, and add more Spice in my life.
-Hopefully, this project will influence other people to live a Better Life by not closing their doors but rather open their gates of more friends
+Hopefully, this project will influence other people to live a Better Life by not closing their doors but rather open their gates to more friends, more blessings, more adventures and spice in their lives and help them be a more Happy Person.
+
+So in Conclusion, Friendillion is one my Big Purpose in Life. To gain 1 million new friends and enjoy the true meaning of life along the way.
+I hope that as I embark this journey that you will be one included in my Friends Circle.
+
+
+Francis Isberto
+friendillion.com
 
 
 
