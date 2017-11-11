@@ -5,7 +5,7 @@ published: true
 
 What is my Purpose in Life? 
 
-We all do have an Aspiration or Goal in life. From drinking Milk from our mother's mammary glands until you reach the Rocking Chair age.   
+We all do have an Aspiration or Goal in life. From drinking Milk from our mother's mammary glands until we reach the Rocking Chair age.   
 We may have different routes and plans but is all pretty much the same...
 
 Play when you're a kid, Go to School, Play some more, Get a Job (Business), Be in Love, Get Married, Have Kids, Make your Kids finish School, Retire and Play with your Grandchildren, Then go Back to your Creator.
