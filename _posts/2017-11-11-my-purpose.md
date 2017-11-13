@@ -23,7 +23,7 @@ Some say it's a little bit intrusive but for me it is my way of helping and enli
 I may not be Perfect and still lack a lot of things but I am more than contented in life.   
 I want others to feel the same way.
 
-That is why I created Friendillion... To gain more friends, To meet interesting inviduals and Learn from them, To maintain my Old friends, To add more adventures, and add more Spice in my life.   
+That is why I created Friendillion... To gain more friends, To meet interesting individuals and Learn from them, To maintain my Old friends, To add more adventures, and add more Spice in my life.   
 
 Hopefully, this project will influence other people to live a Better Life by not closing their doors but rather open their gates to more friends, more blessings, more adventures and spice in their lives and help them be a more Happy Person.
 
