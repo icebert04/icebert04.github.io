@@ -19,7 +19,7 @@ And when the time comes when I go back to my creator, I can say that I did my Pu
 Did I really did my Purpose? I feel that there is something more.. something to share to the world.
 Each one of us has a Gift.   
 God gave me a gift being good in **"Personal Relationships"**.   
-Some say it's a little bit intrusive but for me it is my way of helping and enlighting people with problems and insecurities to live a more Happy Life.   
+Some say it's a little bit intrusive but for me it is my way of helping and enlightening people with problems and insecurities to live a more Happy Life.   
 I may not be Perfect and still lack a lot of things but I am more than contented in life.   
 I want others to feel the same way.
 
@@ -36,4 +36,3 @@ I hope that as I embark this journey, you will be joining me in my Friends Circl
 
 **Francis Isberto**   
 **Friendillion.com**
-
