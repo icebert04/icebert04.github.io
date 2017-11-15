@@ -19,7 +19,7 @@ I name this project as "Fantasy to Reality"!
 
 My subject is Miss Rachel Demita. Details are as follows...
 
-**Name:** 
+**Name:**   
 Rachel Annamarie Demita
 
 **Profession:**   
