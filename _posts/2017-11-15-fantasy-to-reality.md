@@ -42,7 +42,7 @@ June 14, 1990
 Finish school at The American University, graduating Magna Cum Laude with a Bachelor of Arts in Journalism and Performing Arts
 
 **Interesting Facts:**   
-=> Played 8 years of competitive Basxketball   
+=> Played 8 years of competitive Basketball   
 => RAD (Rachel Annamarie Demita) is Vegan, with a love for all animals - especially cats. She spends time at the animal shelter weekly helping to socialize, behavior train and care for her feline friends   
 => Placed Top 20 in Miss California USA 2013, her first pageant   
 
