@@ -5,8 +5,8 @@ published: true
 
 Fantasy to Reality
 
-When I say about gaining new friends it doesn't mean that you just settle for less. It doesn't that you just go out on the street and ask some stranger to be your new friends. Where's the challenge in that?   
-Although that is the objective of the game, it would be better to aim high. We all should reahc for the Stars.
+When I say about gaining new friends it doesn't mean that you just settle for less. It doesn't mean that you just go out on the street and ask some stranger to be your new friend. Where's the challenge in that?   
+Although that is the objective of the game, it would be better to aim high. We all should reach for the Stars.
 
 Now that Star coould be anyone. Just look for that somebody that you look up to like a Celebrity, a Sports Athlete, a Book Author, or even a Famous Painter. The choice is up to you.
 
@@ -25,7 +25,7 @@ My subject is Miss Rachel Demita. Details are as follows...
 Rachel Annamarie Demita
 
 **Profession:**   
-=> Host and Co-Producer of ### NBA 2KTV  
+=> Host and Co-Producer of ###  NBA 2KTV  ###  
 => Host in Uproxx, ESPN, Fox Sports Digital, Go90, and AwesomenessTV to name a few    
 => Model for ### Adidas (Brand Ambassador), The Gap, Mt. Dew, Finish Line, Kellogg's, FanDuel, Sephora, and many more
 
