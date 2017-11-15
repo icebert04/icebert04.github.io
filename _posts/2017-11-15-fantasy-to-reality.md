@@ -1,6 +1,6 @@
 ---
-published: false
+published: true
 ---
-! [Rachel Demita](/images/RachelDemita.jpg)
+! [Rachel Demita](/images/Rachel Demita.jpg)
 
 How can I publish this blog post?
