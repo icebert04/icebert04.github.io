@@ -22,7 +22,7 @@ Name: Rachel Annamarie Demita
 Profession: 
 Host and Co-Producer of NBA 2KTV
 Host in Uproxx, Fox Sports Digital, Go90, and AwesomenessTV to name a few
-Model for Adidas, The Gap, Mt. Dew, Finish Line, Kellogg's, FanDuel, Sephora, and many more
+Model for Adidas (Brand Ambassador), The Gap, Mt. Dew, Finish Line, Kellogg's, FanDuel, Sephora, and many more
 
 Birthplace: 
 Akron, Ohio
