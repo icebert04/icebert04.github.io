@@ -50,7 +50,7 @@ Finish school at The American University, graduating Magna Cum Laude with a Bach
 
 Why did I choose her? Because of Rachel's desire for Sports, Cats & Animals, and Interviewing Successful people. These are the traits that I am really into.  
 
-I am also thinking of doing a YouTube channel for my Friendillion and I can get a few tips from Ms. Demita. If given the opportunity I would like to produce or co-produce a show (documentary perhaps).
+I am also thinking of doing a YouTube channel for my Friendillion and I can get a few tips from Ms. Demita. If given the opportunity, I would like to produce or co-produce a show (documentary perhaps).
 
 But most important of all is her success from transistioning from being good at something to the other. Rachel's excelled in Basketball before she decided to quit. The amazing thing is how she managed to create another great thing like hosting on NBA 2KTV after Basketball. It is really something to marvelled at.   
 I want to imitate that too by being the best in everything that I do whether that was in the past or something that I will do in the future.
