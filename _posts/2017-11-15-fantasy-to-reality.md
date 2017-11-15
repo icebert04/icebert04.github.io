@@ -11,7 +11,7 @@ Although that is the objective of the game, it would be better to aim high. We a
 Now, that Star could be anyone. Just look for that somebody that you look up to like a Celebrity, a Sports Athlete, a Book Author, or even a Famous Painter. The choice is up to you.
 
 The difficult part is getting their attention. The Big Challenge is how would a ordinary person (like you and me) can able to reach them. These famous personalities are too busy in their everyday lives.   
-Do you think that they even have the slightest amount of time to ask you "Hi (your name)! How's your day going?"
+Do you think that they even have the slightest amount of time to ask you "Hi (your name)! How's your day going?"   
 You and I both know that our chance are slimmer the slim.
 
 But I am up to the task. I don't care how hard and how long it will take. That is the purpose of Friendillion anyway. We don't just acquire the easy ones but we aspire to do the impossible. We dream to reach for the Stars. 
