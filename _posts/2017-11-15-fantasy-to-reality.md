@@ -14,7 +14,7 @@ The difficult part is getting their attention. The Big Challenge is how would a 
 Do you think that they even have the slightest amount of time to ask you "Hi (your name)! How's your day going?"   
 You and I both know that our chance are slimmer the slim.
 
-But I am up to the task. I don't care how hard and how long it will take. That is the purpose of Friendillion anyway. We don't just acquire the easy ones but we aspire to do the impossible. We dream to reach for the Stars. 
+But I am up to the task. I don't care how hard and how long it will take. That is the purpose of Friendillion anyway. We don't just acquire the easy ones but we aspire to do the impossible. We dream to reach for the Stars.   
 For starters, I going to name this project as "Fantasy to Reality"! 
 
 -----------------------------------------------------------
