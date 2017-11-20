@@ -45,7 +45,7 @@ I too do buy from the grocery because it is convenient, but do I really know how
 Plus you only get a few compared when buying from the province where you get an ample. 
 
 So starting today, I will be starting my Free Food program in my province in Balayan Batangas.   
-It will be my diary and I will share it to you all the things that I've accomplished and achieved.   
+It will be my diary and I will share it to all of you all the things that I've accomplished and achieved so far.   
 Life is so precious.... and eating the right food will add more years to your life. You get to help poor people to earn a living, and you get to experience provincial life and escape the very busy & hustle city life. 
 
 Everyone loves Avocado and Eggs for breakfast... most especially when it is FREE!
