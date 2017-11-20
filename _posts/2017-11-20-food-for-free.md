@@ -12,7 +12,7 @@ How? There are lots of ways exactly..
 
 1.) You can plant different kinds of fruits and vegetables in your own backyard. With the help of good ole' **GOOGLE**, you can search and get ideas of specific food that you want to have on your table.   
 There are also a lot of available Free seminars and Facebook Groups that you can join and get generous information about organic urban farming.   
-If your village assocation will give consent, you have the option to take in a few egg laying chickens that will lay organic eggs for you and your family all year round.
+If your village association will give consent, you have the option to take in a few egg laying chickens that will lay organic eggs for you and your family all year round.
 
 
 2.) I'm sure each one of us has a province. Some are near Manila and some quite far. But the truth of the matter is, you don't really need to be there most of the time. Your relatives like your Tito, Pinsan, Pamangkin, etc. can take care of your Livestock Farm Animals like...
