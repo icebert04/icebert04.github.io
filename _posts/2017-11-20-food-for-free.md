@@ -10,16 +10,16 @@ Sure, we can buy nutritious food like Avocado and Eggs in the grocery and wet ma
 
 How? There are lots of ways exactly..
 
-1.) You can plant different kinds of fruits and vegetables in your own backyard. With the help of good ole' **GOOGLE** you can search and get ideas of specific food that you want to have on your table.   
-There are also a lot of available Free seminars and Facebook Groups that you can join and get substantial information about organic urban farming.   
-If your village assocation will also allow, you have the option to take in several egg laying chickens that will lay organic eggs for you and your family all year round.
+1.) You can plant different kinds of fruits and vegetables in your own backyard. With the help of good ole' **GOOGLE**, you can search and get ideas of specific food that you want to have on your table.   
+There are also a lot of available Free seminars and Facebook Groups that you can join and get generous information about organic urban farming.   
+If your village assocation will give consent, you have the option to take in a few egg laying chickens that will lay organic eggs for you and your family all year round.
 
 
-2.) I'm sure each one of us has a province. Some are near Manila and some a quite far. But the truth of the matter is you don't really need to be there most of the time. Your relatives like your Tito, Pinsan, Pamangkin, etc. can take of your Livestock Farm Animals like...
+2.) I'm sure each one of us has a province. Some are near Manila and some a quite far. But the truth of the matter is, you don't really need to be there most of the time. Your relatives like your Tito, Pinsan, Pamangkin, etc. can take care of your Livestock Farm Animals like...
 
 - Pigs (Bacon, Sisig, Crispy Pata, Ham, Pork Chops, Liempo and even Lechon)
 - Cow and Goats (Milk, Cheese, Yoghurt, Steak, Kaldareta, Pinapaitan, Lengua and Burger Patties) 
-- Chickens and Ducks (Eggs, Salted Agges, Balut, Chicken Pies, and Roasted Duck)
+- Chickens and Ducks (Eggs, Salted Eggs, Balut, Chicken Pies, and Roasted Duck)
 
 - For you Fruits and Vegatables you can have...
 - Asparagus, Cherry Tomatoes, Carrot Cakes, Strawberry Icecream, 
