@@ -26,12 +26,13 @@ If your village assocation will also allow, you have the option to take in sever
 
 Just make sure that you have a trustworthy relative or someone that will take care of your mini-farm. The important thing is that you can get a bountiful harvest of food every month.
 
-3. What if you don't have a backyard, province and idle lands?   
+3.) What if you don't have a backyard, province and idle lands?   
 No problem... all you have to do is follow the concept of Friendillion and get new friends or acquitances in the province that is near to your home. Province near the city like Cavite, Laguna and Batangas in the south and Bulacan and Pampamga in the North.   
 I suggest that you start your mini farm very small since you barely knew the person who will manage your crops and animals.   
 For instance, you want Calamansi drink. Go, learn and exctract all the information about Calamansi like knowing different varieties, diseases, and even soil propagation.   
 It wouldn't hurt if the person that is handling your mini farm is knowledgeable in Calamansi farming.    
 It's totally up to you if you want your mini farm just for your daily consumption or if you want to upgrade and go full scale to commercial farming and earn a profit.
+
 
 All of us are spending 40%-50% on Food. That doesn't even include when you dine out.   
 My intention here is not to decrease our grocery and food expenses but to ADD more nutritious and valuable food from other sources that you don't really need to buy.   
