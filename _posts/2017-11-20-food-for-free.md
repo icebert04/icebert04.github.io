@@ -22,4 +22,7 @@ I suggest that you start your mini farm small since you barely knew the person w
 It wouldn't hurt if the person that is handling your mini farm is knowledgeable in Calamansi farming.    
 It's totally up to you in you want your mini farm just for your daily consumption or if you want to upgrade and go full scale to commercial farming and profits.
 
+All of us are spending 30%-50% on food. That doesn't include when you dine out. My intention here is not to decrease our grocery and food expenses but to ADD more nutritious and valuable food from other sources that you don't really need to buy.   
+Remember that the food that we but in the groceries and supermarket are 3 times higher compared when you buy it from the source. Eggs in the groceries cost Php 9 per piece while you can a have a dozen or more if you have a few hens. 
+
 
