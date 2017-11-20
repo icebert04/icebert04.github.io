@@ -22,7 +22,7 @@ If your village association will give consent, you have the option to take in a 
 - Chickens and Ducks (Eggs, Salted Eggs, Balut, Chicken Pies, and Roasted Duck)
 
 - For you Fruits and Vegetables you can have...
-- Asparagus, Cherry Tomatoes, Carrot Cakes, Strawberry Icecream, 
+- Asparagus, Cherry Tomatoes, Carrot Cakes, Strawberry Ice-cream, 
 - Calamansi Juice, Mashed Potatoes and French Fries, Mushroom Risotto,
 - All the Fruit and Vegetables Smoothies that you want...
 
