@@ -18,7 +18,7 @@ If your village association will give consent, you have the option to take in a 
 2.) I'm sure each one of us has a province. Some are near Manila and some quite far. But the truth of the matter is, you don't really need to be there most of the time. Your relatives like your Tito, Pinsan, Pamangkin, etc. can take care of your Livestock Farm Animals like...
 
 - Pigs (Bacon, Sisig, Crispy Pata, Ham, Pork Chops, Liempo and even Lechon)
-- Cow and Goats (Milk, Cheese, Yoghurt, Steak, Kaldareta, Pinapaitan, Lengua and Burger Patties) 
+- Cow and Goats (Milk, Cheese, Yogurt, Steak, Kaldareta, Pinapaitan, Lengua and Burger Patties) 
 - Chickens and Ducks (Eggs, Salted Eggs, Balut, Chicken Pies, and Roasted Duck)
 
 - For you Fruits and Vegatables you can have...
