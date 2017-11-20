@@ -26,7 +26,7 @@ If your village assocation will give consent, you have the option to take in a f
 - Calamansi Juice, Mashed Potatoes and French Fries, Mushroom Risotto,
 - All the Fruit and Vegetables Smoothies that you want...
 
-Just make sure that you have a trustworthy relative or someone that will take care of your mini-farm. The important thing is that you can get a bountiful harvest of food every month.
+Just make sure that you have a trustworthy relative or someone that will take charge of your mini-farm. The important thing is that you can get a bountiful harvest of food every month.
 
 3.) What if you don't have a backyard, province and idle lands?   
 No problem... all you have to do is follow the concept of Friendillion and get new friends or acquitances in the province that is near to your home. Province near the city like Cavite, Laguna and Batangas in the south and Bulacan and Pampamga in the North.   
@@ -37,7 +37,7 @@ It's totally up to you if you want your mini farm just for your daily consumptio
 
 
 All of us are spending 40%-50% on Food. That doesn't even include when you dine out.   
-My intention here is not to decrease our grocery and food expenses but to ADD more nutritious and valuable food from other sources that you don't really need to buy.   
+My intention here is not to decrease our grocery and food expenses but to ADD more nutritious and valuable food from sources outside of the city that you don't really need to buy.   
 Remember that the food that we buy in the groceries and supermarkets are 3 times higher compared when you buy it from the source.   
 Eggs in the groceries cost Php 9 per piece while you can a have a dozen or more if you have a few hens in an open yard.
 
@@ -45,8 +45,8 @@ I too do buy from the grocery because it is convenient, but do I really know how
 Plus you only get a few compared when buying from the province where you get an ample. 
 
 So starting today, I will be starting my Free Food program in my province in Balayan Batangas.   
-It will be my diary and I will share it to you the things that I've accomplished and achieved.   
-Life is so precious.... and eating the right food will add more years to your life. You get to help rural people to earn a living, and you get to experience provincial life and escape the very busy and hustle city life. 
+It will be my diary and I will share it to you all the things that I've accomplished and achieved.   
+Life is so precious.... and eating the right food will add more years to your life. You get to help poor people to earn a living, and you get to experience provincial life and escape the very busy & hustle city life. 
 
 Everyone loves Avocado and Eggs for breakfast... most especially when it is FREE!
 
