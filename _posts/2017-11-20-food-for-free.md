@@ -29,7 +29,7 @@ If your village association will give consent, you have the option to take in a 
 Just make sure that you have a trustworthy relative or someone that will take charge of your mini-farm. The important thing is that you can get a bountiful harvest of food every month.
 
 3.) What if you don't have a backyard, province and idle lands?   
-No problem... all you have to do is follow the concept of Friendillion and get new friends or acquitances in the province that is near to your home. Province near the city like Cavite, Laguna and Batangas in the south and Bulacan and Pampamga in the North.   
+No problem... all you have to do is follow the concept of Friendillion and get new friends or acquaintances in the province that is near to your home. Province near the city like Cavite, Laguna and Batangas in the south and Bulacan and Pampamga in the North.   
 I suggest that you start your mini farm very small since you barely knew the person who will manage your crops and animals.   
 For instance, you want Calamansi drink. Go, learn and exctract all the information about Calamansi like knowing different varieties, diseases, and even soil propagation.   
 It wouldn't hurt if the person that is handling your mini farm is knowledgeable in Calamansi farming.    
