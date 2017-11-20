@@ -23,6 +23,13 @@ It wouldn't hurt if the person that is handling your mini farm is knowledgeable 
 It's totally up to you in you want your mini farm just for your daily consumption or if you want to upgrade and go full scale to commercial farming and profits.
 
 All of us are spending 30%-50% on food. That doesn't include when you dine out. My intention here is not to decrease our grocery and food expenses but to ADD more nutritious and valuable food from other sources that you don't really need to buy.   
-Remember that the food that we but in the groceries and supermarket are 3 times higher compared when you buy it from the source. Eggs in the groceries cost Php 9 per piece while you can a have a dozen or more if you have a few hens. 
+Remember that the food that we but in the groceries and supermarket are 3 times higher compared when you buy it from the source. Eggs in the groceries cost Php 9 per piece while you can a have a dozen or more if you have a few hens.
+
+I too do buy from the groceries because it is convenient but do I really know how good are the food items that but from there. Are they organic? How fresh are they? Plus you only get a few compared when buying from the province. 
+
+So starting today, I will starting my Free Food program in my province in Balayan Batangas. It will be my diary and I will share it to you the things that I've accomplished and achieved.   
+Life is precious, and eating the right food will add more years to your life. You get to help rural people to earn a living, and you get to experience provincial life and escape the the busy and hustle city life. 
+
+Everyone loves Avocado and Eggs for breakfast... most especially when it is FREE!
 
 
