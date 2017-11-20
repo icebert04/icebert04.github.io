@@ -18,12 +18,11 @@ If your village assocation will also allow, you have the option to take in sever
 - Pigs (Bacon, Sisig, Crispy Pata, Ham, Pork Chops, Liempo and even Lechon)
 - Cow and Goats (Milk, Cheese, Yoghurt, Steak, Kaldareta, Pinapaitan, Lengua and Burger Patties) 
 - Chickens and Ducks (Eggs, Salted Agges, Balut, Chicken Pies, and Roasted Duck)
-- 
+
 - For you Fruits and Vegatables you can have...
 - Asparagus, Cherry Tomatoes, Carrot Cakes, Strawberry Icecream, 
 - Calamansi Juice, Mashed Potatoes and French Fries, Mushroom Risotto,
 - All the Fruit and Vegetables Smoothies that you want...
-
 
 Just make sure that you have a trustworthy relative or someone that will take care of your mini-farm. The important thing is that you can get a bountiful harvest of food every month.
 
