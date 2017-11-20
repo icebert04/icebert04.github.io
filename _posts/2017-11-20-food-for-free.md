@@ -4,7 +4,7 @@ published: true
 ![Food for Free](/images/Food for Free.jpg)
 
 Avocado and scrambled eggs for breakfast anyone? I guess everybody would want that kind of meal (especially if you are health conscious).   
-I saw this picture from a post of my friend in New York and I was thinking that if he can have that kind of meal there, then we can it here too as well.
+I saw this picture from a post of my friend in New York (A well renowned fitness & wellness coach) and I was thinking that if he can have that kind of meal there, then we can it here too as well.
 
 Sure, we can buy nutritious food like Avocado and Eggs in the grocery and wet market. But wouldn't it better if we can have those food for FREE. 
 
