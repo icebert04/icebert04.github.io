@@ -15,7 +15,7 @@ There are also a lot of available Free seminars and Facebook Groups that you can
 If your village assocation will give consent, you have the option to take in a few egg laying chickens that will lay organic eggs for you and your family all year round.
 
 
-2.) I'm sure each one of us has a province. Some are near Manila and some a quite far. But the truth of the matter is, you don't really need to be there most of the time. Your relatives like your Tito, Pinsan, Pamangkin, etc. can take care of your Livestock Farm Animals like...
+2.) I'm sure each one of us has a province. Some are near Manila and some quite far. But the truth of the matter is, you don't really need to be there most of the time. Your relatives like your Tito, Pinsan, Pamangkin, etc. can take care of your Livestock Farm Animals like...
 
 - Pigs (Bacon, Sisig, Crispy Pata, Ham, Pork Chops, Liempo and even Lechon)
 - Cow and Goats (Milk, Cheese, Yoghurt, Steak, Kaldareta, Pinapaitan, Lengua and Burger Patties) 
