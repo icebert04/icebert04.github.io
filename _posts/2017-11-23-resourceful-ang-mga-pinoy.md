@@ -18,7 +18,7 @@ Do you want me to do the Math? Let just say that he makes more money than some p
 He finish his work around 4 pm. From there he has lots of time to play his well desired Chess game, watch his precious TV shows and occasionally.. goes to the clubhouse at night, and drink a few beers with his neighbors.   
 He doesn't have witholding tax, weekly meetings, stressful deadlines, and a nagging boss shouting down on his face. He doesn't need to wear uncomfortable office attire too.... he just wear his sandals and his loose & comfy clothes.
 
-There are a lot of times that Romy has to **"Decline"** some customers since he also wants some enjoyment in his life (He is approaching 60 years old as we speak). He hear mass every Sunday and watch YouTube to learn more about cooking (one of his hobbies).
+There are a lot of times that Romy has to **"Decline"** some customers since he also wants some enjoyment in his life (He is approaching 60 years old as we speak). He hears mass every Sunday and watch YouTube to learn more about cooking (one of his hobbies).
 
 What makes him so special? He is just a Car Wash Boy! Well, financially speaking you may be right. We all need to make more money than him especially if we have a family to feed and living in a expensive place like Manila.   
 But it's the money or earning that I am giving emphasis in. It's the way how Romy think outside of the box. Before he was earning nothing. But today he makes his own living and not asking money from his sister.   
