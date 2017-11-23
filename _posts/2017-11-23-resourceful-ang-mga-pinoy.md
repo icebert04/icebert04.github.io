@@ -26,7 +26,8 @@ How he provided quality service to his customers. Most of his customers were so 
 
 Financially, Romy is not the right guy we should follow or immitate. What we want to get from him is his knack of seizing an opportunity when it comes his way.   
 How he finds a solution to the problem. 
-It teaches us that when we want to start a new income venture, we all....
+It teaches us that when we want to start a new income venture, we all....   
+
 **"SHOULDN'T START A BUSINESS, BUT RATHER SOLVE A PROBLEM"**
 
 We all should be **"Problem Solvers"**. Because when we find a solution to each and every problem... Life is much easier and happier to live in.
