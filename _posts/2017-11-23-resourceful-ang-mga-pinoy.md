@@ -15,7 +15,7 @@ Only a few unit owners has helpers (Yaya) in their unit because of the limited s
 Romy identified the **"Need"** so he matched it with a **"Solution"**. Romy charges his customers for Php 100 for Sedans and Php 150 for SUV's and Vans. On an average he cleans 8-10 vehicles per day.  
 
 Do you want me to do the Math? Let just say that he makes more money than some people working in an office. And he never needs to line up in the Jeepney, Bus or even MRT terminals. He wakes up around 6 am, goes out of his condo unit, drinks his favorite coffee with his friends and neighbors, then goes to work (to him he calls it as exercise).   
-He finish his work around 4 pm. From there he has lots of time to play his well desired Chess game, watch his precious TV shows and occasionally.. goes to the clubhouse at night, drink a few beers with his neighbors.   
+He finish his work around 4 pm. From there he has lots of time to play his well desired Chess game, watch his precious TV shows and occasionally.. goes to the clubhouse at night, and drink a few beers with his neighbors.   
 He doesn't have witholding tax, weekly meetings, stressful deadlines, and a nagging boss shouting down on his throat. He doesn't need to wear uncomfortable office attire too.... he just wear his sandals and loose and cozy clothes.
 
 There are a lot of times that Romy has to **"Decline"** some customers since he also wants some enjoyment in his life (He is approaching 60 years old as we speak). He hear mass every Sunday and watch YouTube to learn more about cooking (one of his hobbies).
