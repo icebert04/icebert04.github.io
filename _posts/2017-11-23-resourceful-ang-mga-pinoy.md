@@ -24,7 +24,8 @@ What makes him so special? He is just a Car Wash Boy! Well, financially speaking
 But it's not the money or earning that I am giving emphasis in. It's the way how Romy thinks outside of the box. Before, he was earning nothing. But today, he makes his own living and he doesn't have to bother his sister for additional money anymore.    
 How he provided quality service to his customers. Most of his customers were so delighted with Romy's services that Romy gets cash bonuses and gifts like food, clothes and other items.
 
-Financially, Romy is not the right guy we should follow or immitate. What we want to get from him is his knack of seizing an opportunity when it comes his way. How he finds a solution to the problem. 
+Financially, Romy is not the right guy we should follow or immitate. What we want to get from him is his knack of seizing an opportunity when it comes his way.   
+How he finds a solution to the problem. 
 It teaches us that when we want to start a new income venture, we all....
 __**"SHOULDN'T START A BUSINESS, BUT RATHER SOLVE A PROBLEM"**__
 
