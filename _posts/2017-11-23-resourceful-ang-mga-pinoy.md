@@ -21,7 +21,7 @@ He doesn't have witholding tax, weekly meetings, stressful deadlines, and a nagg
 There are a lot of times that Romy has to **"Decline"** some customers since he also wants some enjoyment in his life (He is approaching 60 years old as we speak). He hears mass every Sunday and watch YouTube to learn more about cooking (one of his hobbies).
 
 What makes him so special? He is just a Car Wash Boy! Well, financially speaking you may be right. We all need to make more money than him especially if we have a family to feed and living in a expensive place like Manila.   
-But it's the money or earning that I am giving emphasis in. It's the way how Romy think outside of the box. Before he was earning nothing. But today he makes his own living and not asking money from his sister.   
+But it's not the money or earning that I am giving emphasis in. It's the way how Romy think outside of the box. Before he was earning nothing. But today he makes his own living and not asking money from his sister.   
 How he provided quality service to his customers. Most of his customers were so delighted with Romy's services that Romy gets cash bonuses and gifts like food, clothes and other items.
 
 Financially, Romy is not the right guy we should follow or immitate. What we want to get from him is his knack of seizing an opportunity when it comes his way. How he finds a solution to the problem. 
