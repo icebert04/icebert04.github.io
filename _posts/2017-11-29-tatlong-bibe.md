@@ -35,7 +35,7 @@ Ducks lay their eggs at night or early in the morning, so eggs can be collected 
 Using Friendillion, I went to my province and hometown in Balayan Batangas and talked to my wife's uncle whom I saw was taking care of ducks. He started with only a pair and now has hundres of them. It is not their main source of income, but they can earn money if they sell a few of their stock to interested breeders and consumers.   
 Tito Alex (or Uncle Alex) also have the option of duck meat for dinner whenever they want to. Both Tito Alex and Tita Mimi is busy earning a livelihood but they somehow manage to take care of their ducks on their limited time.
 
-The beauty of this is that they don'y spend so much money on food for their ducks. The owners just go from house to house and ask for food scraps for their gentle long beak birds. It's a diversion where they don't spend big amounts of money. Everything is almost for FREE!
+The beauty of this is that they don'y spend so much money on food for their ducks. The owners just go from house to house and ask for food scraps for their gentle long beak birds. It's their kind of hobby where it's both therapeutic and money saver. Everything is almost for FREE!
 
 They don't have a big property (maybe less than 150 square meters). But they have 2 Mango trees, A few Banana trees, and their modest house. Their ducks are mostly scattered in their land but most of them hid under their house when the sun is scorching.
 
