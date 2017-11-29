@@ -40,7 +40,7 @@ The beauty of this is that they don'y spend so much money on food for their duck
 They don't have a big property (maybe less than 150 square meters). But they have 2 Mango trees, A few Banana trees, and their modest house. Their ducks are mostly scattered in their land, but most of them hid under their house when the sun is scorching.
 
 Amazed with their unique hobby, I consulted with the couple and asked some advice. I told them that I want  to raise a few ducks for meat and egg purposes in my land located in the same province. So I got a pair after we talked and send the animals straight to my property.   
-I'm so excited that I want to add more of them as the days and months progress. 
+I'm really so excited about it that I'm so impatiantely eager to add more of them as the days and months progress. 
 
 **LESSON LEARNED:**   
 1.) You don't need a big land to have ducks (or any kind of animals). A small yard is suitable enough to have and raise them.  
