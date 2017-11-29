@@ -39,3 +39,18 @@ The beauty of this is they don'y spend on food of the ducks. The owners just go 
 
 They don't have a big property (maybe less than 150 square meters). But they have 2 Mango trees, A few Banana trees, and their modest house. Their ducks are mostly scattered in their land but most of them hid under their house when the sun is scorching.
 
+Amazed with their unique hobby, I consulted with the couple and asked advice. I told them that I want  to raise a few ducks for meat and egg purposes in my land located in the same province. So I got a pair after we talked and send the animals straight to my property.   
+I'm so excited that I want to add more of them as the days and months progress. 
+
+**LESSON LEARNED:**
+1.) You don't need a big land to have ducks (or any kind of animals). A small yard is suitable enough to have and raise them.  
+
+2.) You don't need to make it like a business. Just start small. Know the inside and out. Make the mistakes. Get the experience. Then make a decision if you want to expand it to a business or just maintain it as a passion. Either way, both decisions will be definitely be more than rewarding. 
+
+3.) Don't be afraid to ask around. Open your eyes and your eyes. Talk to people (even strangers). You never know that stranger might be the one who will help and guide you put up the hobby or business that you want.
+
+4.) Lastly, enjoy ducks! Not just the meat and eggs. Just observed as they quack and move. They are such lovely creatures to have.
+
+
+For more information... you may watch my YouTube video and see where did I get my pair of ducks. 
+
