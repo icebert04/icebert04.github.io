@@ -11,24 +11,24 @@ Well you know how the song goes. But to those who doesn't, it doesn't really mat
 
 Why Ducks! There are several reasons why a Filipino should raise ducks in their backyards, farms or vacant lands. Consider the following:
 
-**GOOD SOURCE OF PROTEIN**
+**GOOD SOURCE OF PROTEIN**   
 Duck raising provides meat and eggs for the family. Duck eggs are nutritious and provide needed protein for the family. Duck meat can be cooked in even more ways than chicken and is an excellent 
 addition to the family diet. Duck Confit or Roast Duck anyone???
 
-**SHOW ME THE MONEY**
+**SHOW ME THE MONEY**   
 A farm family will have a daily supply of eggs, and you will be able to sell any surplus eggs for additional income.
 
-**MORE PRACTICAL**
+**MORE PRACTICAL**   
 Duck raising is more practical for a small backyard project than raising chickens. Ducks are productive for a longer period of time than chickens. You will need to replace your layers only once every 18 months in order to keep production high.   
 This means saving on the cost of replacement stock. Generally, you have to replace your laying flock only twice every three years.
 
-**DON'T REQUIRE ELABORATE PENS**
+**DON'T REQUIRE ELABORATE PENS**   
 The birds do not require any elaborate housing with a multitude of windows, dropping-boards, perches,  and nest boxes. Generally, you can keep in ducks in simple sheds at night and let them loose during the day.
 
-**RARELY AFFECTED WITH DISEASES**
+**RARELY AFFECTED WITH DISEASES**   
 Ducks are very rarely afflicted with coccidiosis, and when this disease strikes, its effects are not  as bad as on chickens.  The ducks are also not as frequently affected by such fowl diseases as fowl pest and bacillary white diarrhea. 
 
-**REQUIRE LITTLE LABOR**
+**REQUIRE LITTLE LABOR**   
 Ducks lay their eggs at night or early in the morning, so eggs can be collected in the morning before letting the ducks loose to range during the day.
 
 
@@ -42,7 +42,7 @@ They don't have a big property (maybe less than 150 square meters). But they hav
 Amazed with their unique hobby, I consulted with the couple and asked advice. I told them that I want  to raise a few ducks for meat and egg purposes in my land located in the same province. So I got a pair after we talked and send the animals straight to my property.   
 I'm so excited that I want to add more of them as the days and months progress. 
 
-**LESSON LEARNED:**
+**LESSON LEARNED:**   
 1.) You don't need a big land to have ducks (or any kind of animals). A small yard is suitable enough to have and raise them.  
 
 2.) You don't need to make it like a business. Just start small. Know the inside and out. Make the mistakes. Get the experience. Then make a decision if you want to expand it to a business or just maintain it as a passion. Either way, both decisions will be definitely be more than rewarding. 
