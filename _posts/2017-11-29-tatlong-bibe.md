@@ -47,7 +47,7 @@ I'm really so excited about it that I'm so impatiantely eager to add more of the
 
 2.) You don't need to make it like a business. Just start small. Know the inside and out. Make the mistakes. Get the experience. Then make a decision if you want to expand it to a business or just maintain it as a passion. Either way, both decisions will be definitely be more than rewarding. 
 
-3.) Don't be afraid to ask around. Open your eyes and your ears. Talk to people (even strangers). You never know that stranger might be the one who will help and guide you put up the hobby or business that you want.
+3.) Don't be afraid to ask around. Open your eyes and your ears. Talk to people (even strangers). You 'll never know that same stranger might be the one who will help and guide you put up the hobby or business that you want.
 
 4.) Lastly, enjoy ducks! Not just the meat and eggs. Just observed as they quack and move. They are such lovely creatures to have.
 
