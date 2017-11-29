@@ -32,7 +32,7 @@ Ducks are very rarely afflicted with coccidiosis, and when this disease strikes,
 Ducks lay their eggs at night or early in the morning, so eggs can be collected in the morning before letting the ducks loose to range during the day.
 
 
-Using Friendillion, I went to my province and hometown in Balayan Batangas and talked to my wife's uncle whom I saw was taking care of ducks. He started with only a pair and now has hundres of them. It is not their main source of income, but they can earn money if they sell a few of their stock to interested breeders and consumers.   
+Using Friendillion, I went to my province and hometown in Balayan Batangas and talked to my wife's uncle whom I saw was taking care of ducks. He started with only a pair and now has hundreds of them. It is not their main source of income, but they can earn money if they sell a few of their stock to interested breeders and consumers.   
 Tito Alex (or Uncle Alex) also have the option of duck meat for dinner whenever they want to. Both Tito Alex and Tita Mimi is busy earning a livelihood but they somehow manage to take care of their ducks on their limited time.
 
 The beauty of this is that they don'y spend so much money on food for their ducks. The owners just go from house to house and ask for food scraps for their gentle long beak birds. It's their kind of hobby where it's both therapeutic and money saver. Everything is almost for FREE!
