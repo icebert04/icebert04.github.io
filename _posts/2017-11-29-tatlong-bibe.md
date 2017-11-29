@@ -3,8 +3,8 @@ published: true
 ---
 ![Ducks are us](/images/Tatlong Bibe.jpg)
 
-May tatlong bibe akong nakita
-Mataba mapayat mga bibe
+May tatlong bibe akong nakita...   
+Mataba mapayat mga bibe...   
 Ngunit ang may pakpak...
 
 Well you know how the song goes. But to those who doesn't, it doesn't really matter. The important thing is the principle of a bibe. Bibe or Pato and even Itik are Tagalog terms of Philippine Ducks.  
