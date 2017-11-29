@@ -54,3 +54,7 @@ I'm really so excited about it that I'm so impatiantely eager to add more of the
 
 For more information... you may watch my YouTube video and see where did I get my pair of ducks. 
 
+https://www.youtube.com/watch?v=1U9X4GJowtU&list=PLauQcdeGJkqaVAzkrT7oxTIloQXht0YGk
+
+More to follow about my ducks soon....
+
