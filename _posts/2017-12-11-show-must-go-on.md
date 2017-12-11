@@ -25,7 +25,7 @@ For those who are not aware, Friendillion purpose is to **gain 1 million friends
 I just started this project a few weeks ago and immediately got positive outcome and good results. So as tribute to my darling sister, I will be looking for a young talent out there. Preferably a young girl who has a fascinating voice. That young girl could be waiting to be discovered but don't have the financial capability and connections to reach her dreams. If given the chance, that young girl could be the next Regine Velasquez or Sarah Geronimo.   
 
 As Friendillion continues to grow, we can get in touch with poor families with a daughther who has a gifted voice in the province like Catbalogan City, Tawi-Tawi Island or in Negros.
-Our intention is not to make a profit from that young girl talents or even become a talent agent. The goal is to see to it that the little girl makes her dream come true. So she can help her poor family and make her town or city proud. But most important of all, to make this little girl shine and broadcast her voice and gifts throughout the country. 
+Our intention is not to make a profit from that young girl talents or even become a talent agent. The goal is to see to it that the little girl makes her dream come true. So she can help her poor family and make her town or city proud. But most important of all, to make this little girl shine and broadcast her voice and gifts throughout the country.   
 Friendillion **won't stop** until we find her. It doesn't matter if it will take 2 or 3 years... **we will find her**. 
 
 Roberta will **guide us** in finding her and that little girl will continue what Roberta has started. 
