@@ -10,3 +10,9 @@ I always ask the question even up today. Why don't they get the souls of the bum
 
 Then I reflected upon and accepted that it is her time. Our creator said to her "You've done enough... Let them continue!"
 
+Even it is so difficult to move on and continue my regular daily life routine, I need to put in mind the "The Show must Go On". So starting today, I will turn my grieve and distress to awakening, motivation and enthusiasm. I will make my sister Roberta Marie Martinez+ as an inspiration because that is what she exactly wants me to do... to all of us. Roberta wants us to know that she is now in a better situation.... smiling down on us.
+
+You see, my sister has a gifted voice. Whenever she sings, people were amazed. She has this charisma and glamour that attracts the attention of the audience from the time she starts to sing until the end of the music.
+
+All of us are also gifted. We may not sing as great as her but we do have some talents to share. Whether it's being a Mom, or baking a cake, or even doing carpentry. We have it all in us, we just have to use it NOW and not when the time is LATE.   
+My sister maximize her talents during her 26 years of stay here in this world. She touched so many lives 
