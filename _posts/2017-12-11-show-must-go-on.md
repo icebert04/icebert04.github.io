@@ -3,7 +3,7 @@ published: true
 ---
 ![My Darling Sister](/images/Roberta.jpg)
 
-My youngest sister passed away last December 1, 2017 (Same day as my Birthday). Since then, I don't want to get up from the bed. Would rather lock myself in the bedroom to cry and contemplate on why she departed so early (26 years of age).   
+My youngest sister passed away last December 1, 2017 (Same day as my Birthday). Since then, I didn't want to get up from the bed. Would rather lock myself in the bedroom to cry and contemplate on why she departed so early (26 years of age).   
 She had so many things to do and accomplish. She has so many talents to share and expose to the world. People were just getting to know her.... Why?
 
 I always ask the question even up today. Why don't they get the souls of the bums, the murderers, and all the pest in our society. Why her?
@@ -30,6 +30,4 @@ Friendillion won't stop until we find her. It doesn't matter if it will take 2 o
 
 Roberta will guide us in finding her and that little girl will continue what Roberta has started. 
 Roberta did not waste her talents. You should use yours too. The world would be a better place to live in if each one of us share our gifts for the common good. Each one of us should shine.
-Roberta did it in her lifetime.... It is not to late to do ours as well. 
-
-
+Roberta did it in her lifetime.... It is not to late to do ours as well.
