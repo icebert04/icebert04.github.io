@@ -29,5 +29,5 @@ Our intention is not to make a profit from that young girl talents or even becom
 Friendillion **won't stop** until we find her. It doesn't matter if it will take 2 or 3 years... **we will find her**. 
 
 Roberta will **guide us** in finding her and that little girl will continue what Roberta has started. 
-Roberta did not waste her talents. You should use yours too. The world would be a better place to live in if each one of us share our gifts for the common good. Each one of us should shine.
-Roberta did it in her lifetime.... It is not to late to do ours as well.
+Roberta did not waste her talents. You should use yours too. The world would be a better place to live in if each one of us share our gifts for the common good.   
+Each one of us should shine. Roberta did it in her lifetime.... It is not to late to do ours as well.
