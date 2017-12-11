@@ -20,8 +20,7 @@ My sister maximized her talents during her 26 years of stay here in this world. 
 Everyday to her was a blessing. She post everyday in Facebook and other social media sites to start her day right. Then no matter what her day went (good or bad) she will post again at night before going to bed. Everyday is a complete day to her. Roberta really made most of her time. I have to say **"She Lived a Very Full Life!"**
 
 So **"The Show must Go On"**, and now I've added something valuable to my **Friendillion** project. Something dedicated to my little sister who never fully revealed her voice to the public.   
-For those who are not aware, Friendillion purpose is to **gain 1 million friends**. The intent is not to get 1 million friends literally but to have that mindset to achieve new friends that will benefit me, you, and everybody who believes in the project.   
-When we have that positive attitude, our lives will be much better.
+For those who are not aware, Friendillion purpose is to **gain 1 million friends**. The intent is not to get 1 million friends literally but to have that mindset to achieve new friends that will benefit me, you, and everybody who believes in the project. When we have that positive attitude, our lives will be much better.
 
 I just started this project a few weeks ago and immediately got positive outcome and good results. So as tribute to my darling sister, I will be looking for a young talent out there. Preferably a young girl who has a fascinating voice. That young girl could be waiting to be discovered but don't have the financial capability and connections to reach her dreams. If given the chance, that young girl could be the next Regine Velasquez or Sarah Geronimo.   
 
