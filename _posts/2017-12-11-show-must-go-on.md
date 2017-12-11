@@ -19,7 +19,7 @@ All of us are also gifted. We may not sing as great as her, but we do have some 
 My sister maximized her talents during her 26 years of stay here in this world. She touched so many lives, travelled to different places, and did a lot of adventures a long the way.   
 Everyday to her was a blessing. She post everyday in Facebook and other social media sites to start her day right. Then no matter what her day went (good or bad) she will post again at night before going to bed. Everyday is a complete day to her. Roberta really made most of her time. I have to say **"She Lived a Very Full Life!"**
 
-So "The Show must Go On", and now I've added something valuable to my Friendillion project. Something dedicated to my little sister who never fully exposed her voice throughout the country.   
+So **"The Show must Go On"**, and now I've added something valuable to my Friendillion project. Something dedicated to my little sister who never fully exposed her voice throughout the country.   
 For those who are not aware, Friendillion purpose is to gain 1 million friends. The intent is not to get 1 million friends literally but to have that goal to achieve new friends that will benefit me, you, and everybody who believes in the project.   
 When we have that positive attitude, our lives will be much better.
 
