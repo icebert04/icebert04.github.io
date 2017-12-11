@@ -10,7 +10,7 @@ I always ask that same question even up today. Why don't they get the souls of t
 
 Then I reflected upon and accepted that it is her time. Our creator said to her "You've done enough... Let them continue!"
 
-Even it is so difficult to move on and continue my regular daily life routine, I need to put in mind the "The Show must Go On". So starting today, I will turn my grieve and distress to awakening, motivation and enthusiasm. I will make my sister Roberta Marie Martinez+ as an inspiration because that is what she exactly wants me to do... to all of us. Roberta wants us to know that she is now in a better situation.... smiling down on us.
+Even it is so difficult to move on and continue my regular daily life routine, I need to set in my mind that "The Show must Go On". So starting today, I will turn my grieve and distress to awakening, motivation and enthusiasm. I will make my sister Roberta Marie Martinez+ as an inspiration because that is what she exactly wants me to do... to all of us. Roberta wants us to know that she is now in a better situation.... smiling down on us.
 
 You see, my sister has a gifted voice. Whenever she sings, people were amazed. She has this charisma and glamour that attracts the attention of the audience from the time she starts to sing until the end of the music.
 
