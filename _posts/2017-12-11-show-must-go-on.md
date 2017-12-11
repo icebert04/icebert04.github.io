@@ -16,7 +16,7 @@ So starting today, I will turn my grieve and distress to awakening, motivation a
 You see, my sister has a gifted voice. Whenever she sings, people were amazed. She has this charisma and glamour that attracts the attention of the audience from the time she starts to sing until the end of the music.
 
 All of us are also gifted. We may not sing as great as her, but we do have some talents to share. Whether it's being a Mom, or baking a cake, or even doing carpentry. We have it all in us, we just have to use it **NOW** and not when the time is **LATE**.   
-My sister maximize her talents during her 26 years of stay here in this world. She touched so many lives, travelled to different places, and did a lot of adventures a long the way.   
+My sister maximized her talents during her 26 years of stay here in this world. She touched so many lives, travelled to different places, and did a lot of adventures a long the way.   
 Everyday to her was a blessing. She post everyday in Facebook and other social media sites to start the her day right. Then no matter what her day went she will post again at night before going to bed. Roberta' really makes most of her time. I have to say "She Lived a Very Full Life!"
 
 So "The Show must Go On", and now I've added something valuable to my Friendillion project. Something dedicated to my little sister who never fully exposed her voice throughout the country.   
