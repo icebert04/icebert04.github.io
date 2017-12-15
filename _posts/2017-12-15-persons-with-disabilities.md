@@ -33,9 +33,9 @@ Fresh fruits, dried or processed or canned pork, and Dairy products
 => Continuance of the same benefits and privileges given by the Government Service Insurance System (GSIS), Social Security System (SSS), and Pag-IBIG    
 => Express lanes for PWD in all commercial and government establishments (if none, priority shall be given)
     
-In some cities, they offer...
 
-=> 3 hours Free Parking for PWDs in Cebu City
+**In some cities, they offer...**   
+=> 3 hours Free Parking for PWDs in Cebu City   
 => Free Movie admission in Quezon City
 
 
