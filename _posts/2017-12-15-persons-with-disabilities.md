@@ -5,7 +5,7 @@ published: true
 
 I remember this perfectly.... I was with these 2 guys buying stuff for my sister's wake in WalterMart Makati. And when I was about to pay at the cashier, I noticed that the line was full (about 20 people ahead of me). So I said to myself "Tough Luck Francis, just go with it!"
 
-Then I saw one of my guys named Paul who is also about to pay for the merchandise that he picked in the mall. Just when I thought that he will line-up after me, he went to a different lane that I didn't know it exist..... The Express Lane. 
+Then I saw one of my companion named Paul who is also about to pay for the merchandise that he picked in the mall. Just when I thought that he will line-up after me, he went to a different lane that I didn't know it exist..... The Express Lane. 
 
 So after wasting 1 hour in the line and finally reaching the cashier. I went to Paul after and ask him... "How did you do that?" And this is what he said to me... **"PWD ako Kuya!"**
 
