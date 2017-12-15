@@ -13,30 +13,26 @@ PWD is an abbreviation and short term for Persons With Disabilities. Here in the
 
 I was intrigued by it and Google it and was amazed with its benefits and priveleges. Here's what PWDs are entitled to...
 
-20% discount and VAT exemption
-
+20% discount and VAT exemption:
 => Hotels, Restaurants and Recreation centers 
 => Theaters & Cinema, Concerts, Carnivals, and other similar places of culture, leisure and amusement
-=> Medicine, Medical & Dental services
+=> Medicine, Medical & Dental services (this includes laboratory, diagnostic, professional fees in all private hospitals and medical facilities)
 => Domestic air & Sea travel
-=> Public railways, skyways, and other public utility vehicles (including buses, jeeps, taxis and shuttle services)
-=> Funeral and Burial services for the death of the PWD
+=> Public railways (MRT, LRT 1 & 2), skyway, and all public utility vehicles.
 
-5% discount
-
+5% discount:
 => Basic Necessities such as: 
 Rice, Bread, Fish, Fresh pork, beef and poultry, as well as Veggies 
-    
 => Prime Commodities such as: 
 Fresh fruits, dried or processed or canned pork, and Dairy products
 
-Other benefits
+Other Benefits
 
 => Educational assistance to pursue primary (nursery and kindergarten), secondary, tertiary, post-tertiary, as well as vocational or technical education, in both public and private schools, provided the PWD meets admission requirements
 => Continuance of the same benefits and privileges given by the Government Service Insurance System (GSIS), Social Security System (SSS), and Pag-IBIG 
 => Express lanes for PWD in all commercial and government establishments (if none, priority shall be given)
     
-In some cities there offer...
+In some cities, they offer...
 
 => 3 hours Free Parking for PWDs in Cebu City
 => Free Movie admission in Quezon City
@@ -45,11 +41,16 @@ In some cities there offer...
 So what's the big fuss about it???
 
 Well, my youngest son Lorenzo was born with Autism and we where not aware that he can have this certain benefits and priveleges.... and he is turning 13 next year.
-I too was born with a certain condition and also qualified to get a PWD card from the goevernment... and I'm 40ish old. 
+I too was born with a certain condition and I'm also qualified to get a PWD card from the goevernment... and I'm 40ish old. 
 
 If we knew this, we have received and used this priveleged and benefits a long time ago. Awareness is the key. If Paul did not line up in that Express Lane, I wouldn't have known.
 
 That is the purpose of Friendillion, ladies and gents. The more people that you know that more possibilities and awareness you will be receiving. 
 
-This applies to all types of people (not only the PWDs). Know your rights and use it wisely. Use your SSS ID for your monthly retirement pension. Try to make the most out of your Pag-IBIG Fund (HDMF) even it is not related to housing acquisition. Do you know that there is also a privilege for the Solo Parents according to R.A. 8972. Did you know that we have a Free entrance at the National Museum of the Philippines (Me and kids go there when we have time). Have you heard that our village, barangy and local parish chruch offer Free livelihood seminar and Dental check-up to our Yaya's, Drivers and Housekeepers.     
+This applies to all types of people (not only the PWDs).   
+Know your rights and use it wisely. Use your SSS ID for your monthly retirement pension. Try to make the most out of your Pag-IBIG Fund (HDMF) even it is not related to housing acquisition.   
+Do you know that there is also a privilege for the Solo Parents according to R.A. 8972. Did you know that we have a Free entrance at the National Museum of the Philippines (Me and kids go there when we have time).   
+Have you heard that our village, barangay and local parish chruch offer Free livelihood seminars and Dental check-ups to our Yaya's, Drivers and Housekeepers.
+
+
 
