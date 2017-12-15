@@ -24,8 +24,20 @@ I was intrigued by it and Google it and was amazed with its benefits and privele
 
 5% discount
 
-    basic necessities such as: 
-    rice, corn, bread, fresh or dried and canned fish and other marine products, fresh pork, beef and poultry meat, fresh eggs, fresh and processed milk, infant formula, fresh vegetables, root crops, coffee, sugar, cooking oil, salt, laundry soap, detergents, firewood, charcoal, candles and other commodities as may be classified by the Department of Trade and Industry (DTI) and the Department of Agriculture (DA)
-    prime commodities such as: 
-    fresh fruits, dried or processed or canned pork, beef and poultry, meat, dairy products not falling under basic necessities, noodles, onions, garlic, diapers, herbicides, poultry, swine and cattle feeds, veterinary products for poultry, swine and cattle feeds, veterinary products for poultry, swine and cattle, paper, school supplies, nipa shingle, plyboard, construction nails, batteries, electrical supplies, light bulbs, steel wire and other commodities that may be classified by the DTI and DA
+=> Basic Necessities such as: 
+Rice, Bread, Fish, Fresh pork, beef and poultry, as well as Veggies 
+    
+=> Prime Commodities such as: 
+Fresh fruits, dried or processed or canned pork, and Dairy products
+
+Other benefits
+
+=> Educational assistance to pursue primary (nursery and kindergarten), secondary, tertiary, post-tertiary, as well as vocational or technical education, in both public and private schools, provided the PWD meets admission requirements
+=> Continuance of the same benefits and privileges given by the Government Service Insurance System (GSIS), Social Security System (SSS), and Pag-IBIG 
+=> Express lanes for PWD in all commercial and government establishments (if none, priority shall be given)
+    
+In some cities there offer...
+
+=> 3 hours Free Parking for PWDs in Cebu City
+=> Free Movie admission in Quezon City
 
