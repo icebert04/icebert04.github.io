@@ -51,3 +51,5 @@ If we knew this, we have received and used this priveleged and benefits a long t
 
 That is the purpose of Friendillion, ladies and gents. The more people that you know that more possibilities and awareness you will be receiving. 
 
+This applies to all types of people (not only the PWDs). Know your rights and use it wisely. Use your SSS ID for your monthly retirement pension. Try to make the most out of your Pag-IBIG Fund (HDMF) even it is not related to housing acquisition. Do you know that there is also a privilege for the Solo Parents according to R.A. 8972. Did you know that we have a Free entrance at the Philippines National Museum.   
+
