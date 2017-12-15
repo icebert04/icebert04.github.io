@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![PWD](/images/Paul.jpg)
