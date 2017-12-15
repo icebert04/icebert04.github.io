@@ -9,7 +9,7 @@ Then I saw one of my companion named Paul who is also about to pay for the merch
 
 So after wasting 1 hour in the line and finally reaching the cashier. I went to Paul after and asked him... "How did you do that?" And this is what he said to me... **"PWD ako Kuya!"**
 
-PWD is an abbreviation and short term for Persons With Disabilities. Here in the Philippines, as of January 2017, there are an estimated 1.2 million PWDs in the country. But, only 50,0000 PWD cardholders are taking advantage of the benefits, says Senator Sonny Angara. 
+PWD is an abbreviation and short term for Persons With Disabilities. Here in the Philippines, as of January 2017, there are an estimated 1.2 million PWDs in the country. But, only 50,000 PWD cardholders are taking advantage of the benefits, says Senator Sonny Angara. 
 
 I was intrigued by it and Google it and was amazed with its benefits and priveleges. Here's what PWDs are entitled to...
 
