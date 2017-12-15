@@ -21,9 +21,9 @@ I was intrigued by it and Google it and was amazed with its benefits and privele
 => Domestic air & Sea travel   
 => Public railways (MRT, LRT 1 & 2), skyway, and all public utility vehicles.
 
-5% discount:
+**5% discount:**   
 => Basic Necessities such as: 
-Rice, Bread, Fish, Fresh pork, beef and poultry, as well as Veggies 
+Rice, Bread, Fish, Fresh pork, beef and poultry, as well as Veggies    
 => Prime Commodities such as: 
 Fresh fruits, dried or processed or canned pork, and Dairy products
 
