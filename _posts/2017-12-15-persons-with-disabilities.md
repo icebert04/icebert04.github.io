@@ -46,7 +46,7 @@ I too was born with a certain condition and I'm also qualified to get a PWD card
 
 If we knew this, we have received and used this priveleged and benefits a long time ago. Awareness is the key. If Paul did not line up in that Express Lane, I wouldn't have known.
 
-That is the purpose of Friendillion, ladies and gents. The more people that you know that more possibilities and awareness you will be receiving. 
+That is the purpose of Friendillion, ladies and gents. The more people that you know, the more possibilities and awareness you will be receiving. 
 
 This applies to all types of people (not only the PWDs).   
 Know your rights and use it wisely. Use your SSS ID for your monthly retirement pension. Try to make the most out of your Pag-IBIG Fund (HDMF) even it is not related to housing acquisition.   
