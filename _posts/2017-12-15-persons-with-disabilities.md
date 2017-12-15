@@ -44,7 +44,7 @@ So what's the big fuss about it???
 Well, my youngest son Lorenzo was born with Autism and we were not aware that he can have this certain benefits and privileges.... and he is turning 13 next year.   
 I too was born with a certain condition and I'm also qualified to get a PWD card from the government... and I'm 40ish old. 
 
-If we knew this, we have received and used this priveleged and benefits a long time ago. Awareness is the key. If Paul did not line up in that Express Lane, I wouldn't have known.
+If we knew this, we have received and used this privilege and benefits a long time ago. Awareness is the key. If Paul did not line up in that Express Lane, I wouldn't have known.
 
 That is the purpose of Friendillion, ladies and gents. The more people that you know, the more possibilities and awareness you will be receiving. 
 
