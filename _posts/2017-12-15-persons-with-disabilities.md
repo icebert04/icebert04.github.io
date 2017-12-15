@@ -41,3 +41,9 @@ In some cities there offer...
 => 3 hours Free Parking for PWDs in Cebu City
 => Free Movie admission in Quezon City
 
+
+So what's the big fuss about it???
+
+Well, my youngest son Lorenzo was born with Autism and we where not aware that he can have this certain benefits and priveleges.... and he is turning 13 next year.
+I too was born with a certain condition and also qualified to get a PWD card from the goevernment... and I'm 40ish old. 
+
