@@ -52,5 +52,5 @@ Know your rights and use it wisely. Use your SSS ID for your monthly retirement 
 Do you know that there is also a privilege for the Solo Parents according to R.A. 8972. Did you know that we have a Free entrance at the National Museum of the Philippines (Me and kids go there when we have time).   
 Have you heard that our village, barangay and local parish chruch offer Free livelihood seminars and Dental check-ups to our Yaya's, Drivers and Housekeepers.
 
-
+So get yourself out in the open. Get acquianted to more people. And never ever forget to use your rights, benefits and privileges.... whether you're a PWD or not!
 
