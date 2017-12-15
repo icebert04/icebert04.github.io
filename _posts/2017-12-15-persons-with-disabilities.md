@@ -13,11 +13,10 @@ PWD is an abbreviation and short term for Persons With Disabilities. Here in the
 
 I was intrigued by it and Google it and was amazed with its benefits and priveleges. Here's what PWDs are entitled to...
 
-20% discount and VAT exemption:
-=> Hotels, Restaurants and Recreation centers 
-=> Theaters & Cinema, Concerts, Carnivals, and other similar places of culture, leisure and amusement
-=> Medicine, Medical & Dental services (this includes laboratory, diagnostic, professional fees in all private hospitals and medical facilities)
-=> Domestic air & Sea travel
+**20% discount and VAT exemption:**   
+=> Hotels, Restaurants and Recreation centers    
+=> Theaters & Cinema, Concerts, Carnivals, and other similar places of culture, leisure and amusement   => Medicine, Medical & Dental services (this includes laboratory, diagnostic, professional fees in all private hospitals and medical facilities)   
+=> Domestic air & Sea travel   
 => Public railways (MRT, LRT 1 & 2), skyway, and all public utility vehicles.
 
 5% discount:
