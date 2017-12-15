@@ -27,10 +27,10 @@ Rice, Bread, Fish, Fresh pork, beef and poultry, as well as Veggies
 => Prime Commodities such as: 
 Fresh fruits, dried or processed or canned pork, and Dairy products
 
-Other Benefits
 
-=> Educational assistance to pursue primary (nursery and kindergarten), secondary, tertiary, post-tertiary, as well as vocational or technical education, in both public and private schools, provided the PWD meets admission requirements
-=> Continuance of the same benefits and privileges given by the Government Service Insurance System (GSIS), Social Security System (SSS), and Pag-IBIG 
+**Other Benefits:**   
+=> Educational assistance to pursue primary (nursery and kindergarten), secondary, tertiary, post-tertiary, as well as vocational or technical education, in both public and private schools, provided the PWD meets admission requirements   
+=> Continuance of the same benefits and privileges given by the Government Service Insurance System (GSIS), Social Security System (SSS), and Pag-IBIG    
 => Express lanes for PWD in all commercial and government establishments (if none, priority shall be given)
     
 In some cities, they offer...
