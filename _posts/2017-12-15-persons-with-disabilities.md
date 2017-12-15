@@ -54,5 +54,5 @@ Do you know that there is also a privilege for the Solo Parents according to R.A
 Did you know that we have a Free entrance at the National Museum of the Philippines (Me & my kids go there when we have time).   
 Have you heard that our village, barangay and local parish church offer Free livelihood seminars and Dental check-ups to our Yaya's, Drivers and Housekeepers.
 
-So get yourself out in the open. Get acquianted to more people. And never ever forget to use your rights, benefits and privileges.... whether you're a PWD or not!
+So get yourself out in the open. Get acquainted to more people. And never ever forget to use your rights, benefits and privileges.... whether you're a PWD or not!
 
