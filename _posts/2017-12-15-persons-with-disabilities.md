@@ -50,7 +50,8 @@ That is the purpose of Friendillion, ladies and gents. The more people that you 
 
 This applies to all types of people (not only the PWDs).   
 Know your rights and use it wisely. Use your SSS ID for your monthly retirement pension. Try to make the most out of your Pag-IBIG Fund (HDMF) even it is not related to housing acquisition.   
-Do you know that there is also a privilege for the Solo Parents according to R.A. 8972. Did you know that we have a Free entrance at the National Museum of the Philippines (Me & my kids go there when we have time).   
+Do you know that there is also a privilege for the Solo Parents according to R.A. 8972.   
+Did you know that we have a Free entrance at the National Museum of the Philippines (Me & my kids go there when we have time).   
 Have you heard that our village, barangay and local parish chruch offer Free livelihood seminars and Dental check-ups to our Yaya's, Drivers and Housekeepers.
 
 So get yourself out in the open. Get acquianted to more people. And never ever forget to use your rights, benefits and privileges.... whether you're a PWD or not!
