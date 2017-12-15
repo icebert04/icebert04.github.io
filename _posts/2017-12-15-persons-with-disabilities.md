@@ -41,7 +41,7 @@ Fresh fruits, dried or processed or canned pork, and Dairy products
 
 So what's the big fuss about it???
 
-Well, my youngest son Lorenzo was born with Autism and we where not aware that he can have this certain benefits and priveleges.... and he is turning 13 next year.
+Well, my youngest son Lorenzo was born with Autism and we where not aware that he can have this certain benefits and priveleges.... and he is turning 13 next year.   
 I too was born with a certain condition and I'm also qualified to get a PWD card from the goevernment... and I'm 40ish old. 
 
 If we knew this, we have received and used this priveleged and benefits a long time ago. Awareness is the key. If Paul did not line up in that Express Lane, I wouldn't have known.
