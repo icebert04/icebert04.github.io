@@ -3,7 +3,7 @@ published: true
 ---
 ![Importance Of Trees](/images/Santolan 2.jpg)
 
-My late Great-grandmother and Grandmother planted 90+ Carabao Mango Trees, 30+ Indian Mango Trees, 40+ Santolan Trees, and multiple Mahogany Trees in most of their properties in Balayan Batangas.   
+My late Great-grandmother and Grandmother planted 90+ Carabao Mango Trees, 30+ Indian Mango Trees, 40+ Santol Trees, and multiple Mahogany Trees in most of their properties in Balayan Batangas.   
 So basically, we lived in a generation we were lived and stayed in a place with perfectly good shade, abundants of fruits and several trees to climb. 
 
 It was so serene and peaceful that we do see different species of birds building their nest egg in several of the tall trees scattered in the property.   
