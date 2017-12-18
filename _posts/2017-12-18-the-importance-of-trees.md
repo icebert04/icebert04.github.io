@@ -12,7 +12,7 @@ We always climb trees (just the small ones) and watch the new bird hatchlings (n
 
 Plus the fruits... we got loads and loads of them packed in large bamboo baskets (we call them Kaing). And since the mangoes are bountiful, my Grandmother (we call her **Tita Caring**) normally gave them away to relatives and friends.   
 But suprisingly, we still got lots of mangoes (both green and yellow ones) everywhere in our house... like in the refrigerator, kumidor (Comedor in Spanish - dining room), the dirty kitchen and even in the lanai.   
-We got so many mangoes the I gave up on eating them. They were just too many! 
+We got so many mangoes that I gave up on eating them. They were just too many! 
 
 I was so lucky that I was born in their family tree (**Martinez clan**). That even most of that properties that I've mentioned are long gone.... I still have one property that is filled with Mahogany trees and I do still intend to add more trees in the coming years. Not for me really but for my children, our relatives, and to our next generation.
 
