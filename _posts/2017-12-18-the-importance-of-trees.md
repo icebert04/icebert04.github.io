@@ -14,7 +14,7 @@ Plus the fruits... we got loads and loads of them packed in large bamboo baskets
 But suprisingly, we still got lots of mangoes (both green and yellow ones) everywhere in our house... like in the refrigerator, kumidor (Comedor in Spanish - dining room), the dirty kitchen and even in the lanai.   
 We got so many mangoes the I gave up on eating them. They were just too many! 
 
-I was so lucky that I was born in their family tree (Martinez clan). That even most of that properties that I've mentioned are long gone.... I still have one property that is filled with Mahogany trees and I do still intend to add more trees in the coming years. Not for me really but for my children, our relatives, and to our next generation.
+I was so lucky that I was born in their family tree (**Martinez clan**). That even most of that properties that I've mentioned are long gone.... I still have one property that is filled with Mahogany trees and I do still intend to add more trees in the coming years. Not for me really but for my children, our relatives, and to our next generation.
 
 That is why I am bringing this up to you. That even though you don't have properties or trees in your properties... it is never too late to have them in your lifetime. For starters, you can plant Gmelina. 
 It is one of the fastest growing trees in our country today. A full grown tree (1,500 meters in altitude) takes only 5 years to grow.   
