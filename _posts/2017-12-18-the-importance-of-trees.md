@@ -44,6 +44,14 @@ Wildlife use trees for food, shelter, nesting, and mating. These habitats suppor
 Trees absorb CO2, removing and storing the carbon while releasing the oxygen back into the air.  Urban trees and forests are saving an average of one life every year per city because of the particulates that they remove from the air.
 
 
+So there you go, the best time to plant a tree is NOW!   
 
+You must be "THE CHANGE" you wish to see in the World!
+
+Each One, Teach One, How to Plant One!
+
+
+Francis Isberto
+Friendillion.com
 
 
