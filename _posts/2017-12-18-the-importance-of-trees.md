@@ -35,7 +35,7 @@ People are drawn to homes and businesses near trees. The proof is in the prices:
 Feeling down? Take a walk in the woods. Several studies have found that access to nature yields better cognitive functioning, more self-discipline, and greater mental health overall. One study even found that hospital patients who can see trees out their windows are hospitalized 8 percent fewer days than their counterparts. Children with ADHD show fewer symptoms when they have access to nature. 
 
 5.) **Flood Control**   
-Trees can hold vast amounts of water that would otherwise stream down hills and surge along rivers into towns. That’s why trees are such an important part of stormwater management for many cities.
+Trees can hold vast amounts of water that would otherwise stream down hills and surge along rivers into towns. That’s why trees are such an important part of storm-water management for many cities.
 
 6.) **Wildlife Habitat**   
 Wildlife use trees for food, shelter, nesting, and mating. These habitats support the incredible variety of living things on the planet, known as biodiversity. By protecting trees, we also save all the other plants and animals they shelter. You never know...  you might see a Philippine Eagle-Owl in your very own tree.
