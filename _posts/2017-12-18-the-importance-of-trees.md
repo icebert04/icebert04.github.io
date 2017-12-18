@@ -40,5 +40,10 @@ Trees can hold vast amounts of water that would otherwise stream down hills and 
 6.) Wildlife Habitat
 Wildlife use trees for food, shelter, nesting, and mating. These habitats support the incredible variety of living things on the planet, known as biodiversity. By protecting trees, we also save all the other plants and animals they shelter. You never know...  you might see a Philippine Eagle-Owl in your very own tree.
 
+7.) Combat Climate Change & Provides Clean Air
+Trees absorb CO2, removing and storing the carbon while releasing the oxygen back into the air.  Urban trees and forests are saving an average of one life every year per city because of the particulates that they remove from the air.
+
+
+
 
 
