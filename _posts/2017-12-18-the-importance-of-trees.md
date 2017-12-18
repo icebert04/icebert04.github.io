@@ -16,5 +16,6 @@ We got so many mangoes the I gave up on eating them. They were just too many!
 
 I was so lucky that I was born in that kind of family. That even most of that properties that I've mentioned are long gone.... I still have one property that is filled with Mahogany trees and I do still intend to add more trees in the coming years. Not for me really but for my children, our relatives, and to our next generation.
 
-That is why I am bringing this up to you
-
+That is why I am bringing this up to you. That even though you don't have properties or trees in your properties... it is never too late to have them in your lifetime. For starters you can plant Gmelina. 
+It is one of the fastest growing trees in our country today. A full grown tree (1,500 meters in altutitudes) takes only 5 years to grow.   
+But it's up to you really. You can plant a varities of trees.. some fruit bearing, some for lumber and some jsut for shade.
