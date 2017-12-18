@@ -56,4 +56,4 @@ Friendillion.com
 
 P.S. = To get a better view and insight of the trees in the property, you may watch my short video on this link:
 
-https://www.youtube.com/watch?v=mcVQaWrK6kk
+[https://www.youtube.com/watch?v=mcVQaWrK6kk]()
