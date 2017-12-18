@@ -10,7 +10,7 @@ It was so serene and peaceful that we do see different species of birds building
 We don't feel the heat even in the Summer and we never used airconditioning. A typical electric fan will suffice. When we were little, we always bring a pail of water at noon to build sand castle, pots and other sand stuff and we never ever perspire.... not a drop!   
 We always climb trees (just the small ones) and watch the new bird hatchlings (normally pigeons).   On very rare occassions, I sometimes saw a **Black-naped Oriole**built a nest to lay her eggs. It was an incredible experience.
 
-Plus the fruits... we got loads and loads of them packed in large bamboo baskets (we call them Kaing). And since the mangoes are bountiful, my Grandmother (we call her Tita Caring) normally gave them away to relatives and friends.   
+Plus the fruits... we got loads and loads of them packed in large bamboo baskets (we call them Kaing). And since the mangoes are bountiful, my Grandmother (we call her **Tita Caring**) normally gave them away to relatives and friends.   
 But suprisingly, we still got lots of mangoes (both green and yellow ones) everywhere in our house... like in the refrigerator, kumidor (Comedor in Spanish - dining room), the dirty kitchen and even in the lanai.   
 We got so many mangoes the I gave up on eating them. They were just too many! 
 
