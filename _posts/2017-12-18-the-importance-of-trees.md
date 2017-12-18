@@ -23,7 +23,7 @@ But it's up to you really. You can plant a variety of trees.. some fruit bearing
 Here are some of the benefits on why each Filipino family should have trees in their properties...
 
 1.) **Conserve Energy**   
-Three trees placed strategically around a single-family home can cut summer air conditioning needs by up to 50 percent. By reducing the energy demand for cooling our houses, we reduce carbon dioxide and other pollution emissions from power plants.
+3 trees placed strategically around a single-family home can cut summer air conditioning needs by up to 50 percent. By reducing the energy demand for cooling our houses, we reduce carbon dioxide and other pollution emissions from power plants.
 
 2.) **Provides Food**   
 Do I still need to amplify on this? Just plant your favorite fruit bearing trees and taste the "Fruits of your Labor!"
