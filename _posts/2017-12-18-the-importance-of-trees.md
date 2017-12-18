@@ -22,31 +22,31 @@ But it's up to you really. You can plant a variety of trees.. some fruit bearing
 
 Here are some of the benefits on why each Filipino family should have trees in their properties...
 
-1.) Conserve Energy
+1.) **Conserve Energy**   
 Three trees placed strategically around a single-family home can cut summer air conditioning needs by up to 50 percent. By reducing the energy demand for cooling our houses, we reduce carbon dioxide and other pollution emissions from power plants.
 
-2.) Provides Food
+2.) **Provides Food**   
 Do I still need to amplify on this? Just plant your favorite fruit bearing trees and taste the "Fruits of your Labor!"
 
-3.) Increased Property Value
+3.) **Increased Property Value**   
 People are drawn to homes and businesses near trees. The proof is in the prices: property values are 7 percent to 25 percent higher for houses surrounded by trees and consumers spend up to 13 percent more at shops near green landscapes. 
 
-4.) Calming Effect for your Health
+4.) **Calming Effect for your Health**   
 Feeling down? Take a walk in the woods. Several studies have found that access to nature yields better cognitive functioning, more self-discipline, and greater mental health overall. One study even found that hospital patients who can see trees out their windows are hospitalized 8 percent fewer days than their counterparts. Children with ADHD show fewer symptoms when they have access to nature. 
 
-5.) Flood Control
+5.) **Flood Control**   
 Trees can hold vast amounts of water that would otherwise stream down hills and surge along rivers into towns. That’s why trees are such an important part of stormwater management for many cities.
 
-6.) Wildlife Habitat
+6.) **Wildlife Habitat**   
 Wildlife use trees for food, shelter, nesting, and mating. These habitats support the incredible variety of living things on the planet, known as biodiversity. By protecting trees, we also save all the other plants and animals they shelter. You never know...  you might see a Philippine Eagle-Owl in your very own tree.
 
-7.) Combat Climate Change & Provides Clean Air
+7.) **Combat Climate Change & Provides Clean Air**   
 Trees absorb CO2, removing and storing the carbon while releasing the oxygen back into the air.  Urban trees and forests are saving an average of one life every year per city because of the particulates that they remove from the air.
 
 
 So there you go, the best time to plant a tree is NOW!   
 
-You must be "THE CHANGE" you wish to see in the World!
+You must be **"THE CHANGE"** you wish to see in the World!
 
 Each One, Teach One, How to Plant One!
 
