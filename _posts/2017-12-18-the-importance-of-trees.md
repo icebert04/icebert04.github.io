@@ -20,7 +20,7 @@ That is why I am bringing this up to you. That even though you don't have proper
 It is one of the fastest growing trees in our country today. A full grown tree (1,500 meters in altitude) takes only 5 years to grow.   
 But it's up to you really. You can plant a variety of trees.. some fruit bearing, some for lumber and some just for shade.
 
-Here are some of the benefits of why each Filipino family should have trees in their properties...
+Here are some of the benefits on why each Filipino family should have trees in their properties...
 
 1.) Conserve Energy
 Three trees placed strategically around a single-family home can cut summer air conditioning needs by up to 50 percent. By reducing the energy demand for cooling our houses, we reduce carbon dioxide and other pollution emissions from power plants.
