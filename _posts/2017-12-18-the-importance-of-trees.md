@@ -30,3 +30,6 @@ Do I still need to amplify on this? Just plant your favorite fruit bearing trees
 
 3.) Increased Property Value
 People are drawn to homes and businesses near trees. The proof is in the prices: property values are 7 percent to 25 percent higher for houses surrounded by trees and consumers spend up to 13 percent more at shops near green landscapes. 
+
+4.) Calming Effect for your Health
+Feeling down? Take a walk in the woods. Several studies have found that access to nature yields better cognitive functioning, more self-discipline, and greater mental health overall. One study even found that hospital patients who can see trees out their windows are hospitalized 8 percent fewer days than their counterparts.
