@@ -17,5 +17,16 @@ We got so many mangoes the I gave up on eating them. They were just too many!
 I was so lucky that I was born in that kind of family. That even most of that properties that I've mentioned are long gone.... I still have one property that is filled with Mahogany trees and I do still intend to add more trees in the coming years. Not for me really but for my children, our relatives, and to our next generation.
 
 That is why I am bringing this up to you. That even though you don't have properties or trees in your properties... it is never too late to have them in your lifetime. For starters you can plant Gmelina. 
-It is one of the fastest growing trees in our country today. A full grown tree (1,500 meters in altutitudes) takes only 5 years to grow.   
-But it's up to you really. You can plant a varities of trees.. some fruit bearing, some for lumber and some jsut for shade.
+It is one of the fastest growing trees in our country today. A full grown tree (1,500 meters in alttitude) takes only 5 years to grow.   
+But it's up to you really. You can plant a variety of trees.. some fruit bearing, some for lumber and some just for shade.
+
+Here are some of the benefits of why each Filipino family should have trees in their properties...
+
+1.) Conserve Energy
+Three trees placed strategically around a single-family home can cut summer air conditioning needs by up to 50 percent. By reducing the energy demand for cooling our houses, we reduce carbon dioxide and other pollution emissions from power plants.
+
+2.) Provides Food
+Do I still need to amplify on this? Just plant your favorite fruit bearing trees and taste the "Fruits of your Labor!"
+
+3.) Increased Property Value
+People are drawn to homes and businesses near trees. The proof is in the prices: property values are 7 percent to 25 percent higher for houses surrounded by trees and consumers spend up to 13 percent more at shops near green landscapes. 
