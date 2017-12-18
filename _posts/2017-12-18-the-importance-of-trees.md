@@ -8,7 +8,7 @@ So basically, we lived in a generation were we stayed in a place with perfectly 
 
 It was so serene and peaceful that we do see different species of birds building their nest egg in several of the tall trees scattered in the property.   
 We don't feel the heat even in the Summer and we never used air-conditioning. A typical electric fan will suffice. When we were little, we always bring a pail of water at noon to build sand castle, pots and other sand stuff and we never ever perspire.... not a drop!   
-We always climb trees (just the small ones) and watch the new bird hatchlings (normally pigeons).   On very rare occassions, I sometimes saw a **Black-naped Oriole** built a nest to lay her eggs. It was an incredible experience.
+We always climb trees (just the small ones) and watch the new bird hatchlings (normally pigeons).   On very rare occasions, I sometimes saw a **Black-naped Oriole** built a nest to lay her eggs. It was an incredible experience.
 
 Plus the fruits... we got loads and loads of them packed in large bamboo baskets (we call them Kaing). And since the mangoes are bountiful, my Grandmother (we call her **Tita Caring**) normally gave them away to relatives and friends.   
 But suprisingly, we still got lots of mangoes (both green and yellow ones) everywhere in our house... like in the refrigerator, kumidor (Comedor in Spanish - dining room), the dirty kitchen and even in the lanai.   
