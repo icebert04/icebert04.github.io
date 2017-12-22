@@ -11,7 +11,7 @@ For those who doesn't know what a Paksiw looks like... Lechon Paksiw (or Paksiw)
 
 Normally, most people buy the Lechon first then they cook the leftover and make it into a Paksiw.   My story is different... My Friends from La Loma sends me the Paksiw first then after the Lechon.   
 I remember the time when I went to their place in La Loma. Their Lechon store is at the corner of the main street which is pretty much a valuable and strategic location in capturing new customers. And while I was talking to the owner, I carefully observed how the Lechon (of different sizes) were lined up in front of their store.   
-The motorists will then park their cars and order their preferred Lechon sizes. I was startled to see them all gone before the end of the day. 
+The motorists will then park their cars and order their preferred Lechon. I was startled to see them all gone before the end of the day. 
 
 Sometimes when they have Lechon leftovers at the end of the day (which is very rare) they make the Lechon scraps as Paksiw and sell it to their customers. But even the Paksiw are like Meteorites from outer space that comes once in a blue moon.   
 I myself can testify to that. Their Paksiw is probably the best Paksiw that I've tried so far. The owner and her loyal sister, whom everybody calls **"Mamita"**, made this Paksiw with special ingredients.   
