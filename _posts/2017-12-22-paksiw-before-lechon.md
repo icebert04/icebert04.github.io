@@ -16,3 +16,11 @@ I myself can testify to that. Their Paksiw is probably the best Paksiw that I've
 
 I am so fortunate that I am just one of the few to get gift(s) from them every year before Christmas. When I receive this Paksiw, I skip all my regular meals until the Paksiw runs out. So I have Paksiw at breakfast, lunch, dinner and even at Midnight snack. And on the following day, I repeat the routine.   
 I don't mind eating (Paksiw & Lechon) more than the usual during Yuletide Season. I just make it a point to burn all those fats that I've gained first thing at the start of the New Year. 
+
+How did I met these kind people? Simple, just by being the Driver, Nanny and Bodyguard of my eldest son Aikido lessons every Saturday. I got to know almost every one of them from the owner all the way to the Yaya.   
+And today, I am one of the Godfather (Ninong) to the owner's youngest grandchild named Andy.   
+It's a funny story I know but I am surely glad to meet them (not just the Lechon).
+
+So my advice to all of you... Go out and meet new people. Don't be shy or think negative about them. They are just people like you and me. Don't let them be the first them to greet you. Make it a habit to reach out to them firsts. Smiling and saying Hi is the typical icebreakers. Then the ball will start rolling after and soon you will have your new friend. 
+
+Like my story, I just smiled and said Hi... the next thing I know is got Paksiw in my hand!
