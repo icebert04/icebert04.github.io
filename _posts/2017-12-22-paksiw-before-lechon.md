@@ -8,4 +8,8 @@ My Answer: **"I got Friends from La Loma"**... La Loma is located on the southwe
 For those who doesn't know what a Paksiw looks like... Lechon Paksiw (or Paksiw) is made from leftover Lechon (whole roasted pig) cooked in a homemade Lechon sauce, vinegar, and simple spices.
 
 Normally, most people buy the Lechon first then they cooked the leftover and make it into a Paksiw. My story is different... My Friends from La Loma sends me the Paksiw first then after the Lechon. 
-I remember the time when I went to their place is La Loma. Their Lechon store is at the corner of the main street which is pretty much good and stratetig location in capturing new customers.
+I remember the time when I went to their place in La Loma. Their Lechon store is at the corner of the main street which is pretty much a good and stratetig location in capturing new customers. And while I was talking to the owner, I carefully observe how the Lechon (of different sizes) were line up in front of their store.   
+The motorists will then park their cars and order their preferred Lechon size. I was startled to see them all gone before the end of the day. 
+
+Sometimes when they have Lechon that are left at the end of the day (which is very rare) they make the leftovers as Paksiw and sell it to their customers. But even the Paksiw are like Meteorites from outer space that comes once in a blue moon.   
+I myself can testify to that. Their Paksiw is probably the best Paksiw that I've tried so far. The owner and her loyal sister whom everybody calls **"Mamita"** made this Paksiw with special ingredient. According to them, they cooked in diffirently that is why it is so rich and tasty. 
