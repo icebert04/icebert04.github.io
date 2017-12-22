@@ -9,7 +9,7 @@ My Answer: **"I got Friends from La Loma"**...
 La Loma is located on the southwest area of Quezon City and before Cebu gained popularity for its Lechon, La Loma has been dubbed as the Lechon Capital of the Philippines for many years.   
 For those who doesn't know what a Paksiw looks like... Lechon Paksiw (or Paksiw) is made from leftover Lechon (whole roasted pig) cooked in a homemade Lechon sauce, vinegar, and simple spices.
 
-Normally, most people buy the Lechon first then they cooked the leftover and make it into a Paksiw. My story is different... My Friends from La Loma sends me the Paksiw first then after the Lechon. 
+Normally, most people buy the Lechon first then they cooked the leftover and make it into a Paksiw.   My story is different... My Friends from La Loma sends me the Paksiw first then after the Lechon.   
 I remember the time when I went to their place in La Loma. Their Lechon store is at the corner of the main street which is pretty much a good and stratetic location in capturing new customers. And while I was talking to the owner, I carefully observe how the Lechon (of different sizes) were line up in front of their store.   
 The motorists will then park their cars and order their preferred Lechon sizes. I was startled to see them all gone before the end of the day. 
 
