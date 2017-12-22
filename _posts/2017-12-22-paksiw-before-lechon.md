@@ -17,7 +17,7 @@ Sometimes when they have Lechon leftovers at the end of the day (which is very r
 I myself can testify to that. Their Paksiw is probably the best Paksiw that I've tried so far. The owner and her loyal sister, whom everybody calls **"Mamita"**, made this Paksiw with special ingredients.   
 According to them, they cooked it diffirently that is why it is so rich and tasty. The sauce in their Paksiw is well blended with the meat and the skin is so soft and tender.
 
-I am so fortunate that I am just one of the few to get gift(s) from them every year before Christmas. When I receive this Paksiw, I skip all my regular meals until the Paksiw runs out. So I have Paksiw at breakfast, lunch, dinner and even at Midnight snack. And on the following day, I repeat the routine.   
+I am so fortunate that I am just one of the few to receive gift(s) from them every year before Christmas. When I receive this Paksiw, I skip all my regular meals until the Paksiw runs out. So I have Paksiw at breakfast, lunch, dinner and even at Midnight snack. And on the following day, I repeat the routine.   
 I don't mind eating (Paksiw & Lechon) more than the usual during Yuletide Season. I just make it a point to burn all those fats that I've gained first thing at the start of the New Year. 
 
 How did I met these kind people? Simple, just by being the Driver, Nanny and Bodyguard of my eldest son Aikido lessons every Saturday. I got to know almost every one of them from the owner all the way to the Yaya.   
