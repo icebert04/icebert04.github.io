@@ -26,4 +26,4 @@ It's a funny story I know, but I am inevitably glad to meet them (not just the L
 
 So my advice to all of you... Go out and meet new people. Don't be shy or think negative about them. They are just people like you and me. Don't let them be the first one to greet you. Make it a habit to reach out to them first. **Smiling and saying Hi** is the typical icebreakers. Then the ball will start rolling after and soon you will have your new friend(s). 
 
-Like my story, I just smiled and said Hi... the next thing I know is got Paksiw in my hand!
+Like in my story, I just smiled and said Hi... the next thing I know is I got this Paksiw in my hand!
