@@ -20,7 +20,7 @@ According to them, they cooked it differently that is why it is so rich and tast
 I am so fortunate that I am just one of the few to receive gift(s) from them every year before Christmas. When I receive this Paksiw, I skip all my regular meals until the Paksiw runs out. So I have Paksiw at breakfast, lunch, dinner and even in the midst of Midnight snack. And on the following day, I repeat the routine.   
 I don't mind eating (Paksiw & Lechon) more than the usual during Yuletide Season. I just make it a point to burn all those fats that I've gained first thing at the start of the New Year. 
 
-How did I met these good natured people? Simple, just by regularly being the escort of my eldest son on his weekly Aikido Saturday class. From there, I got to know almost every one of them from the owner all the way to the Yaya.   
+How did I met these kind hearted people? Simple, just by regularly being the escort of my eldest son on his weekly Aikido Saturday class. From there, I got to know almost every one of them from the owner all the way to the Yaya.   
 And today, I am one of the Godfather (Ninong) to the owner's youngest grandchild named Andy.   
 It's a funny story I know, but I am inevitably glad to meet them (not just the Lechon).
 
