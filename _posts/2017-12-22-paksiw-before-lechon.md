@@ -15,7 +15,7 @@ The motorists will then park their cars and order their preferred Lechon sizes. 
 
 Sometimes when they have Lechon leftovers at the end of the day (which is very rare) they make the Lechon scraps as Paksiw and sell it to their customers. But even the Paksiw are like Meteorites from outer space that comes once in a blue moon.   
 I myself can testify to that. Their Paksiw is probably the best Paksiw that I've tried so far. The owner and her loyal sister, whom everybody calls **"Mamita"**, made this Paksiw with special ingredients.   
-According to them, they cooked it diffirently that is why it is so rich and tasty. The sauce in their Paksiw is well blended with the meat and the skin is so soft and tender.
+According to them, they cooked it differently that is why it is so rich and tasty. The sauce in their Paksiw is well blended with the meat and the skin is so soft and tender.
 
 I am so fortunate that I am just one of the few to receive gift(s) from them every year before Christmas. When I receive this Paksiw, I skip all my regular meals until the Paksiw runs out. So I have Paksiw at breakfast, lunch, dinner and even at Midnight snack. And on the following day, I repeat the routine.   
 I don't mind eating (Paksiw & Lechon) more than the usual during Yuletide Season. I just make it a point to burn all those fats that I've gained first thing at the start of the New Year. 
