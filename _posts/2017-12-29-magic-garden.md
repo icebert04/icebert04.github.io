@@ -16,7 +16,7 @@ But due to insistent public demand, and to the request of their loyal and freque
 So Tito Mon and Tita Ester built a second Kubo House (bigger one and playing area for the kids), a basketball court, more trees and plants, a long dining area, and a what I call the "Great Wall of Fame" where they hang the pictures of my Grandparents, their children and their better half, their grandchildren and spouses, and their great grandchildren and soon to be their grooms or brides.
 
 What I find really fascinating is the Birdhouse. It's a home and shelter for bird species in the Philippines.
-When I'm there I make it point to look and peek inside at the birdhouse and check if there is a live one inside. I won't be suprise if the owners of the "Magic Garden" add more birdhouses which I think is a good idea most especially when those birds are tweeting and singing in the morning.
+When I'm there, I make it point to look and peek inside at the birdhouse and check if there is a live one inside. I won't be suprise if the owners of the "Magic Garden" add more birdhouses which I think is a good idea most especially when those birds are tweeting and singing in the morning.
 
 Believe me, everybody can have or create their own version of their sanctuary. I myself don't have the space but I call my balcony in my condo unit as my sanctuary. I always go out there in the morning, take my coffee, play with my spoiled Siamese Cat, look at the view of the small trees and our swimming pool before I take my regular morning swim.
 And in the afternoon, sometimes I still go out in my balcony to watch the sun set and when I'm lucky,
