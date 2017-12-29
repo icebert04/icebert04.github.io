@@ -26,7 +26,7 @@ You too can have your very own sanctuary. It can be your backyard or your fronty
 You can purchase a small piece of land in the province. That too can be your sanctuary.   
 It doesn't have to be someting you own. I go to my province in Batangas and regularly go to the nearest beach. I go there usually in the morning, swim and check the fishes and corals, then go back home. I don't own the land but I still considered it as my extension of my sanctuary (for a very small entrance fee).
 
-Stress can affect your body, your thoughts & feelings, as well as your behavior. To bad I might add that you when you leave your Stress unchecked, it can contribute to many health problems.   
+Stress can affect your body, your thoughts & feelings, as well as your behavior. To bad I might add that when you leave your Stress unchecked, it can contribute to many health problems.   
 Having a sancuary and consistency will certainly eases that. It will give you peace and serenity. Quietude... where you can take away all the negative aspects in you. It doesn't cost you big deal of money. There is no gasoline, plane rides, expensive hotels and pesky locals selling "not so important stuff" to you.   
 You just wake up in the morning and head directly to your sacred place and say "This is Life"!
 
