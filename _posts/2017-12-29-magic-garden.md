@@ -13,7 +13,7 @@ The couple started first with a small Kubo House (Nipa Hut), a swing, and a sand
 
 But due to insistent public demand, and to the request of their loyal and frequent visitors. My uncle and aunt noticed that they need more space for their guests to dine in. So they bought the adjoining piece of land to add more space for their immediate family and to their incessant and unrelenting guests.
 
-So Tito Mon and Tita Ester built a second Kubo House (bigger one and playing area for the kids), a basketball court, more trees and plants, a long dining area, and a what I call the "Great Wall of Fame" where they hang the pictures of my Grandparents, their children and their better half, their grandchildren and spouses, and their great grandchildren and soon to be their grooms or brides.
+So Tito Mon and Tita Ester built a second Kubo House (different one and playing area for the kids), a basketball court, more trees and plants, a long dining area, and a what I call the "Great Wall of Fame" where they hang the pictures of my Grandparents, their children and their better half, their grandchildren and spouses, and their great grandchildren and soon to be their grooms or brides.
 
 What I find really fascinating is the Birdhouse. It's a home and shelter for bird species in the Philippines.
 When I'm there, I make it point to look and peek inside at the birdhouse and check if there is a live one inside. I won't be surprise if the owners of the "Magic Garden" add more birdhouses which I think is a good idea most especially when those birds are tweeting and singing in the morning.
