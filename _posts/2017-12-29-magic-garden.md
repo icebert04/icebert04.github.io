@@ -19,3 +19,7 @@ What I find really fascinating is the birdhouse. It's a home and shelter for bir
 
 Believe me, everybody can have or create their own version of their sanctuary. I myself don't have the space but I call my balcony in my condo unit as my sanctuary. I always go out there in the morning, take my coffee, play with my spoiled Siamese Cat, look at the view of the small trees and our swimming pool before I take my regular morning swim.
 And in the afternoon, sometimes I still go out in my balcony to watch the sun set and when I'm lucky I do see some Maya birds in my balcony jumping happily and eating the leftovers of my cat.
+
+You too can have your very own sanctuary. It can be your backyard or your frontyard. It can be the vacant lot that you can rent from the owner who has no intention of using it. 
+You can purchase a small piece of land in the province. That too can be your sanctuary.   
+It doesn't have to be someting you own. I go to my province in Batangas and regularly go to the nearest beach. I go there usually in the morning, swim and check the fishes and corals, then go back home. I don't own the land but I still considered it as my extension of my sanctuary (for a very small entrance fee).
