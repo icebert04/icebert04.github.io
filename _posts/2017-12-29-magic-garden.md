@@ -30,4 +30,4 @@ Stress can affect your body, your thoughts & feelings, as well as your behavior.
 Having a sancuary and consistency will certainly eases that. It will give you peace and serenity. Quietude... where you can take away all the negative aspects in you. It doesn't cost you big deal of money. There is no gasoline, plane rides, expensive hotels and pesky locals selling "not so important stuff" to you.   
 You just wake up in the morning and head directly to your sacred place and say "This is Life"!
 
-It can just be you or you can spend it together with your special someone, your kids, your dog, your boss, your mountaineering group, or anybody that you can think of. It will be a place to remembered and wondered at. All you gotta do is Believe in Magic!
+It can just be you or you can spend it together with your special someone, your kids, your dog, your boss, your mountaineering group, or anybody that you can think of. It will be a place to remember and wondered at. All you gotta do is **Believe in Magic**!
