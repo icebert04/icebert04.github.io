@@ -18,4 +18,4 @@ So Tito Mon and Tita Ester built a second Kubo House (bigger one and playing are
 What I find really fascinating is the birdhouse. It's a home and shelter for bird species in the Philippines. When I'm there I make it point to look and peek inside at the birdhouse and check if their is a live one in their. I won't be suprise if the owners of the "Magic Garden" add more birdhouse which I think is a good idea most especially when those birds are tweeting and singing in the morning.
 
 Believe me, everybody can have or create their own version of their sanctuary. I myself don't have the space but I call my balcony in my condo unit as my sanctuary. I always go out there in the morning, take my coffee, play with my spoiled Siamese Cat, look at the view of the small trees and our swimming pool before I take my regular morning swim.
-And in the afternoon, sometimes I still go out in my balcony to watch the sun set and when I'm lucky I do see some 
+And in the afternoon, sometimes I still go out in my balcony to watch the sun set and when I'm lucky I do see some Maya birds in my balcony jumping happily and eating the leftovers of my cat.
