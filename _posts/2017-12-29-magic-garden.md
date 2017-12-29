@@ -11,7 +11,7 @@ But no, you don't need to go out of your home to obtain this. All you need is a 
 My Tito Mon and Tita Ester did exactly that in their backyard several years ago. They were lucky that their land have trees to provide shade from the heat of the sun and protection from the sprinkles of rain during the rainy season. 
 The couple started first with a small Kubo House (Nipa Hut), a swing, and a sandbox for their grandchildren. They also built a cute private room in their backyard so that the couple doesn't have to go up the 2nd floor and to have that room as a playing/resting area for all the relatives whenever  we have family gatherings
 
-But due to insistent public demand, and to the request of their loyal and frequent visitors. My uncle and aunt noticed that they need more space for their guest to dine in. So they bought the adjoining piece of land to add more space for their immediate family and to their incessant and unrelenting guests.
+But due to insistent public demand, and to the request of their loyal and frequent visitors. My uncle and aunt noticed that they need more space for their guests to dine in. So they bought the adjoining piece of land to add more space for their immediate family and to their incessant and unrelenting guests.
 
 So Tito Mon and Tita Ester built a second Kubo House (bigger one and playing area for the kids), a basketball court, more trees and plants, a long dining area, and a what I call the "Great Wall of Fame" where they hang the pictures of my Grandparents, their children and their better half, their grandchildren and spouses, and their great grandchildren and soon to be their grooms or brides.
 
