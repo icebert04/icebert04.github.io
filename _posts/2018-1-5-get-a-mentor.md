@@ -36,9 +36,10 @@ I think we should all use it... otherwise, what the hell are we living here for?
 
 
 There more things that Andy taught me but I have to stop it from there. If you want to know more or get to meet Andy, you can send me a private message through my social media.   
-But sincerely, there a lot of Andy's out there and it's entirely up to you to find that person. Some will fall into your lap and some you have to really dig down to get it. But the desire (to get a mentor) should always be there.   
-You can have multiple mentors, teachers, coach, counsellors, guides or whatever you want to call it. As long as it helps you improve yourself and your life.
+But sincerely, there are a lot of Andy's out there and it's entirely up to you to find that person. Some will fall into your lap and some you have to really dig down to get it. But the desire (to get a mentor) should always be there.   
+You can have multiple mentors, teachers, coaches, counsellors, guides or whatever you want to call them. As long as it helps you improve yourself and your life.
 
 And when you do meet that mentor of yours, don't forget to send me a message and share me your inspiring story about you and your mentor. 
-Being mentored is not only what we yearn for but what we need to learn that we are not perfect and we still need to a lot of thing to improve in life.
+
+Being mentored is not only what we yearn for but what we need to learn and be inform that we are not perfect and we still need to do a lot of things to improve in our lifetime.
 
