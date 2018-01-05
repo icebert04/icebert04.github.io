@@ -23,15 +23,16 @@ I met Andy last 2014 and since then I can say to myself that I'm a better, calme
 Here are some of those...
 
 1.) **DEVELOP YOUR INNER CHI** = Ch'i or Qi is a Chinese word of Life Energy. Each one of us has it but sadly, most of us doesn't know or not interested in utilizing it. Developing your Chi can be a way to heal your body – both physically and mentally – as well as a path to reaching your full potential.   
-Do you know "The Force" in Star Wars?   
+Do you know **"The Force"** in Star Wars?   
 Believe me, that is true... from a certain point of view.
 
-2.) BLOCK OUT ALL THE NEGATIVE = Although there is no escape from it, my mentor taught me how to minimize the negative and not get bothered by it. Andy taught me to read people's minds and why they act incorrectly. There is so much greed (material things), envy, and hatred in this world that most people get infected by it. I sometimes wonder if the Yin and Yang (陰陽 yīnyáng, "positive-negative")is still balanced.   
+2.) **BLOCK OUT ALL THE NEGATIVE** = Although there is no escape from it, my mentor taught me how to minimize the negative and not get bothered by it. Andy taught me to read people's minds and why they act incorrectly. There is so much greed (material things), envy (being selfish), and hatred (road rage) in this world that most people get infected by it.   
+I sometimes wonder if the Yin and Yang (陰陽 yīnyáng, "positive-negative")is still balanced.   
 But I have to believe that nature will allow the Yang (Positive) rise again into this world.
 
-3.) USE YOUR GIFTS = Let's face it, the majority of our populace won't be popular and famous singers and celebrities. But all of us has talents. Each one of us has a gift.   
+3.) **USE YOUR GIFTS** = Let's face it, the majority of our populace won't be popular and famous singers and celebrities. But all of us has talents. Each one of us has a gift.   
 Andy saw my gifts and talents and encouraged me and still continuing to convince me to use that gift to it's full potential.   
-I think we should use it... otherwise, what the hell are we living here for??
+I think we should all use it... otherwise, what the hell are we living here for??
 
 
 There more things that Andy taught me but I have to stop it from there. If you want to know more or get to meet Andy, you can send me a private message through my social media.   
