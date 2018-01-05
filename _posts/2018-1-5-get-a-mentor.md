@@ -37,7 +37,7 @@ I think we should all use it... otherwise, what the hell are we living here for?
 
 There are more things that Andy taught me but I have to stop it from there. If you want to know more or get to meet Andy, you can send me a private message through my social media.   
 But sincerely, there are a lot of Andy's out there and it's entirely up to you to find that person. Some will fall into your lap and some you have to really dig down to get it. But the desire (to get a mentor) should always be there.   
-You can have multiple mentors, teachers, coaches, counsellors, guides or whatever you want to call them. As long as it helps you improve yourself and your life.
+You can have multiple mentors, teachers, coaches, counselors, guides or whatever you want to call them. As long as it helps you improve yourself and your life.
 
 And when you do meet that mentor of yours, don't forget to send me a message and share me your inspiring story about you and your mentor. 
 
