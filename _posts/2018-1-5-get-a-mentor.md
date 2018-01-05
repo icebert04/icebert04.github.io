@@ -15,4 +15,11 @@ It is like courting a girl. You need to put your best foot forward and give the 
 I'm just lucky when I met mine. I never expected a mentor coming from a 78 year old guy. My mentor's name is "Andy", a retired Filipino-Chinese who used to be a entrepreneur from the automobile industry. He is now living with his children and rotating his stay/visit from one house to the other.
 
 It was love at first sight in the beginning. In fact, I find him quite annoying from the first time I met him. Andy ask too many questions and gives so many advices (like I needed that).   
-But overtime, I realized that his pesky questions are more of "Probing Questions". He did that because he wants to know me more. 
+But overtime, I realized that his pesky questions are more of "Probing Questions". He did that because he wants to know me more. He meticulously inspected my flaws, imperfections and bad habits.   
+In other words, Andy wants to change me... for the better!
+
+I met Andy last 2014 and since then I can say to myself that I'm a better, calmer and wiser person than before. There is a lot of positive things that I received from him but I will only name a few or  else this article will turn into a novel. 
+
+Here are some of those...
+
+
