@@ -16,7 +16,7 @@ I'm just lucky when I met mine. I never expected a mentor coming from a 78 year 
 
 It was not love at first sight in the beginning. In fact, I find him quite annoying from the onset. Andy asked too many questions and gave so many advices (like I needed that). In short, he was like a Pest!   
 But overtime, I realized that his pesky questions are more of **"Probing Questions"**. He did that because he wants to know me more. He meticulously inspected my flaws, imperfections and bad habits.   
-In other words,**Andy wants to change me... for the better!**
+In other words, **Andy wants to change me... for the better!**
 
 I met Andy last 2014 and since then I can say to myself that I'm a better, calmer and wiser person than before. There is a lot of positive things that I received from him but I will only name a few or  else this article will turn into a novel. 
 
