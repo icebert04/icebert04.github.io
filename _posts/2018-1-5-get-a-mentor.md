@@ -10,7 +10,7 @@ No matter what it is, find someone who is an expert and has experience and learn
 
 Okay, what if you find that mentor but you hardly know that person. How will you approach that person? What is the best way to introduce yourself? My suggestion is this...   
 Take that person out for lunch. Dinner would be nice too but a cup of coffee will also suffice. The important thing is you treat them out with consistency like every Wednesday until that person gets comfortable with you.   
-It is like courting a girl. You need to put your best foot forward and give the "**Moon and Stars**" before getting anything. If that what is takes... then do it! Take action!
+It is like courting a girl. You need to put your best foot forward and give **"The Moon and The Stars"** before getting anything. If that what is takes... then do it! Take action!
 
 I'm just lucky when I met mine. I never expected a mentor coming from a 78 year old guy. My mentor's name is **"Andy"**, a retired Filipino-Chinese who used to be a entrepreneur from the automobile industry. He is now living with his children and rotating his stay/visit from one house to the other.
 
