@@ -14,7 +14,7 @@ It is like courting a girl. You need to put your best foot forward and give **"T
 
 I'm just lucky when I met mine. I never expected a mentor coming from a 78 year old guy. My mentor's name is **"Andy"**, a retired Filipino-Chinese who used to be a entrepreneur from the automobile industry. He is now living with his children and rotating his stay/visit from one house to the other.
 
-It was not love at first sight in the beginning. In fact, I find him quite annoying from the onset. Andy asked too many questions and gave so many advices (like I needed that). In short, he was like a Pest!   
+It was not love at first sight in the beginning. In fact, I find him quite annoying from the onset. Andy asked too many questions and gave so many advice (like I needed that). In short, he was like a Pest!   
 But overtime, I realized that his pesky questions are more of **"Probing Questions"**. He did that because he wants to know me more. He meticulously inspected my flaws, imperfections and bad habits.   
 In other words, **Andy wants to change me... for the better!**
 
