@@ -27,7 +27,7 @@ Do you know **"The Force"** in Star Wars?
 Believe me, that is true... from a certain point of view.
 
 2.) **BLOCK OUT ALL THE NEGATIVE** = Although there is no escape from it, my mentor taught me how to minimize the negative and not get bothered by it. Andy taught me to read people's minds and why they act incorrectly. There is so much greed (material things), envy (being selfish or SELFIE SELFIE), and hatred (road rage) in this world that most people get infected by it.   
-I sometimes wonder if the Yin and Yang (陰陽 yīnyáng, "positive-negative")is still balanced.   
+I sometimes wonder if the Yin and Yang (陰陽 yīnyáng, "positive-negative") is still balanced.   
 But I have to believe that nature will allow the Yang (Positive) rise again into this world.
 
 3.) **USE YOUR GIFTS** = Let's face it, the majority of our populace won't be popular and famous singers and celebrities. But all of us has talents. Each one of us has a gift.   
