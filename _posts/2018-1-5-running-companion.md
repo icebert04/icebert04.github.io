@@ -28,4 +28,4 @@ I'm seriously considering getting a JRT but I'm not in a rush to have one in a f
 
 But when everything is clear, then that's the time to get one.   
 I can imagine it right now... me and my family opening a gift next Chrismas eve and the content is a very cute and intelligent Jack Russell Terrier. 
-That will certainly make our Christmas merrier from a terrier!
+That will certainly make our **Christmas merrier from a terrier**!
