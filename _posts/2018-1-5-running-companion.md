@@ -6,7 +6,7 @@ published: true
 When I exercise, I always do Swimming. I also intend to do Biking but never Running. Maybe it's just me, but I find it boring.   
 But what if I get a running companion. Someone who will force me to jog regulary... Hhhmmmm....
 
-Introducing the Jack Russell Terrier! Developed in England some 200 years ago to hunt foxes, the Jack Russell Terrier (Jacks or JRT for short) are the biggest dogs you'll ever meet in such tiny package. They can run all day and keep coming back for more. They have tons of energy and won't be satisfied by a sedate walk around the block. This breed strictly needs 30 to 45 minutes of daily vigorous exercise.... sometime even more!
+Introducing the Jack Russell Terrier! Developed in England some 200 years ago to hunt foxes, the Jack Russell Terrier (Jacks or JRT for short) are the biggest dogs you'll ever meet in such tiny package. They can run all day and keep coming back for more. They have tons of energy and won't be satisfied by a sedate walk around the block. This breed strictly needs 30 to 45 minutes of daily vigorous exercise.... sometimes even more!
 
 So the Jack Russell terrier is going to be **"The Answer"** for my jogging dilemma. The dog will force me to go outdoors to walk him (or run with him). The JRT will be my **"Alarm Clock"** in the morning to take my  morning run.
 
