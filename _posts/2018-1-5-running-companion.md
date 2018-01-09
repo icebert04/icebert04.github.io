@@ -16,3 +16,6 @@ Before, I was thinking of getting other popular breeds like the Pug or the Caval
 And as proof of this breed's purpose, even our famous Philippine boxer Manny Pacquiao has a JRt who was running with our champ since 2006. The dog (whom they call Pacman)is no stranger to his master’s morning road runs up tough trails. In fact, he’s one of the few who could even keep up with boxing’s only eight-division champion’s from start to finish, and that’s no easy feat.   
 Just ask some of Manny Pacquiao’s jogging buddies in Los Angeles who couldn’t even keep pace with the Filipino boxer.
 
+Rodents (rats and mice) ahve always been a problem to farm owners in the Philippines. Losses from these vermin are measured in a lot of pesos each year.   
+It can be a major cost factor on the Poultry farms because of the food that they eat and spoil with faeces and urine, the damage they do to the housing and equipment. Further, the diseases they may carry can result in flock health problems, staff health problems and/or food safety concerns regarding the products produced on the farm.   
+So how do they solve this problem.... Ding, ding, ding.... Call in the Jack Russell terrier. 
