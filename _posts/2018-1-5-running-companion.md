@@ -24,3 +24,4 @@ I might breed Jack Russell terriers if ever I want to go back to Poultry farming
 I'm seriously considering getting a JRT but I'm not in a rush to have one in a flash. I want to thoroughly seach and study the available breeders and kennels in our country. I want to get advice, tips and suggestions from a reputable Jack Russell terrier breeder. I also want to talk to my family first on how we can take care of the dog and introduce him/her to our Siamese cat.   
 
 But when everything is clear, then that's the time to get one. I can imagine it right now... me and my family opening a gift next Chrismas eve and the content is a very cute and intelligent Jack Russell Terrier. 
+That will certainly make our Christmas merrier! 
