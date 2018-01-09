@@ -15,7 +15,7 @@ And since this breed doesn't run out of batteries, my kids and maybe my wife wil
 Before, I was thinking of getting other popular breeds like the Pug or the Cavalier King Charles Spaniel. Though this breeds are cute and nice to be with, they won't be helping me and my family exercise like the Jack Russell terrier.
 
 And as proof of this breed's purpose, even our famous Philippine boxer **Manny Pacquiao** has a JRT who was running with him since 2006.   
-The dog (whom they call Pacman)is no stranger to his master’s morning road runs up tough trails. In fact, he’s one of the few who could even keep up with boxings champion’s form from start to finish, and that’s no easy feat.   
+The dog (whom they call Pacman) is no stranger to his master’s morning road runs up tough trails. In fact, he’s one of the few who could even keep up with boxings champion’s form from start to finish, and that’s no easy feat.   
 Just ask some of Manny Pacquiao’s jogging buddies in Los Angeles who couldn’t even keep pace with the Filipino boxer.
 
 Rodents (rats and mice) have always been a problem to farm owners in the Philippines. Losses from these vermin are measured in a lot of pesos each year.   
