@@ -19,7 +19,7 @@ The dog (whom they call Pacman) is no stranger to his master’s morning road ru
 Just ask some of Manny Pacquiao’s jogging buddies in Los Angeles who couldn’t even keep pace with the Filipino boxer.
 
 Rodents (rats and mice) have always been a problem to farm owners in the Philippines. Losses from these vermin are measured in a lot of pesos each year.   
-It can be a major cost factor in Poultry farms because of the food that they eat and spoil with faeces and urine, the damage they do to the housing and equipment. Further, the diseases they may carry can result in flock health problems, staff health problems and/or food safety concerns regarding the products produced on the farm.   
+It can be a major cost factor in Poultry farms because of the food that they eat and spoil with feces and urine, the damage they do to the housing and equipment. Further, the diseases they may carry can result in flock health problems, staff health problems and/or food safety concerns regarding the products produced on the farm.   
 So how do they solve this problem.... Ding, ding, ding.... Call in the Jack Russell terrier.   
 Would you believe that they too are considered one of the best **Rat-Killing breeds**. These terriers were bred to hunt vermin from rats even up to snakes. Their short, stocky frames and legs allowed them to **"Go to Ground"** - and chase those pesky little monsters.
 Heck, I might consider breeding Jack Russell terriers if ever I want to go back to Poultry farming again. 
