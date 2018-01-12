@@ -28,7 +28,7 @@ But I knew that Tin-Tin is not mine so I observed from afar and gave her some sp
 
 3.) **GIRL NO. 3 (MS. CART-WHEEL)** =  This 3rd girl came out of nowhere. She is no relation whatsoever. She just pop-up in our front door using her skills of doing the cart wheel. Cart wheel is a acrobatic movement that performs a circular sideways handspring with the arms and legs extended (like spokes of a wheel).   
 This girl has more energy than the Energizer Bunny. Her batteries never runs out, and she got more stories to share and tell than most people I've met in my entire life.   
-Her name is Casey. A member of the Cheerleading squad in St. Scholastica Manila. She is actually my son's playmate. They used to play in the playground together, do Badminton, and sometimes fight in every Playstation games that I know off.   
+Her name is Casey. A member of the Cheerleading squad in St. Scholastica Manila. She is actually my son's playmate. They used to play in the playground together, do Badminton, and sometimes fight in every PlayStation games that I know off.   
 In the course of time, I eventually became close to this very active girl that we do regularly swim and race every now and then. 
 
 
