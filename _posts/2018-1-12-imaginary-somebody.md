@@ -24,9 +24,9 @@ Cheri is now 26 years old, working as a Finance assistant in a Multinational com
 I was always amazed about Tin-Tin's dresses, shoes, shoulder bags, and most especially her headbands ponytails, hairclips and pigtails. 
 But I knew that Tin-Tin is not mine so I observed from afar and gave her some space especially now that is she is 18 and madly in love with her boyfriend. 
 
-3.) GIRL NO. 3 (MS. CARTWHEEL) =  This 3rd girl came out of nowhere. She is no relation whatsoever. She just pop-up in our front door using her skills of doing the cart wheel. Cart wheel is a acrobatic movement that performs a circular sideways handspring with the arms and legs extended (like spokes of a wheel).   
+3.) GIRL NO. 3 (MS. CART-WHEEL) =  This 3rd girl came out of nowhere. She is no relation whatsoever. She just pop-up in our front door using her skills of doing the cart wheel. Cart wheel is a acrobatic movement that performs a circular sideways handspring with the arms and legs extended (like spokes of a wheel).   
 This girls has more enery than the Energizer Bunny. Her batteries never runs out, and she gots more stories to share and tell than most people I've met.   
-Her name is Casey. A member of the Cheerleading squad in St. Scholastica Manila. She is actually my son's playmate. They used to play in the playground together, do Badminton, and sometimes fight in Playstation games.   
+Her name is Casey. A member of the Cheerleading squad in St. Scholastica Manila. She is actually my son's playmate. They used to play in the playground together, do Badminton, and sometimes fight in every Playstation games that I know off.   
 In the course of time, I eventually became close to this very active girl that we do regularly swim and race every now and then. 
 
 
