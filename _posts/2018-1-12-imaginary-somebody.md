@@ -8,7 +8,7 @@ People were born Greedy! All of us have a **"Overwhelming Desire for More"**! We
 I too have that same negative trait... the longing for those I didn't have. Although I am not into material things, there is still something I always crave for... **A Baby Girl**! 
 
 Don't get me wrong, I am very happy and delighted that I am blessed with a loving wife and 2 handsome boys. Life is really good! But why is that I still look for a Baby Girl?   
-Maybe my family (Isberto side), bear more sons than daughters. My Grandfather has 4 sons, My Dad has me only, and I have 2 boys. Did you see the pattern? That is "7 Dudes in 3 Generations"... where did the girls go?
+Maybe my family (Isberto side), bear more sons than daughters. My Grandfather has 4 sons, My Dad has me only, and I have 2 boys. Did you see the pattern? That is **"7 Dudes in 3 Generations"**... where did the girls go?
 
 I did try (to have a Girl) but obviously the results is not as promising like what I've dream of.
 
