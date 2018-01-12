@@ -33,7 +33,7 @@ In the course of time, I eventually became close to this very active girl that w
 
 
 There are other young girls that I became close with but these 3 have been the most influential. These 3 have somewhat filled in my longing and desire of having a daughter.   
-A shut-out too to the parents of these 3 for the good genes and upbringing they have generously contributed.   
+A shout-out too to the parents of these 3 for the good genes and upbringing they have generously contributed.   
 Who needs a daughter when you can have a Imaginary Somebody that can, in some way, provide that for you.
 
 Imaginary Somebody can apply to everyone. It doesn't have to be always a daughter. It can be a Imaginary friend or boyfriend. It can be anything that you longed for.   
