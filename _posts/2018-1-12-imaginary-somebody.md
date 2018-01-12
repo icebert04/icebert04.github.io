@@ -15,4 +15,8 @@ I did try (to have a Girl) but obviously the results is not as promising like wh
 Luckily, I accidentally had those what I call "Imaginary Somebody". Someone who is not yours but you can pretend that somewhat it is real. I had the luxury to have not only 1 but 3 Imaginary Somebody through the course of my married life.   
 Let's start with the first...
 
-1.) GIRL NO. 1 (SPAGHETTI GIRL) = 
+1.) GIRL NO. 1 (SPAGHETTI GIRL) = Her name is Cheri. A cousin of my wife who grew in our hometown in Batangas. I treated her not as a like a daughter but more of a little sister because our age gap is not that big (17 years).   
+I remember Cheri before were she used to dance along with her other cousins to the song Spaghetti song of the infamous disbanded group Sexbomb Girls. This charming girl would dance on the cemented road barefooted all throughout the morning.   
+Then her Dad will call her since it is past 12 noon. Cheri would eat as fast as possible then rush out again to dance the whole afternoon.   
+Cheri is now 26 years old, working as a Finance assistant in a Multinational company. She now have big responsibilities but we do see each other in Batangas during holidays and special occasions.
+
