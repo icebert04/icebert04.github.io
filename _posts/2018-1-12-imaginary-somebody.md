@@ -30,5 +30,12 @@ Her name is Casey. A member of the Cheerleading squad in St. Scholastica Manila.
 In the course of time, I eventually became close to this very active girl that we do regularly swim and race every now and then. 
 
 
+There are other young girls that I became close with but these 3 have been the most influential. These 3 have somewhat filled in my longing and desire of having a daughter.   
+A shut-out too to the parents of these 3 for the good genes and upbringing they have generously contributed.   
+Who needs a daughter when you can have a Imaginary Somebody that can in some way provide that for you.
 
+Imaginary Somebody can apply to everyone. It doesn't have to be always a daughter. It can be a Imaginary friend or boyfriend. It can be anything that you longed for.   
+Just make sure that it is legal and doesn't hurt anyone then you are free to have a Imaginary Somebody.
+
+It doesn't only happens in movies.... it also applies in real life!
 
