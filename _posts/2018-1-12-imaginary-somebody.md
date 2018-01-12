@@ -21,7 +21,7 @@ Then her Dad will call her since it is past 12 noon. Cheri would go home, eat he
 You can just imagine what her foot looks like after...
 Cheri is now 26 years old, working as a Finance assistant in a Multinational company. She now have big responsibilities but we do see each other in Batangas during holidays and special occasions.
 
-2.) **GIRL NO. 2 (MY INAANAK)** = Inaanak is God-daughter in English. Kristine or Tin-Tin is my wife's god-daugher so in essence Tin-Tin is also my Inaanak. I met Tin-Tin even before having my first born son. She is such doll and we often "Borrow" that cute little girl from her parents and bring her in our home in Manila. This is where I experienced that girls are more sweeter than boys. They are sweet to their parents (especially to their fathers).   
+2.) **GIRL NO. 2 (MY INAANAK)** = Inaanak is God-daughter in English. Kristine or Tin-Tin is my wife's god-daugher so in essence Tin-Tin is also my Inaanak. I met Tin-Tin even before having my first born son. She is such doll and we often "Borrow" that cute little girl from her parents and bring her in our home in Manila. This is where I experienced that girls are more sweeter than boys. They are sooo sweet to their parents (especially to their fathers).   
 I was always amazed about Tin-Tin's dresses, shoes, shoulder bags, and most especially her headbands ponytails, hairclips and pigtails. 
 But I knew that Tin-Tin is not mine so I observed from afar and gave her some space especially now that is she is 18 and madly in love with her boyfriend. 
 
