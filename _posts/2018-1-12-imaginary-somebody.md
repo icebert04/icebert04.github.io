@@ -20,4 +20,7 @@ I remember Cheri before were she used to dance along with her other cousins to t
 Then her Dad will call her since it is past 12 noon. Cheri would eat her lunch as fast as possible then would rush out again to dance the rest of the afternoon.   
 Cheri is now 26 years old, working as a Finance assistant in a Multinational company. She now have big responsibilities but we do see each other in Batangas during holidays and special occasions.
 
-2.) GIRL NO. 2 ()
+2.) GIRL NO. 2 (MY INAANAK) = Inaanak is Goddaughter in English. Kristine or Tin-Tin is my wife's goddaugher so in essence Tin-Tin is also my Inaanak. I met Tin-Tin even before having my first born son. She is such doll and we often "Borrow" that cute little girl from her parents and bring her in our home in Manila. This is where I experience that girls are more sweeter than boys to their parents (especially to their fathers).   
+I was always amazed about Tin-Tin's dresses, shoes, shoulder bags, and most especially her headbands ponytails, hairclips and pigtails. 
+But I knew that Tin-Tin is not mine so I observed from afar and gave her some space especially now that is she is 18 and madly in love with her boyfriend. 
+
