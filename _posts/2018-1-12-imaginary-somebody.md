@@ -39,5 +39,6 @@ Who needs a daughter when you can have a Imaginary Somebody that can, in some wa
 Imaginary Somebody can apply to everyone. It doesn't have to be always a daughter. It can be a Imaginary friend or boyfriend. It can be anything that you longed for.   
 Just make sure that it is legal and doesn't hurt anyone then you are free to have a Imaginary Somebody.
 
-This doesn't only happens in movies.... it also applies in real life!
+This doesn't only happens in movies.... it also applies in real life!   
+How about you? Do you have a Imaginary Somebody??
 
