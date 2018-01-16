@@ -21,6 +21,11 @@ Eventually, I grew up and had my share of employees whom I think I treated well.
 Ise was one of the guys who managed my Poultry way back when I still had that business. Today, he just takes care of what is left behind. Like this motorcycle with sidecar that I bought several years ago (We call it a Bangkulong).   
 Because we treat each other as family members, Ise makes sure that this small vehicle stays in good condition. If I treated him like trash, I'm quite sure my motorcylce will be detoriated with rust. I won't be surprised if it will turn into scrap ready to be pick up as junk.
 
+Ise also looks after the land that I inherited from my Lola (Grandmother). Takes care of some of the livestock, mahogany trees and few fruit bearing trees. AS of the moment, both him and I are thinking of a new agri-business venture that will benefit us both.   
+I have to say that he is a worthy and dependable employee.
+
+
+
 
 
 
