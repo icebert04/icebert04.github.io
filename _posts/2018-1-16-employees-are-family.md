@@ -25,7 +25,9 @@ If you look closely at the photo, the motorcycle stills looks brand new.
 Ise also looks after the land that I inherited from my Lola (Grandmother). Takes care of some of the livestocks, mahogany trees and few fruit bearing trees. As of the moment, both him and I are thinking of a new agri-business venture that will benefit us both.   
 I have to say that he is a worthy and dependable employee.
 
-
+I know I am not the only one who have a reliable guy like Ise. There are lots of people who are living in the city or the provinces that have their own version of Ise.   
+But those who doesn't and had troubles keeping their helpers... it is not too late to change your ways. Be good and good will come back to you... sometimes in ten fold. 
+Treat them like family. Just try it and maintain it. You will then fully know the true meaning of LOYALTY!
 
 
 
