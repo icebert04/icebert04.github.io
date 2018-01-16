@@ -28,7 +28,7 @@ Ise also looks after the land that I inherited from my Lola (Grandmother). Takes
 I have to say that he is a worthy and dependable employee.
 
 I know I am not the only one who have a reliable guy like **Ise**. There are lots of people who are living in the city or the province that have their own version of **Ise**.   
-But those who doesn't and had troubles keeping their helpers... it is not too late to change your ways. Be good and good will come back to you... sometimes in ten fold. 
+But those who doesn't and had troubles keeping their helpers... it is not too late to change your ways. Be good and good will come back to you... sometimes in ten fold.   
 Treat them like family. Just try it and maintain it. You will then fully know the true meaning of **LOYALTY!**
 
 
