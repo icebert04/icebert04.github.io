@@ -21,7 +21,7 @@ Eventually, I grew up and had my share of employees whom I think I treated well.
 Like me, Ise's family also originated from the same province. He is what I call **"Tao sa Una"** (People who came from a family clan with good dignity and respect).
 
 Ise was one of the guys who managed my Poultry way back when I still had that business. Today, he just takes care of what is left behind. Like this motorcycle with sidecar that I bought several years ago (We call it a Bangkulong).   
-Because we treat each other as family members, Ise makes sure that this small vehicle stays in good condition. If I treated him like trash, I'm quite sure my motorcycle will be detoriated with rust. I won't be surprised if it will turn into scrap ready to be pick up as junk.   
+Because we treat each other as family members, Ise makes sure that this small vehicle stays in good condition. If I treated him like trash, I'm quite sure my motorcycle will be deteriorated with rust. I won't be surprised if it will turn into scrap ready to be pick up as junk.   
 If you look closely at the photo, the motorcycle stills looks brand new.
 
 Ise also looks after the land that I inherited from my Lola (Grandmother). Takes care of some of our livestocks, mahogany trees and few fruit bearing trees. As of the moment, both him and I are thinking of a new agri-business venture that will benefit us both.   
