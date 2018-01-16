@@ -14,6 +14,8 @@ So that is one factor... Proximity. Make sure that you're employees are living n
 Another thing is that employees feel that they are degraded. Like their job is somewhat demeaning. For example, if you are a Yaya.. would you like to wear a Yaya uniform or the regular casual clothes?  or if you are a Driver... would you like your Boss to tell you to wait in the Driver's lounge or you have to freedom to roam around the mall until your Boss calls you?   
 Do you see what I'm getting at?
 
+I was trained and guided by my elders in my clan to treat all employees as family members. I even go try check how they are living and believe me.... it is not as hard as it looks. They are also happy like you and I (even without the material things).
+
 
 
 
