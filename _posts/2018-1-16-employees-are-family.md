@@ -10,7 +10,7 @@ I was raised in a family were I saw that their staff, employees, katiwala (trust
 One thing why it was effective was the proximity. Laborers live just a few minutes away from my family's residence. Our workers get to see their family everyday. They don't work long hours and most important of all... they are happy!   
 Maybe that is one of the reason why maids in Manila or in big cities leave their boss (or Amo) very early in their stay. They simply just miss their families in their province.
 So that is one factor... **PROXIMITY**.   
-Make sure that you're employees are living near their families or better yet bring their families to them... especially if you feel that the employees is worth keeping.
+Make sure that you're employees are living near their families or better yet bring their families to them... especially if you feel that your employee is worth keeping.
 
 Another thing is that employees feel that they are **DEGRADED**. Like their job is somewhat demeaning. For example, if you are a Yaya.. would you like to wear a Yaya uniform or the regular casual clothes?  or if you are a Driver... would you like your Boss to tell you to wait in the Driver's lounge or you have to freedom to roam around the mall until your Boss calls you?   
 Do you see what I'm getting at?
