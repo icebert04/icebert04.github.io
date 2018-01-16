@@ -11,6 +11,10 @@ One thing that made this effective was the proximity. Laborers live just a few m
 Maybe that is one of the reason why maids in Manila or in big cities leave their boss (or Amo) very early in their stay. They simply just miss their families in their province.
 So that is one factor... Proximity. Make sure that you're employees are living near their families or better yet bring their families to them... especially if you feel that the employees is worth keeping.
 
+Another thing is that employees feel that they are degraded. Like their job is somewhat demeaning. For example, if you are a Yaya.. would you like to wear a Yaya uniform or the regular casual clothes?  or if you are a Driver... would you like your Boss to tell you to wait in the Driver's lounge or you have to freedom to roam around the mall until your Boss calls you?   
+Do you see what I'm getting at?
+
+
 
 
 
