@@ -15,9 +15,10 @@ Make sure that you're employees are living near their families or better yet bri
 Another thing is that employees feel that they are degraded. Like their job is somewhat demeaning. For example, if you are a Yaya.. would you like to wear a Yaya uniform or the regular casual clothes?  or if you are a Driver... would you like your Boss to tell you to wait in the Driver's lounge or you have to freedom to roam around the mall until your Boss calls you?   
 Do you see what I'm getting at?
 
-I was trained and guided by my elders in my clan to treat all employees as family members. I even go try check how they are living and believe me.... it is not as hard as it looks. They are also happy like you and I (even without the material things).
+I was trained and guided by my elders in my clan to treat all employees as family members. And to bring out the curiosity in me, I even go visit their place and observe how they are living and believe me.... it is not as hard as it looks. They are also happy like you and I (even without the material things).
 
-Eventually, I grew up and had my share of employees whom I think I treated well. One of them is this guy in the picture. He goes by the name of "Ise". He is a happily married with 3 lovely duaghters and 1 cute little boy. Like me, Ise's family also originated from the same province. He is what I call "Tao sa Una" (People who came from a family clan with good dignity and respect).
+Eventually, I grew up and had my share of employees whom I think I treated well. One of them is this guy in the picture. He goes by the name of **"Ise"**. He is a happily married with 3 lovely daughters and 1 cute little boy.   
+Like me, Ise's family also originated from the same province. He is what I call **"Tao sa Una"** (People who came from a family clan with good dignity and respect).
 
 Ise was one of the guys who managed my Poultry way back when I still had that business. Today, he just takes care of what is left behind. Like this motorcycle with sidecar that I bought several years ago (We call it a Bangkulong).   
 Because we treat each other as family members, Ise makes sure that this small vehicle stays in good condition. If I treated him like trash, I'm quite sure my motorcylce will be detoriated with rust. I won't be surprised if it will turn into scrap ready to be pick up as junk.   
