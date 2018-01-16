@@ -16,6 +16,11 @@ Do you see what I'm getting at?
 
 I was trained and guided by my elders in my clan to treat all employees as family members. I even go try check how they are living and believe me.... it is not as hard as it looks. They are also happy like you and I (even without the material things).
 
+Eventually, I grew up and had my share of employees whom I think I treated well. One of them is this guy in the picture. He goes by the name of "Ise". He is a happily married with 3 lovely duaghter and 1 cute little boy. Like me, Ise's family also originated from the same province. He is what I call "Tao sa Una" (People who came from a breed with good dignity and respect).
+
+Ise was one of the guys who managed my Poultry way back when I still had that business. Today, he just takes care of what is left behind. Like this motorcycle with sidecar that I bought several years ago (We call it a Bangkulong).   
+Because we treat each other as family members, Ise makes sure that this small vehicle stays in good condition. If I treated him like trash, I'm quite sure my motorcylce will be detoriated with rust. I won't be surprised if it will turn into scrap ready to be pick up as junk.
+
 
 
 
