@@ -28,7 +28,7 @@ Guys, please pay attentively... Girls are not Snacks or Sex Toys. They, in fact,
 Try doing that for a change. No sex, No malice, just plain talking companion who can teach you a lot of quality stuff like learning the violin or maybe urban gardening... you'll never know what good will come out of it.
 
 For me, I have to pass on the French Toast! The girl from France is a good friend of mine..... Period!  
-My wife knows her and my kids are all excited to see her again. And we all know that Michelle is excited to see us as well.    
+My wife knows her and my kids are all excited to see her again. And we all know that Michelle is enthusiastic to see us as well.    
 
 à bientôt! 
 
