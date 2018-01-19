@@ -18,6 +18,8 @@ The crasy thing is... some of my Filipino "So called friends" were teasing me th
 the Soupe à l’oignon. I answered back and said "Sorry boys, but there is no way you can get me out of  my favorite Adobo"!
 They stop bothering since then.
 
-WTF are they trying to do? Didn't they know I am happily married? Are they aware that not all guys are desperate hungry dogs? 
+WTF are they trying to do? Didn't they know I am happily married? Are they aware that not all guys are desperate hungry dogs? Do they know that girls are not snack but more of a vintage wine that you want to keep forever?
+
+
 
 
