@@ -21,7 +21,7 @@ the "Soupe à l’oignon".
 I answered back and said.... "Sorry boys, but there is no way you can get me out of  my **Favorite Adobo**"!   
 They stop bothering me since then.
 
-WTF are they trying to do? Didn't they know I am happily married? Are they aware that not all guys are **Desperate Dogs**? Do they know that girls are not snack but more of a vintage wine that you want to keep forever?
+WTF are they trying to do? Didn't they know I am happily married? Are they aware that not all guys are **Desperate Dogs**? Do they know that girls are not snacks but more of a vintage wine that you want to keep forever?
 
 That is the reason why women doesn't want to hangout with men anymore. Women think of dinner as a friendly date while Men thinks of what room to get after dinner.
 
