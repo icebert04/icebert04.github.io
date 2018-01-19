@@ -16,7 +16,7 @@ And mind you.... she is only 24 years old and is still a student.
 
 She is a interesting girl! So much passion, so much vitality and eagerness to know more of things outside of her comfort zone, and I see so much adventure in her.    
 
-The crasy thing is... some of my Filipino "So called friends" were teasing me that I should be targeting her as a Snack. They want me to try a different International cuisine like a "Croissant" or 
+The crazy thing is... some of my Filipino "So called friends" were teasing me that I should be targeting her as a Snack. They want me to try a different International cuisine like a "Croissant" or 
 the "Soupe à l’oignon".   
 I answered back and said.... "Sorry boys, but there is no way you can get me out of  my **Favorite Adobo**"!   
 They stop bothering me since then.
