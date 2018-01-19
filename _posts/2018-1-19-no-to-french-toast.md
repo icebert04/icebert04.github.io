@@ -7,7 +7,7 @@ A lof of guys thinks that girls are a **"Piece of Snack"**! To them Girls are li
 Girls are not Sex Toys or Snack that you can play with. They are human beings with feelings and unique personalities like you and me.
 
 A year ago, I met a pretty girl from France. Let's just call her Michelle (not her real name). I choose not to declare her real name so that guys won't be bugging her and asking her social media accounts.   
-She went here in the Philippines to explore the wonderful beaches and the sublime nature that goes along with it.
+She went here in the Philippines to explore the wonderful beaches and the sublime nature that goes along with it.   
 Michelle is now in Chile continuing her studies but said that she wants to go back to the Philippines to travel to the other islands she hasn't been to and hopefully start a small business venture a long the way.
 
 Me and Michelle became close and always talk through our social media channels. She showed me pictures of her passion for traveling. She has been to most of European countries.   
