@@ -30,5 +30,5 @@ Try doing that for a change. No sex, No malice, just plain talking companion who
 For me, I have to pass on the French Toast! The girl from France is a good friend of mine..... Period!  
 My wife knows her and my kids are all excited to see her again. And we all know that Michelle is enthusiastic to see us as well.    
 
-à bientôt! 
+À bientôt!
 
