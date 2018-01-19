@@ -28,6 +28,5 @@ Try doing that for a change. No sex, No malice, just plain talking companion who
 For me, I have to pass on the French Toast! The girl from France is a good friend of mine.   
 My wife knows her and my kids are all excited to see her again.   
 
-Au revoir!
-
+à bientôt! 
 
