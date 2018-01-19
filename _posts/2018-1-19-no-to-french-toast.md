@@ -20,6 +20,11 @@ They stop bothering since then.
 
 WTF are they trying to do? Didn't they know I am happily married? Are they aware that not all guys are desperate hungry dogs? Do they know that girls are not snack but more of a vintage wine that you want to keep forever?
 
+That is the reason why women doesn't want to hangout with men anymore. Women think of dinner as a friendly date while Men thinks of what room to get after dinner.
 
+Guys, please pay attentively... Girls are not Snacks or Sex Toys. They in fact can be your friend... a good & loyal friend.   
+Try doing that for a change. No sex, No malice, just plain talking companion who can teach more about clothes or maybe urban gardening... you'll never know what good will come out of it.
+
+For me, I have to pass on the French Toast! The girl from France is a good friend of mine. 
 
 
