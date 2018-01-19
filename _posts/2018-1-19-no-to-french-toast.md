@@ -11,7 +11,7 @@ She went here in the Philippines to explore the wonderful beaches and the sublim
 Michelle is now in Chile continuing her studies but said that she wants to go back to the Philippines to travel to the other islands she hasn't been to and hopefully start a small business venture a long the way.
 
 Me and Michelle became close and always chat through our social media channels. She showed me pictures of her passion for traveling. She has been to most of European countries.   
-She told me her numerous insane stories like in riding the Crazy Train in Sri Lanka, Teaching the young kids in Senegal, Playing with the Penguins in Cape Town, Do outreach project in Indonesia, Surfing in the Philippines, Driving a Boat in the coast of Australia, and much much more.   
+She told me her numerous insane stories like in riding the Crazy Train in Sri Lanka, Teaching the young kids in Senegal, Playing with the Penguins in Cape Town, Did the outreach project in Indonesia, Surfing in the Philippines, Driving a Boat in the coast of Australia, and much much more.   
 And mind you.... she is only 24 years old and is still a student. 
 
 She is a interesting girl! So much passion, so much vitality and eagerness to know more of things outside of her comfort zone, and I see so much adventure in her.    
