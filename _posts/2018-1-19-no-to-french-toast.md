@@ -3,7 +3,7 @@ published: true
 ---
 ![French Toast](/images/Maud.jpg)
 
-A lof of guys thinks that girls are a **"Piece of Snack"**! To them Girls are like Food that they want to eat and devour whenever they are hungry. And they don't care regardless of their marital status. Whether they are  single, divorced, widowed and even worse.... married.   
+A lot of guys thinks that girls are a **"Piece of Snack"**! To them Girls are like Food that they want to eat and devour whenever they are hungry. And they don't care regardless of their marital status. Whether they are  single, divorced, widowed and even worse.... married.   
 Girls are not Sex Toys or Snack that you can play with. They are human beings with feelings and unique personalities like you and me.
 
 A year ago, I met a pretty girl from France. Let's just call her Michelle (not her real name). I choose not to declare her real name so that guys won't be bugging her and asking her social media accounts.   
