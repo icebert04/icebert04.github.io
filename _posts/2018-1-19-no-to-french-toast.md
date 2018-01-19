@@ -14,10 +14,10 @@ Me and Michelle became close and always talk through our social media channels. 
 She told me her numerous insane stories like in riding the Crazy Train in Sri Lanka, Teaching the young kids in Senegal, Playing with the Penguins in Cape Town, Do outreach project in Indonesia, Surfing in the Philippines, Driving a Boat in the coast of Australia, and much much more.   
 And mind you.... she is only 24 years old and is still a student. 
 
-She is a interesting girl! So much passion, so much vitality and eagerness to know more of things outside of her comfort zone, and I see so much adventures in her.    
+She is a interesting girl! So much passion, so much vitality and eagerness to know more of things outside of her comfort zone, and I see so much adventure in her.    
 
-The crasy thing is... some of my Filipino "So called friends" were teasing me that I should be targeting her as a Snack. They want me to try a different International cuisine like a Croissant or 
-the Soupe à l’oignon. I answered back and said "Sorry boys, but there is no way you can get me out of  my favorite Adobo"!
+The crasy thing is... some of my Filipino "So called friends" were teasing me that I should be targeting her as a Snack. They want me to try a different International cuisine like a "Croissant" or 
+the "Soupe à l’oignon". I answered back and said "Sorry boys, but there is no way you can get me out of  my **Favorite Adobo**"!
 They stop bothering since then.
 
 WTF are they trying to do? Didn't they know I am happily married? Are they aware that not all guys are desperate hungry dogs? Do they know that girls are not snack but more of a vintage wine that you want to keep forever?
