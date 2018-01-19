@@ -18,9 +18,9 @@ She is a interesting girl! So much passion, so much vitality and eagerness to kn
 
 The crasy thing is... some of my Filipino "So called friends" were teasing me that I should be targeting her as a Snack. They want me to try a different International cuisine like a "Croissant" or 
 the "Soupe à l’oignon". I answered back and said "Sorry boys, but there is no way you can get me out of  my **Favorite Adobo**"!
-They stop bothering since then.
+They stop bothering me since then.
 
-WTF are they trying to do? Didn't they know I am happily married? Are they aware that not all guys are desperate hungry dogs? Do they know that girls are not snack but more of a vintage wine that you want to keep forever?
+WTF are they trying to do? Didn't they know I am happily married? Are they aware that not all guys are desperate dogs? Do they know that girls are not snack but more of a vintage wine that you want to keep forever?
 
 That is the reason why women doesn't want to hangout with men anymore. Women think of dinner as a friendly date while Men thinks of what room to get after dinner.
 
