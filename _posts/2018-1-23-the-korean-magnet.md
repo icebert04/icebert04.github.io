@@ -14,4 +14,7 @@ But the one thing that made Erron special is his excellent service to his guests
 Erron hardly complains and he treats his guests just like one of his close friends. 
 
 He is so likable that if you look at his Facebook profile... you would see that he has lots of Korean friends. And mind you, the communication between the tour guide and his former foreign guests still went on and on.   
-Koreans (and other nationalities) simply love him. Not only because of his wonderful service but Erron always smile to all people. 
+Koreans (and other nationalities) simply love him. Not only because of his wonderful service but Erron always smile to all people.... a thing that we should imitate on our careers and business.
+
+Erron also likes photography and he brings his Canon camera, takes pictures of his guests standing by the beach, and send it out to them for FREE!   
+Me and my family visited Erron in Boracay last 2016 and stayed their for about a week. 
