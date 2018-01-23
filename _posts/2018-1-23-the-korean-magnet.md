@@ -3,7 +3,7 @@ published: true
 ---
 ![Korean Magnet](/images/Boracay.jpg)
 
-Boracay, even with its environmental issues and sewage problem, still gathered 1.7 million tourists in a duration of just one year. Koreans topped the foreign tourists who visited the famed island last year, accounting for 37% of the total number.
+Boracay, even with its environmental issues and sewage problem, still gathered **1.7 million tourists** in a duration of just one year. Koreans topped the foreign tourists who visited the famed island last year, accounting for 37% of the total number.
 
 If you look at the world map, the Philippines is the nearest tropical country near South Korea. That is why you see a lot of Koreans all over to the Philippines to study, to do business and to experience the Sun. Koreans really dig the heat of the sun, especially on the beach, that is why they flock to our country all year round. 
 
@@ -23,7 +23,7 @@ Knowing that this will affect his weekly earnings, I politely declined his gener
 But Erron still finds time to check on us, probed if the place that we are staying is safe, and gave us tips and advices about the island.   
 He even took pictures of us and gave the printed copies to us before we went back to Manila. 
 
-You see, it is Erron's friendly personality, generosity, and deep knowledge about the island of Boracay and all of the people living in it, made him a ideal Korean Magnet. Erron is a protypical tour guide of the new generation.
+You see, it is Erron's friendly personality, generosity, and deep knowledge about the island of Boracay and all of the people living in it, made him a ideal **Korean Magnet**. Erron is a protypical tour guide of the new generation.
 
-It's nice to be a Magnet of Something. If we are magnets, we can attract a lot of positive things like money, friends, adventures, business opportunities, and wonderful memories that we will treasure forever.   
+It's nice to be a **Magnet of Something**. If we are magnets, we can attract a lot of positive things like money, friends, adventures, business opportunities, and wonderful memories that we will treasure forever.   
 Let's be Magnets.... shall we!
