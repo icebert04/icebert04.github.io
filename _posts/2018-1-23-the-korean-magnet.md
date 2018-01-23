@@ -3,4 +3,4 @@ published: true
 ---
 ![Korean Magnet](/images/Boracay.jpg)
 
-erron
+Boracay, even with the environmental issues and sewage problem, still  
