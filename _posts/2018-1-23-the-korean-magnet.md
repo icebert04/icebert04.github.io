@@ -25,4 +25,5 @@ He even took pictures of us and gave the printed copies to us before we went bac
 
 You see, it is Erron's friendly personality, generosity, and deep knowledge about the island of Boracay and all of the people living in it, made him a ideal Korean Magnet. Erron is a protypical tour guide of the new generation.
 
-It's nice to be a Magnet of Something. If we are magnets, we can attract a lot of positive things like money, friends, adventures, business opportunities, and wonderful memories that we will treasure forever.  
+It's nice to be a Magnet of Something. If we are magnets, we can attract a lot of positive things like money, friends, adventures, business opportunities, and wonderful memories that we will treasure forever.   
+Let's be Magnets.... shall we!
