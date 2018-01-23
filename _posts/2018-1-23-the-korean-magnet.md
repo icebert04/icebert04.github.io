@@ -14,7 +14,15 @@ But the one thing that made Erron special is his excellent service to his guests
 Erron hardly complains and he treats his guests just like one of his close friends. 
 
 He is so likable that if you look at his Facebook profile... you would see that he has lots of Korean friends. And mind you, the communication between the tour guide and his former foreign guests still went on and on.   
-Koreans (and other nationalities) simply love him. Not only because of his wonderful service but Erron always smile to all people.... a thing that we should imitate on our careers and business.
+Koreans (and other nationalities) simply love him. Not only because of his wonderful service but Erron always smile to all people.... a thing that we should emulate on our careers and business.
 
 Erron also likes photography and he brings his Canon camera, takes pictures of his guests standing by the beach, and send it out to them for FREE!   
-Me and my family visited Erron in Boracay last 2016 and stayed their for about a week. 
+Me and my family visited Erron in Boracay last 2016 and stayed there for about a week. Erron quickly offered his services and said to us that he will accompanying us for the entire week to visit the whole island.   
+Knowing that this will affect his weekly earnings, I politely declined his generous offer and said that we can drink beer after his working hours. 
+
+But Erron still finds time to check on us, probed if the place that we are staying is safe, and gave us tips and advices about the island.   
+He even took pictures of us and gave the copies to us when we went back to Manila. 
+
+You see, it's Erron friendly personality, generosity, and deep knowledge about the island of Boracay and all of the people living in it, made him a ideal Korean Magnet. Erron is a protypical tour guide of the new generation.
+
+It's nice to be a Magnet of Something. If we are magnets, we can attract a lot of positive things like money, friends, adventures, business opportunities, and wonderful memories that we will treasure forever.  
