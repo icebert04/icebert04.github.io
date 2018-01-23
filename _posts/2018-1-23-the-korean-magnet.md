@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Korean Magnet](/images/Boracay.jpg)
