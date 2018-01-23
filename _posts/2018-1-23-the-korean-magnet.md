@@ -20,7 +20,7 @@ Erron also likes Photography and he always brings his Canon camera, takes pictur
 Me and my family visited Erron in Boracay last 2016 and stayed there for about a week. Erron quickly offered his services and said to us that he will accompany us for the entire week to visit the whole island.   
 Knowing that this will affect his weekly earnings, I politely declined his generous offer and said that he should think about his guests first then we can drink beer after his working hours. 
 
-But Erron still finds time to check on us, probed if the place that we are staying is safe, and gave us tips and advices about the island.   
+But Erron still finds time to check on us, probed if the place that we are staying is safe, and gave us tips and advises about the island.   
 He even took pictures of us and gave the printed copies to us before we went back to Manila. 
 
 You see, it is Erron's friendly personality, generosity, and deep knowledge about the island of Boracay and all of the people living in it, made him a ideal **Korean Magnet**. Erron is a protypical tour guide of the new generation.
