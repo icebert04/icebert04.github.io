@@ -15,7 +15,7 @@ Did it work?..... Absolutely! I was able to overthrown my fear and became a stea
 I know now how to survive if a boat sinks in the middle of the ocean. Even if I have muscle leg cramps... all I need to do is massage my leg gently even when I am submerge in the water. Go up to take some oxygen then repeat the procedure again until I am able to take away the cramps.
 
 In the past, when I go out on a date for a movie. I always position ourselves near the Fire Exit. We still take the best seat as much as possible but I always make sure that we are quite near to the Fire Exit.   
-Why? Because when there is a Fire... people first reaction is to run out where they came from in the first place. It initiates Crowd Rush and Human Stampede that leads to severe injuries and even death.   
+Why? Because when there is a Fire... people first reaction is to run out where they came from in the first place. It initiates Crowd Rush and Human Stampede that leads to severe injuries.   
 But if you are position near the Fire Exit... you can easily get out of the theater and most of the time you go along with a very small crowd.   
 It's funny... the Fire Exit is always exposed in the movies theaters with clear white and green lights but they become invisible when there is chaos.
 
