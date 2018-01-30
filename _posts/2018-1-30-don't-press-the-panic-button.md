@@ -34,7 +34,7 @@ I called the police and shortly after they authorities came and they imediately 
 To make the story short, it was clearly a suicide by drop hanging. No foul play was transpired.   
 But for me, it was one of the most unforgetable and scary experience that I ever encountered in my entire life.
 
-Somehow, I am slowly but surely handing it over the "Think Before You Act" to my children so when the time will come they know how to react to it. My kids (especially my eldest) are fast and good swimmers. They know what to do if their ship suddenly sunk and can survive swimming to the nearest island.
+Somehow, I am slowly but surely handing it over the **"Think Before You Act"** to my children so when the time will come they know how to react to it. My kids (especially my eldest) are fast and good swimmers. They know what to do if their ship suddenly sunk and can survive swimming to the nearest island.
 
 When they go out for a movie. They will sit on the seats near the Fire Exit. My kids also needs to enlighten the minds of their dates for them to do it whenever they go to the theaters. 
 
