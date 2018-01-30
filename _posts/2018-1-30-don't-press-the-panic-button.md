@@ -32,7 +32,7 @@ Upon confirming of her death, I told everybody not to bring down the deceased bo
 I called the police and shortly after the authorities came and they immediately interrogated the husband (whom they initially thought was the suspect).
 
 To make the story short, it was clearly a suicide by drop hanging. No foul play was transpired.   
-But for me, it was one of the most unforgetable and scary experience that I ever encountered in my entire life.
+But for me, it was one of the most unforgettable and scary experience that I ever encountered in my entire life.
 
 Somehow, I am slowly but surely handing it over the **"Think Before You Act"** to my children so when the time will come they know how to react to it.   
 My kids (especially my eldest) are fast and good swimmers. They know what to do if their ship suddenly sank and can survive swimming to the nearest island.
