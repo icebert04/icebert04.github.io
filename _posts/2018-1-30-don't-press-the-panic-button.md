@@ -17,7 +17,7 @@ I know now how to survive if a boat sinks in the middle of the ocean. Even if I 
 In the past, when I go out on a date for a movie. I always position ourselves near the Fire Exit. We still take the best seat as much as possible but I always make sure that we are quite near to the Fire Exit.   
 Why? Because when there is a Fire... people first reaction is to run out where they came from in the first place. It initiates Crowd Rush and Human Stampede that leads to severe injuries and even death.   
 But if you are position near the Fire Exit... you can easily get out of the theater and most of the time you go along with a very small crowd.   
-It's funny... the Fire Exit is always exposed in the movies theaters with clean white and green lights but they become invisible when there is chaos.
+It's funny... the Fire Exit is always exposed in the movies theaters with clear white and green lights but they become invisible when there is chaos.
 
 I will always remember my Dad say a lot of time the phrase "Think Before You Act" to avoid making dumb decisions. In our hyperconnected world, we are addicted to speed, which often leads to people making rash, impulsive decisions.   
 Not thinking before you act can get you into legal trouble. You can, for example, be sued for negligence if you do not exercise reasonable caution when doing things. 
