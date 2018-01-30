@@ -29,7 +29,7 @@ Even with a great sense of fear... I stood my ground, didn't panic and thought c
 I first checked if there is a chance of reviving the person who committed suicide. We didn't touch the body, we just look at her if we can revive her.
 
 Upon confirming of her death, I told everybody not to bring down the deceased body from the tree. In this way, nobody will accuse any of us who is present at the time of the incident.
-I called the police and shortly after they authorities came and they imediately interrogated the husband (whom they initially tought was the suspect).
+I called the police and shortly after the authorities came and they imediately interrogated the husband (whom they initially tought was the suspect).
 
 To make the story short, it was clearly a suicide by drop hanging. No foul play was transpired.   
 But for me, it was one of the most unforgetable and scary experience that I ever encountered in my entire life.
