@@ -41,4 +41,4 @@ When they go out for a movie. They will sit on the seats near the Fire Exit. My 
 
 My boys don't need to be Manly and Brave. They just need to be wise. 
 
-Think Before You Act and Not Pressing the Panic Button! I hope you guys put this in mind. You might find this adsurd at first but it will definitely save your life in the future.
+Think Before You Act and Not Pressing the Panic Button! I hope you guys put this in mind. You might find this absurd at first but it will definitely save your life in the future.
