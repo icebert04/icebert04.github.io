@@ -24,15 +24,16 @@ The "Think Before You Act" attribute helped me get through when I witness the wi
 Even a great sense of fear... I stood my ground, didn't panic and thought conscientiously before making decisions.   
 I first checked if there is a chance of reviving the person who committed suicide. We didn't touch the body, we just look at her if we can revive her.
 
-Upon confirming of her death, I told everybody not to bring down the deceased body from the tree. I called the police and shortly after they came they imediately interrogated the husband (whom they tought was the suspect).
+Upon confirming of her death, I told everybody not to bring down the deceased body from the tree. In this way, nobody will accused any of us who is present at the time of the incident.
+I called the police and shortly after they authorities came and they imediately interrogated the husband (whom they initially tought was the suspect).
 
-To make the story short, it was clearly a suicide by drop hanging. No foul play transpired.   
+To make the story short, it was clearly a suicide by drop hanging. No foul play was transpired.   
 But for me, it was one of the most unforgetable and scary experience that I ever encountered in my entire life.
 
-Somehow, I am slowly but surely handing it over to my children so when the time will come they know how to react to it. My kids (especially my eldest) are fast and good swimmers. They know what to do if their ship sunk and can survive swimming to the nearest island.
+Somehow, I am slowly but surely handing it over the "Think Before You Act" to my children so when the time will come they know how to react to it. My kids (especially my eldest) are fast and good swimmers. They know what to do if their ship suddenly sunk and can survive swimming to the nearest island.
 
-When they will go on movie nights. They will sit on the seats near the Fire Exit (they need to convince their dates to sit in that area).
+When they go out for a movie. They will sit on the seats near the Fire Exit. My kids also needs to enlighten the minds of their dates for them to do it whenever they go to the theaters. 
 
-They don't need to be Manly and Brave. They just need to be wise. 
+My boys don't need to be Manly and Brave. They just need to be wise. 
 
-Think Before You Act! I hope you guys put in this in mind. You might find this adsurd at first but it will definitely safe your life in the future.
+Think Before You Act! I hope you guys put this in mind. You might find this adsurd at first but it will definitely save your life in the future.
