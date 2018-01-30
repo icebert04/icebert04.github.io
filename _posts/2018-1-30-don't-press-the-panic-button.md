@@ -19,7 +19,8 @@ Why? Because when there is a Fire... people first reaction is to run out where t
 But if you are position near the Fire Exit... you can easily get out of the theater and most of the time you go along with a very small crowd.   
 It's funny... the Fire Exit is always exposed in the movies theaters with clear white and green lights but they become invisible when there is chaos.
 
-I will always remember my Dad say a lot of time the phrase "Think Before You Act" to avoid making dumb decisions. In our hyperconnected world, we are addicted to speed, which often leads to people making rash, impulsive decisions.   
+I will always remember my Dad say a lot of time the phrase "Think Before You Act" to avoid making dumb decisions.   
+In our hyperconnected world, we are addicted to speed, which often leads to people making rash, impulsive decisions.   
 Not thinking before you act can get you into legal trouble. You can, for example, be sued for negligence if you do not exercise reasonable caution when doing things. 
 
 The "Think Before You Act" attribute helped me get through when I witness the wife of our caretaker in our province who commited suicide by hanging herself underneath our mango tree. It was crazy! Seeing a dead girl like that at the wee hours of the morning! It is like the movie The Exorcist and Conjuring mold into one!  
