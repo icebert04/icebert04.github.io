@@ -9,7 +9,7 @@ Will you die screaming when you see a dead girl who hang herself underneath the 
 Panic happens to everyone especially when it is their first time to experience it. It cloudens the mind that prevents an individual from any logical thinking. It is a sudden sensation of fear that causes bad decision like mass stampede and even death.
 
 My Father thought me how to overcome it. When I was little, my Dad uses to bring me all the time to the beach of Matabungkay in Lian Batangas. We always travel in a big group and always take the Balsa (a small raft or boat made from bamboo sticks). We then hook up the Balsa in the deepest water then swim from there.   
-I, at that time, don't know how to swim. But my Father always bring me to the open sea and I try to swim (head above water)somehow towards him who is seating comfortably in the Balsa. Did it work?..... Yes! I was able to overthrown my fear and became a steady swimmer. 
+I, at that time, don't know how to swim. But my Father always bring me to the open sea and I try to swim (head above water) somehow towards him who is seating comfortably in the Balsa. Did it work?..... Yes! I was able to overthrown my fear and became a steady swimmer. 
 
 I know now how to survive if a boat sinks in the middle of the ocean. Even if I have muscle leg cramps... all I need to do is massage my leg gently even when I am submerge in the water. Go up to take some oxygen then repeat the procedure again until I am able to take away the cramps.
 
