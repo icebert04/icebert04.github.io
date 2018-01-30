@@ -25,7 +25,7 @@ Not thinking before you act can get you into legal trouble. You can, for example
 
 The **"Think Before You Act"** attribute helped me get through when I witness the wife of our caretaker in our province who commited suicide by hanging herself underneath our mango tree.   
 It was crazy! Seeing a dead girl like that at the wee hours of the morning! It is like the movie The Exorcist and Conjuring mold into one!  
-Even a great sense of fear... I stood my ground, didn't panic and thought conscientiously before making decisions.   
+Even with a great sense of fear... I stood my ground, didn't panic and thought conscientiously before making decisions.   
 I first checked if there is a chance of reviving the person who committed suicide. We didn't touch the body, we just look at her if we can revive her.
 
 Upon confirming of her death, I told everybody not to bring down the deceased body from the tree. In this way, nobody will accused any of us who is present at the time of the incident.
