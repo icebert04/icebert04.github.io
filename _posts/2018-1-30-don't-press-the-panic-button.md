@@ -4,7 +4,7 @@ published: true
 ![Panic Button](/images/Pandin Lake 2.jpg)
 
 What would you do if you are swimming in the middle of the ocean and you start to have muscle leg cramps? How will you react when people start to run out of the movie theater because of the fire? 
-How can you stop a your car in a highway when you suddenly found out that you lost your brakes?
+Will you die screaming when you see a dead girl who hang herself underneath the tree?
 
 Panic happens to everyone especially when it is their first time to experience it. It cloudens the mind that prevent you from any logical thinking. It is a sudden sensation of fear that causes bad decision like mass stampede and even death.
 
@@ -14,4 +14,25 @@ I, at that time, don't know how to swim. But my Father always bring me to the op
 I know now how to survived if a boat sinks in the middle of the ocean. Even if I have muscle leg cramps... all I need to do is massage my leg gently even when I am submerge in the water. Go up to take some oxygen then repeat the procedure again until you are able to take away the cramps.
 
 In the past, when I go out on a date for a movie. I always position ourselves near the Fire Exit. We still take the best seat as much as possible but I always make sure that we are quite near to the Fire Exit. Why? Because when there is a Fire... people first reaction is to run out when they came in the first place. It initiates Crowd Rush and Human Stampede that leads to severe injuries and even death.   
-But if you are position near the Fire Exit... you can easily get out of the theater and most of the time you go along with a very small crowd.
+But if you are position near the Fire Exit... you can easily get out of the theater and most of the time you go along with a very small crowd.   
+It's funny... the Fire Exit is always expose in the movies theaters with clean white and green lights but they become invisible when their is chaos.
+
+I will always remember my Dad say a lot of time the quote "Think Before You Act" to avoid making dumb decisions. In our hyperconnected world, we are addicted to speed, which often leads to people making rash, impulsive decisions.   
+Not thinking before you act can get you into legal trouble. You can, for example, be sued for negligence if you do not exercise reasonable caution when doing things. 
+
+The "Think Before You Act" virtue helped me get through when I witness the wife of our caretaker in our province who commited suicide by hanging herself underneath our mango tree. It was crazy! Seeing a dead girl like that at the wee hours of the morning!   
+Even with sense of fear... I stood my ground, didn't panic and made think thoroughly before making decisions.   
+I first checked if there is chance of reviving the person who committed suicide. We didn't touch the body, we just look at her if we can revive her.
+
+Upon confirming of her death, I told everybody not to bring down the deceased body from the tree. I called the police and shortly after they came they imediately interrogated the husband (whom they tought was the suspect).
+
+To make the story short, it was clearly a suicide by drop hanging. No foul play transpired.   
+But for me, it was one of the most unforgetable and scary experience that I ever encountered in my entire life.
+
+Somehow, I am slowly but surely handing it over to my children so when the time will come they know how to react to it. My kids (especially my eldest) are fast and good swimmers. They know what to do if their ship sunk and can survive swimming to the nearest island.
+
+When they will go on movie nights. They will sit on the seats near the Fire Exit (they need to convince their dates to sit in that area).
+
+They don't need to be Manly and Brave. They just need to be wise. 
+
+Think Before You Act! I hope you guys put in this in mind. You might find this adsurd at first but it will definitely safe your life in the future.
