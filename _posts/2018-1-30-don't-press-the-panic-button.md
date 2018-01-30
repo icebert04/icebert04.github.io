@@ -23,7 +23,8 @@ I will always remember my Dad say a lot of time the phrase **"Think Before You A
 In our hyperconnected world, we are addicted to speed, which often leads to people making rash, impulsive decisions.   
 Not thinking before you act can get you into legal trouble. You can, for example, be sued for negligence if you do not exercise reasonable caution when doing things. 
 
-The **"Think Before You Act"** attribute helped me get through when I witness the wife of our caretaker in our province who commited suicide by hanging herself underneath our mango tree. It was crazy! Seeing a dead girl like that at the wee hours of the morning! It is like the movie The Exorcist and Conjuring mold into one!  
+The **"Think Before You Act"** attribute helped me get through when I witness the wife of our caretaker in our province who commited suicide by hanging herself underneath our mango tree.   
+It was crazy! Seeing a dead girl like that at the wee hours of the morning! It is like the movie The Exorcist and Conjuring mold into one!  
 Even a great sense of fear... I stood my ground, didn't panic and thought conscientiously before making decisions.   
 I first checked if there is a chance of reviving the person who committed suicide. We didn't touch the body, we just look at her if we can revive her.
 
