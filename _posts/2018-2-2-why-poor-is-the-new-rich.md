@@ -7,7 +7,8 @@ People always says that to live a better life is to get a good job, a big house,
 While some of that are basically true… I could not say that being wealthy is the only reason for living a good life.
 
 You can have that too even if you are poor. In fact, it might be even better. Why? I’ll give you one example…
-Being Rich, even it is very convenient, has it consequences. What the Rich don’t have is Time. They work so late and do dinner meetings that they don’t have time to watch their kids soccer games.   They come home late at night and go straight to bed. No exercise, No play, not even sex. They are just too tired and stressed out.
+Being Rich, even it is very convenient, has it consequences. What the Rich don’t have is Time. They work so late and do dinner meetings that they don’t have time to watch their kids soccer games.   They come home late at night and go straight to bed.   
+No exercise, No play, not even sex. They are just too tired and stressed out.
 
 Being Poor is different. Yes, I admit… life is more difficult financially for them…. but they have something what the Rich doesn’t have…… **Time**. 
 
