@@ -37,4 +37,5 @@ I fully understand the we humans have the desire of something we crave for… bu
 Why can’t we be like Romeo from time to time. Just **enjoying the small things**, makes life easier where everything is achievable.
 
 I’m glad that me and my family get to see Romeo regularly in the province. After all, Romeo is the Father of my wife and Granpa of my two kiddos.
-I always make it a point to go visit him when we have the chance. Unquestionably, my Father-in-law gives me a deeper perspective in life…. A simpler but more happier life!
+I always make it a point to go visit him when we have the chance.   
+Unquestionably, my Father-in-law gives me a deeper perspective in life…. A simpler but more happier life!
