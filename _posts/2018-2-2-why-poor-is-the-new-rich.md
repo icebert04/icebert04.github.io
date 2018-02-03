@@ -18,7 +18,7 @@ His business is selling his homemade Siopao & Siomai in his bicycle food cart ne
 His house is just 200 meters away from work. No traffic, No rush hour…
 Not much pressure, and not much stress.
 
-And since Romeo has lots of extra time, he gets to meet new acquaintances in his area. There was even a time when Romeo was walking one early morning and the fisherman just gave him a huge Tambakol (Yellowfin Tuna) for Free. 
+And since Romeo has lots of extra time, he gets to meet new acquaintances in his area. There was even a time when Romeo was walking one early morning and the fisherman just gave him a huge Tambakol (Yellowfin Tuna) for Free.   
 I assumed that Romeo had helped or touched the life of this Fisherman in the past because you don’t get that anywhere else especially here in Manila.
 
 He sometimes play friendly card games with his friends, Watch a lot of HBO movies, and since Romeo is already a senior citizen, he gets to play a lot with his 4 Apos (Grandchildren).
