@@ -7,12 +7,11 @@ People always says that to live a better life is to get a good job, a big house,
 While some of that are basically true… I could not say that being wealthy is the only reason for living a good life.
 
 You can have that too even if you are poor. In fact, it might be even better. Why? I’ll give you one example…
-Being Rich, even it is very convenient, has it consequences. What the Rich don’t have is Time. They work so late and do dinner meetings that they don’t have time to watch their kids soccer games. ️
-They come home late at night and go straight to bed. No exercise, No play, not even sex. They are just too tired and stressed out.
+Being Rich, even it is very convenient, has it consequences. What the Rich don’t have is Time. They work so late and do dinner meetings that they don’t have time to watch their kids soccer games.   They come home late at night and go straight to bed. No exercise, No play, not even sex. They are just too tired and stressed out.
 
 Being Poor is different. Yes, I admit… life is more difficult financially for them…. but they have something what the Rich doesn’t have…… **Time**. 
 
-Meet Romeo! He only **works 4 hours a day**. That means he has extra 20 hours to exercise, play and yes…. even make romance to his better half.
+Meet Romeo! He only **works 4 hours a day**. That means he has extra 20 hours to exercise, play and yes…. even make romance to his better half.   
 He takes the usual 8 hours sleep, doesn’t need to wake up early, take an early morning walk with his lovely wife, he drives his bicycle to buy pan-de-sal, goes to the beach sometimes, and watch his friends do fishing in the nearest river.
 
 His business is selling his homemade Siopao & Siomai in his bicycle food cart near the local market. He starts selling at 4 PM and goes home at 8 PM. Sometimes he goes home earlier if there is no more stock to sell (which is often). His house is just 200 meters away from work. No traffic, No rush hour…
