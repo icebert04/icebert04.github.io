@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![New Rich](/images/Tatay 2.jpg)
