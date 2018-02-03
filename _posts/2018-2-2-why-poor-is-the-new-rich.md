@@ -31,7 +31,7 @@ I now begin to think that why did Jesus Christ choose to be born poor? Did he ju
 If you were Rose from the movie “Titanic”? Would you go for a 1st class dinner wearing a elegant but not comfortable dress and exchanging boring stories from monotonous people that talk about Politics?
 Or would you go to a Real Party where there are lots of dancing, laughing, drinking, twirling, and jolly faces all around you?
 
-God provided us everything that we need. It’s all out there around us. It is only just us humans who sabotage those precious gifts. We are never contented and always want more. We become greedy animals.
+God provided us everything that we need. It’s all out there around us. It is only just us humans who sabotage those precious gifts. We are never contented and always want more. We become greedy animals.   
 I fully understand the we humans have the desire of something we crave for… but asking for too much is preposterous.
 
 Why can’t we be like Romeo from time to time. Just **enjoying the small things**, makes life easier where everything is achievable.
