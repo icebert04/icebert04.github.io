@@ -30,4 +30,9 @@ On a motorcycle you climb out of the "cave" of Plato's famous allegory. You're n
 
 **So what will be my new weekends be like?**
 
-I always ask that same question over and over again. Would it be better to "**Be Safe, But Die of Boredom**"?
+I always ask that same question over and over again. Would it be better to "**Be Safe, But Die of Boredom**"?   
+Living life means accepting risk. But most people spend their day pretending that there’s zero chance they will die that day.
+
+I don't know about you, but I'm considering in getting a travelling machine that will lead me to new adventures. Maybe getting a 2nd hand scooter would be more suitable for me. 
+
+If you are also living in a cave for so long (like me). Let's hook up, get bike and together... Let's Ride!
