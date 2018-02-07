@@ -3,7 +3,7 @@ published: true
 ---
 ![Let's Ride](/images/Let's Ride 7.jpg)
 
-My weekends are compose of morning swims and Internet only. And when I go to my Facebook, I see some of my friends riding their big bike to a far away place.   
+My weekends are compose of morning swims and Internet browsing only. And when I go to my Facebook, I see some of my friends riding their big bike to a place that I've never seen before.   
 And then I go like... hhhmmm, I wish I could do that. But that weekend passed and another one went by and still I see them riding their bikes.   
 This time, I was thinking... maybe I should get one.
 
