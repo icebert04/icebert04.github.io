@@ -27,3 +27,7 @@ On a motorcycle, it's just your little head inside that helmet. You are in contr
 3.) **Connection to the World Around You** =  our cars are so climate controlled and infotainment loaded that the experience of driving somewhere is almost indistinguishable from the experience of watching the same drive unfold on a television screen. In the modern world we spend a shocking amount of time blocking that world out.
 
 On a motorcycle you climb out of the "cave" of Plato's famous allegory. You're no longer looking at shadows, but seeing the true objects of the world, experiencing them with all your senses. Admittedly, this isn't always fantastic (when you're riding through a hail storm or behind a pungent cattle truck, for example), but soon you find you're willing to tolerate the occasional negative for the sake of being able to fully experience the positives.
+
+**So what will be my new weekends be like?**
+
+I always ask that same question over and over again. Would it be better to "Be Safe, But Die of Boredom"?
