@@ -22,4 +22,5 @@ If you don't have a New Year's resolution yet, I suggest that you make this year
 
 On a motorcycle, it's just your little head inside that helmet. You are in control of you, totally and completely. You feel the immediacy of your actions and decisions. The zen state pushes away anxiety about deadlines and bills to pay, and whether that girl at Starbucks was flirting when she told you to have a nice day.
 
-2.) You Meet the Nicest People
+2.) **You Meet the Nicest People** = You'll be greeted by waves or nods or extended feet when you pass other riders. Motorcycling induces a small town friendliness among its participants, no matter where they are in the world. Showing up somewhere on a bike means people will go out of their way to talk to you, to share stories.
+
