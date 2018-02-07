@@ -12,7 +12,7 @@ There's no way I will buy those damn motorcycles. They are way to expensive and 
 
 But lately, I start to realize, that these friends of mine are not showing off their bikes to make us feel envious. They are teaching each one of us (especially the boys) what we are missing out. That life has so much to offer aside from the normal weekend routine.
 
-I also learned that the price of the bike is not really about "**Acquiring the Vehicle but Gaining New Adventures**". Adventures that you can only experience through "**Riding That Damn Motorcycle**". 
+I also learned that the price of the bike is not really about "**Acquiring the Vehicle but rather Gaining New Adventures**". Adventures that you can only experience through "**Riding That Damn Motorcycle**". 
 
 The thrill of being at one with a two-wheeled machine that weighs only a few hundred pounds is one of the purest ways to get from point A to B. 
 
