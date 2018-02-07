@@ -24,3 +24,6 @@ On a motorcycle, it's just your little head inside that helmet. You are in contr
 
 2.) **You Meet the Nicest People** = You'll be greeted by waves or nods or extended feet when you pass other riders. Motorcycling induces a small town friendliness among its participants, no matter where they are in the world. Showing up somewhere on a bike means people will go out of their way to talk to you, to share stories.
 
+3.) **Connection to the World Around You** =  our cars are so climate controlled and infotainment loaded that the experience of driving somewhere is almost indistinguishable from the experience of watching the same drive unfold on a television screen. In the modern world we spend a shocking amount of time blocking that world out.
+
+On a motorcycle you climb out of the "cave" of Plato's famous allegory. You're no longer looking at shadows, but seeing the true objects of the world, experiencing them with all your senses. Admittedly, this isn't always fantastic (when you're riding through a hail storm or behind a pungent cattle truck, for example), but soon you find you're willing to tolerate the occasional negative for the sake of being able to fully experience the positives.
