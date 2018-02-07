@@ -28,7 +28,7 @@ On a motorcycle, it's just your little head inside that helmet. You are in contr
 
 On a motorcycle you climb out of the "cave" of Plato's famous allegory. You're no longer looking at shadows, but seeing the true objects of the world, experiencing them with all your senses. Admittedly, this isn't always fantastic (when you're riding through a storm or behind a pungent cattle truck, for example), but soon you find you're willing to tolerate the occasional negative for the sake of being able to fully experience the positives.
 
-**So what will be my new weekends be like?**
+**So what will my new weekends be like?**
 
 I always ask that same question over and over again. Would it be better to "**Be Safe, But Die of Boredom**"?   
 Living life means accepting risk. But most people spend their day pretending that there’s zero chance they will die that day.
