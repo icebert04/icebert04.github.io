@@ -35,4 +35,4 @@ Living life means accepting risk. But most people spend their day pretending tha
 
 I don't know about you, but I'm considering in getting a travelling machine that will lead me to new adventures. Maybe getting a 2nd hand scooter would be more suitable for me. 
 
-If you are also living in a cave for so long (like me). Let's hook up, get bike and together... Let's Ride!
+If you are also living in a cave for so long (like me). Let's hook up, get bike and together... **Let's Ride**!
