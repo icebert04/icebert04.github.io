@@ -30,4 +30,4 @@ On a motorcycle you climb out of the "cave" of Plato's famous allegory. You're n
 
 **So what will be my new weekends be like?**
 
-I always ask that same question over and over again. Would it be better to "Be Safe, But Die of Boredom"?
+I always ask that same question over and over again. Would it be better to "**Be Safe, But Die of Boredom**"?
