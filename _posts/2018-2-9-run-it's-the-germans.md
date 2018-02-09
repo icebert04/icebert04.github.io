@@ -31,6 +31,6 @@ Until now, we still communicate with our German friends through our social media
 The future looks bright for these young stalwarts.
 
 The Germans are coming! Sure, we would run. But not away from them but towards them. We will go to Berlin (if given a chance) in a heartbeat.   
-Germany does only consist of architectural treasures and fascinating views. The people living in it are even more genuine!  
+Germany does not only consist of architectural treasures and fascinating views. The people living in it are even more genuine!  
 
 Himmel und Hölle in Bewegung setzen!
