@@ -9,7 +9,7 @@ I had the opportunity to meet 2 young Germans who were here with us for a few we
 I made it a point to take some time off from my work and just bond with them. It turns out to be a good decision.   
 My kids also like them that they included Germany on their "**Vacation Wish List**" if we are fortunate enough to travel to Europe.
 
-We came to know a lot of things about them. The reason why they travel, their school back home, their govenrment and the refugees, their culture, and many more.   
+We came to know a lot of things about them. The reason why they travel, their school back home, their government and the refugees, their culture, and many more.   
 We may have different background stories based from our distinct nationalities but for me... they are just like Regular Joes... like any other Filipino.   
 In other words, they are also human beings.... duh!!!
 
