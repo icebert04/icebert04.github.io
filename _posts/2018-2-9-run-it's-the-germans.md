@@ -14,3 +14,9 @@ They have 9 different borders (France, Luxembourg, Belgium, the Netherlands, Den
 They have the Beers, the Sauerkraut & sausages, the Beethoven, Mozart, Bach and Brahms. Plus, Germany is also home to some of Europe’s finest and most famous castles.   
 
 Aside from the dogs (German Sheperd, Doberman, Rottweiler, and Dachsund), they also have the best automobiles such as BMW, Mercedes-Benz, Audi, Porsche and Volkswagen.
+
+Germany has a lot of contribution to the world but the only thing that comes to mind of the people is just.... HITLER or Heil Hitler!   
+
+I'm glad I got to meet Johannes and Janina. They certainly prove me and my family that Germans are nice! They are just misunderstood... that's all.
+Did you know that.... Eierschalensollbruchstellenverursacher is exatly a German word. Google it and you will see. 
+Germans are very direct. They cut the small talk and say it straight. It just to show that they are not hypocrites and they will tell you straight from their heart.
