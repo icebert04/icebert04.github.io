@@ -7,7 +7,7 @@ Are Germans really bad?
 Germany has gotten a bad reputation due to the vicious dictator Adolf Hitler. But not all Germans are bad. In fact, Hitler originated from Austria, same as his parents.   
 I had the opportunity to meet 2 young Germans who were here with us for a few weeks. I'll tell you, they are the nicest and warmest people. They are so easy to get along with.   
 I made it a point to take some time off from my work and just bond with them. It turns out to be a good decision.   
-My kids also like them that they included Germany on their "**Visit List**" if we are fortunate enough to travel to Europe.
+My kids also like them that they included Germany on their "**Vacation Wish List**" if we are fortunate enough to travel to Europe.
 
 We came to know a lot of things about them. The reason why they travel, their school back home, their govenrment and the refugees, their culture, and many more.   
 We may have different background stories based from our distinct nationalities but for me... they are just like Regular Joes... like any other Filipino.   
