@@ -13,11 +13,12 @@ We may have different background stories based from our distinct nationalities b
 
 Come to think of it, Germany is not a bad country at all. Currently, both domestic and international undergraduates at public universities in Germany can **Study for FREE**!   
 They have 9 different borders (France, Luxembourg, Belgium, the Netherlands, Denmark, Poland, the Czech Republic, Austria and Switzerland - phew), that you can travel to by just taking a bus or train.   
-They have the Beers, the Sauerkraut & sausages, the Beethoven, Mozart, Bach and Brahms. Plus, Germany is also home to some of Europe’s finest and most famous castles.   
+They have the Beers, the Sauerkraut & sausages, the Beethoven, Mozart, Bach and Brahms.   
+Plus, Germany is also home to some of Europe’s finest and most famous castles.   
 
 Aside from the dogs (German Sheperd, Doberman, Rottweiler, and Dachsund), they also have the best automobiles such as BMW, Mercedes-Benz, Audi, Porsche and Volkswagen.
 
-Germany has a lot of contribution to the world but the only thing that comes to mind of the people is just.... HITLER or Heil Hitler!   
+Germany has a lot of contribution to the world but the only thing that comes to the mind of the people is just.... **HITLER** or **Heil Hitler**!   
 
 I'm glad I got to meet Johannes and Janina. They certainly prove me and my family that Germans are nice! They are just misunderstood... that's all.
 Did you know that.... "**Eierschalensollbruchstellenverursacher**" is exactly a German word. Google it and you will see. 
