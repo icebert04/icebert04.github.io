@@ -23,7 +23,7 @@ Aside from the dogs (German Sheperd, Doberman, Rottweiler, and Dachsund), they a
 Germany has a lot of contribution to the world but the only thing that comes to the mind of the people is just.... **HITLER** or **Heil Hitler**!   
 
 I'm glad I got to meet Johannes and Janina. They certainly proved to me and my family that Germans are nice! They are just misunderstood... that's all.   
-Did you know that.... "**Eierschalensollbruchstellenverursacher**" is exactly a German word. Google it and you will see. 
+Did you know that.... "**Eierschalensollbruchstellenverursacher**" is exactly a German word. Google it and you will see.   
 Are you aware that Germans are very direct. They cut the small talk and say it straight. It just to show that they are not hypocrites and they will tell you straight from their heart.
 
 Until now, we still communicate with our German friends through our social media channels. Johannes is back in school and is busy building a **Plane Type Drone**. While is Janinan is thinking of going back to Thailand to help and volunteer with the **Save Elephant Foundation**.   
