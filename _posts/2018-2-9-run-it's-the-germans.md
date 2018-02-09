@@ -27,7 +27,7 @@ I'm glad I got to meet Johannes and Janina. They certainly proved to me and my f
 Did you know that.... "**Eierschalensollbruchstellenverursacher**" is exactly a German word. Google it and you will see.   
 Are you aware that Germans are very direct. They cut the small talk and say it straight. It just to show that they are not hypocrites and they will tell you straight from their heart.
 
-Until now, we still communicate with our German friends through our social media channels. Johannes is back in school and is busy building a **Plane Type Drone**. While is Janinan is thinking of going back to Thailand to help and volunteer with the **Save Elephant Foundation**.   
+Until now, we still communicate with our German friends through our social media channels. Johannes is back in school and is busy building a **Plane Type Drone**. While Janina is thinking of going back to Thailand to help and volunteer with the **Save Elephant Foundation**.   
 The future looks bright for these young stalwarts.
 
 The Germans are coming! Sure, we would run. But not away from them but towards them. We will go to Berlin (if given a chance) in a heartbeat.   
