@@ -1,4 +1,4 @@
 ---
 published: true
 ---
-![Let's Ride](/images/Let's Ride 7.jpg)
+![The Germans](/images/Raya Garden 27.jpg)
