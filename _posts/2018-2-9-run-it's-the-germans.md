@@ -26,3 +26,5 @@ The future looks bright for these young stalwarts.
 
 The Germans are coming! Sure, we would run. But not away from them but towards them. We will go to Berlin if given a chance in a heartbeat.   
 Germany is not only consist of architectural treasures and fascinating views. The people living in it are even more genuine!  
+
+Himmel und Hölle in Bewegung setzen!
