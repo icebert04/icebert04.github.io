@@ -19,7 +19,7 @@ They have 9 different borders (France, Luxembourg, Belgium, the Netherlands, Den
 They have the Beers, the Sauerkraut & sausages, the Beethoven, Mozart, Bach and Brahms.   
 Plus, Germany is also home to some of Europe’s finest and most famous castles.   
 
-Aside from the dogs (German Sheperd, Doberman, Rottweiler, and Dachsund), they also have the best automobiles such as BMW, Mercedes-Benz, Audi, Porsche and Volkswagen.
+Aside from the dogs (German Shepherd, Doberman, Rottweiler, and Dachsund), they also have the best automobiles such as BMW, Mercedes-Benz, Audi, Porsche and Volkswagen.
 
 Germany has a lot of contribution to the world but the only thing that comes to the mind of the people is just.... **HITLER** or **Heil Hitler**!   
 
