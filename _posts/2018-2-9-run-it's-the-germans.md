@@ -9,4 +9,5 @@ I had to meet 2 young Germans who were here with us for a few weeks. I'll tell y
 We came to know a lot of things about them. The reason why they travel, their school back home, their govenrment and the refugees, their culture, and many more.
 We may have different background stories based from our distinct nationalities but for me... they are just like Regular Joes... like any other Filipino. In other words, they are also human beings.... duh!!!
 
+Come to think of it, Germany is not a bad country at all. Currently, both domestic and international undergraduates at public universities in Germany can study for FREE!   
 
