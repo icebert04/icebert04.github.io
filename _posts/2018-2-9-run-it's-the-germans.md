@@ -10,4 +10,7 @@ We came to know a lot of things about them. The reason why they travel, their sc
 We may have different background stories based from our distinct nationalities but for me... they are just like Regular Joes... like any other Filipino. In other words, they are also human beings.... duh!!!
 
 Come to think of it, Germany is not a bad country at all. Currently, both domestic and international undergraduates at public universities in Germany can study for FREE!   
+They have 9 different borders (France, Luxembourg, Belgium, the Netherlands, Denmark, Poland, the Czech Republic, Austria and Switzerland - phew), that you can travel to by just taking a bus or train.   
+They have the Beers, the Sauerkraut & sausages, the Beethoven, Mozart, Bach and Brahms. Plus, Germany is also home to some of Europe’s finest and most famous castles.   
 
+Aside from the dogs (German Sheperd, Doberman, Rottweiler, and Dachsund), they also have the best automobiles such as BMW, Mercedes-Benz, Audi, Porsche and Volkswagen.
