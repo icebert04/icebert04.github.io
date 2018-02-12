@@ -31,4 +31,5 @@ Well, the moon has a lot to do with our metaphysical and interpersonal influence
 
 So I brought my date home, and soon invited her to another date and another and another. I can't remember how many dates we've been. We've been doing this for so many years. Sometimes with our kids, sometime it's just us. 
 
-But for me, the most memorable one is Jollibee. 
+But for me, the most memorable one is Jollibee. I am thankful not because Jollibee gave a good view of our town's old church, nor Jose Rizal, and not even the Full Moon.   
+I am forever grateful because Jollibee gave me a perfect date and a loving wife who I am happily married for 16 years. 
