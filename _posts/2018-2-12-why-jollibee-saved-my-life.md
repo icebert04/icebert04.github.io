@@ -3,7 +3,7 @@ published: true
 ---
 ![Jollibee](/images/Kuwentong Jollibee 3.jpg)
 
-I have been to failed relationships in the past. Girls whom I tought would be the one who I would marry someday. I really the don't know the reason for my past breakups but I have to believe that is you should get "The Sign" in order to know if the person is it. 
+I have been to failed relationships in the past. Girls whom I thought would be the one who I would marry someday. I really don't know the reason for my past breakups but I have to believe that it all comes down to getting "**The Sign**" in order to know if the person is the one. 
 
 Many of my hypothesis failed because of the wrong 1st impression first date. I tried proposing to a girl by giving a Yellow Lababrador as my proposal ring. Did it work? We had a good run but that's about it.   
 How about bringing my date to overcrowded theme park in Santa Rosa? Did that work? Nah, we only relish on Echanted Kingdom night fireworks but it never push through on our relationships.   
@@ -33,3 +33,5 @@ So I brought my date home, and soon invited her to another date and another and 
 
 But for me, the most memorable one is Jollibee. I am thankful not because Jollibee gave a good view of our town's old church, nor Jose Rizal, and not even the Full Moon.   
 I am forever grateful because Jollibee gave me a perfect date and a loving wife who I am happily married for 16 years. 
+
+Absolutely, beyond any doubt, **Jollibee did really saved my life**!  
