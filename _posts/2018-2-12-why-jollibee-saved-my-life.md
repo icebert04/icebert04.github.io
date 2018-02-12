@@ -7,7 +7,7 @@ I have been to failed relationships in the past. Girls whom I thought would be t
 
 Many of my hypothesis failed because of the "**Wrong 1st Impression 1st Date**". I tried proposing to a girl by giving a Yellow Lababrador as my proposal ring. Did it work? We had a good run yeah, but that's as far as it goes.   
 How about bringing my date to an overcrowded theme park in Santa Rosa? Did that work? Nah, we only relished on Echanted Kingdom's night fireworks but we were better off as friends.   
-My last failed one was a sporty one. Playing billiards on our first date will make people think that it's a pretty good idea but it ended up us two fooling and playing around with each other.   
+My last failed one was a sporty one. Playing billiards on our first date will make people think that it's a pretty good idea, but it ended up us two fooling and playing around with each other.   
 It was tough and devasting for me. Neither one of those dates that I had went the extra mile. 
 
 For me, I need to get "**The Sign**" and I should get a very good 1st impression on that first date to make it work.   
