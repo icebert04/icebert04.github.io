@@ -16,9 +16,10 @@ I was starting to be afraid that I will have nobody in my life. Some guys like t
 Until the time came when I met this girl who lives in my same province in Balayan Batangas. It was never really love at first sight but I was very interested in her. Who she is, her likes & dislikes, her passion and everything else.   
 So I had to ask her out on a date.... again. But mother nature is not in my favor... geography wise. Balayan (during those times) is too secluded from places to have romantic dates. Tagaytay is too far while the beaches is too isolated at night (not to mention scary).   
 I was totally clueless! Afraid to making that mistake all over again.   
-So I hop in to my car, pick up my date in her place, and went strolling for almost an hour in that small town. 
+So I hop in to my car, pick up my date in her place, and went strolling for almost an hour in that small town.   
+Even my date doesn't know have the slightest idea on where to go. 
 
-Even my date doesn't know have the slightest idea on where to go. Until I saw Jollibee. At that time, there was no other new restaurant that we can go to.   
+Until I saw Jollibee. At that time, there was no other new restaurant that we can go to.   
 So we ordered and looked for a place to sit. The ground floor was jammed with people so we took the 2nd floor.   
 We were suprised to see that only a few people in that floor. Maybe because people in the province sleep and retire early compared to the city.   
 So we sat down right beside the very large window. It was nice. We get to see the old Balayan Church. The church is listed as a National Cultural Treasure as its construction was supervised by Filipino Seculars during the Spanish Colonial Period.
