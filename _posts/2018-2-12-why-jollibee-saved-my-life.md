@@ -13,3 +13,7 @@ Neither one of those dates that I had went the extra mile.
 For me, I need to get "The Sign" and I should get a very good 1st impression on that first date to make it work.   
 I was starting to be afraid that I will have nobody in my life. Some guys like that, to have the "Flavors of Month" availble whenever they need it. But not me. I want to setlle down, get married to the love of my life and live happy forever after.... just like in Walt Disney Movies!
 
+Until the time came when I met this girl who lives in my same province in Balayan Batangas. It was never really love at first sight but I was very interested in her. Who she is, her likes & dislikes, her passion and everything else.   
+So I had to ask her out on a date.... again. But mother nature is not in my favor... geography wise. Balayan (during those times) is to secluded from places to have a romantic dates. Tagaytay is too far while the beaches is to isolated at night.   
+I was totally clueless! Afraid to making that mistake all over again.   
+So I hop in to my car, pick up my date in her place, and went strolling for almost an hour in that small town. 
