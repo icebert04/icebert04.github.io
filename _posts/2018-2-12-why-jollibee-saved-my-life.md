@@ -1,4 +1,4 @@
 ---
 published: true
 ---
-![Jollibee](/images/Kuwentong Jollibee 2.jpg)
+![Jollibee](/images/Kuwentong Jollibee 3.jpg)
