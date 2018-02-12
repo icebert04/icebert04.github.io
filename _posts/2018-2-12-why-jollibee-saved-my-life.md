@@ -27,7 +27,7 @@ So we sat down right beside the very large window. It was nice. We get to see th
 I even got to see good old Dr. Jose Rizal down below standing in front the town's proper rotunda. It was perfect! Me and my date was enjoying our time together there almost isolated from everybody else.    The "**Getting to Know Each Other**" moment was combined with laughter while munching Jollibee's all time favorites.   
 But I was not really focusing about the food, the surrounding, not even Jose Rizal. I was just looking at her lovely face. Quitely asking myself... "**Is She The One**"!  
 
-I then look at the window and saw that it was a Full Moon. Could this be the Sign?    
+I then look at the window and saw that it was a Full Moon. **Could this be the Sign**?    
 Well, the moon has a lot to do with our metaphysical and interpersonal influences. It affects your mood, personality, and especially relationships. I have to say that this 1st impression first date really went beyond our expectations. It was heaven!
 
 So I brought my date home, and soon invited her to another date and another and another. I can't remember how many dates we've been. We've been doing this for so many years. Sometimes with our kids, sometime it's just us. 
