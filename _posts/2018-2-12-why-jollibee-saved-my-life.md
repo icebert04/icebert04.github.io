@@ -23,3 +23,4 @@ So we ordered and looked for a place to sit. The ground floor was jammed with pe
 We were suprised to see that only a few people in that floor. Maybe because people in the province sleep and retire early compared to the city.   
 So we sat down on right beside the very large window. It was nice. We get to see the old Balayan Church. The church is listed as a National Cultural Treasure as its construction was supervised by Filipino Seculars during the Spanish Colonial Period.
 
+I even got to see good old Dr. Jose Rizal down below standing in front the town's proper rotunda. 
