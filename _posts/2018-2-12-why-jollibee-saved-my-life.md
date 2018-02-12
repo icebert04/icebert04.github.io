@@ -21,7 +21,7 @@ Even my date doesn't know have the slightest idea on where to go.
 
 Until I saw Jollibee. At that time, there was no other new restaurant that we can go to.   
 So we ordered and looked for a place to sit. The ground floor was jammed with people so we took the 2nd floor.   
-We were suprised to see that only a few people in that floor. Maybe because people in the province sleep and retire early compared to the city.   
+We were surprised to see that only a few people in that floor. Maybe because people in the province sleep and retire early compared to the city.   
 So we sat down right beside the very large window. It was nice. We get to see the old Balayan Church. The church is listed as a National Cultural Treasure as its construction was supervised by Filipino Seculars during the Spanish Colonial Period.
 
 I even got to see good old Dr. Jose Rizal down below standing in front the town's proper rotunda. It was perfect! Me and my date was enjoying our time together there almost isolated from everybody else.    The "**Getting to Know Each Other**" moment was combined with laughter while munching Jollibee's all time favorites.   
