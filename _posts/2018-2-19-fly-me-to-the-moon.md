@@ -27,4 +27,11 @@ But like all of us, Junie made mistakes and failed in life. This made he fall do
 Although he tried on climbing back, he keeps on going back to the dirty ground. What made it worse, some of friends of his kept saying to him that he is no good and should do things that other commong people do.   
 He may reach the distance sometimes but he never really made it as far as the moon. To my knowledge that really hurt him.
 
+Fast forward to present time. I gave my lost friend some business advice. I introduced him to some people that I think might help him. And checked on him from time to time to monitor on his progress. I told him that though this business will bring him food on the table but it won't bring him to the moon. 
 
+I never stop convincing him to use his talents and put it to good use like create a YouTube channel and teach aspiring Rock & Roll musicians of this generation. Or go solo and perform an acoustic night event in Tagaytay. The sky is the limit.
+
+For now, Junie is seriously engaged into business as his mode of active income but at the same time he is slowly growing his momentum back for him to get his wings and make him fly to the moon.
+
+Apollo 17 (dated December 11, 1972) was the final mission of NASA's Apollo program to the moon. My talentd friend junie Quiogue will be flying this year space shuttle.   
+Watch for it!
