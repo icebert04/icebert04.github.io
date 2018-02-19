@@ -22,15 +22,15 @@ On a lighter note, Junie is also good in composing love letters. He used to make
 
 Everything really went well for Junie during those time that he feels like **He is Flying to the Moon**. He could easily touch the skies whenever he aims for his dreams.
 
-But like all of us, Junie made mistakes and failed in life. This made he fall down on earth hard and very painful. Those unfortunate events clouded his thinking and decision making.   
-Although he tried on climbing back, he keeps on going back to the dirty ground. What made it worse, some of friends of his kept saying to him that he is no good and should do things that other commong people do.   
-He may reach the distance sometimes but he never really made it as far as the moon. To my knowledge that really hurt him.
+But like all of us, Junie made mistakes and failed in life. This made him fall down on earth fast and hard (not to mention painful). Those unfortunate events clouded his thinking and decision making.   
+Although he tried on climbing back, he keeps on going back to where he came from (the dirty ground). What made it worse, some of his friends kept saying to him that he is no good and should do things that other commong people do (be like a clerk).   
+He may reach the distance sometimes but he never really made it as far as the moon. To my knowledge, that really hurt him.
 
-Fast forward to present time. I gave my lost friend some business advice. I introduced him to some people that I think might help him. And checked on him from time to time to monitor on his progress. I told him that though this business will bring him food on the table but it won't bring him to the moon. 
+Fast forward to present time. I gave my distracted friend some business advice. I introduced him to some people that I think might help him. And checked on him from time to time to monitor on his progress. I told him that though this business will bring him food on the table but it won't bring him to the moon. 
 
-I never stop convincing him to use his talents and put it to good use like create a YouTube channel and teach aspiring Rock & Roll musicians of this generation. Or go solo and perform an acoustic night event in Tagaytay. The sky is the limit.
+I never stop convincing him to use his talents and put it to good use like create a YouTube channel and teach aspiring Rock & Roll musicians of this generation. Or go solo and perform an acoustic night event in Tagaytay. The sky is the limit for a talented guy like him. 
 
-For now, Junie is seriously engaged into business as his mode of active income but at the same time he is slowly growing his momentum back for him to get his wings and make him fly to the moon.
+For now, Junie is seriously engaged into agriculture business as his main source of income but at the same time he is slowly growing his momentum back for him to get his wings and make him fly to the moon.
 
-Apollo 17 (dated December 11, 1972) was the final mission of NASA's Apollo program to the moon. My talentd friend junie Quiogue will be flying this year space shuttle.   
+Last December 11, 1972, NASA sent Apollo 17 as the final mission Apollo program to the moon. This year, My talentd friend Junie Quiogue will be flying NASA's next space shuttle.   
 Watch for it!
