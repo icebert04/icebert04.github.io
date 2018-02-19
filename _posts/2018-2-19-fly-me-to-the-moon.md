@@ -12,7 +12,7 @@ And this is what I replied to him...
 **"Are you kidding me? You are way more talented than me"!**
 
 In fact, Junie truly is such a talented person and I should be asking advice from him and not the other way around.   
-For starters, he is an excellent musician and lead guitairist. He even build his own Rock band called "**Mahabaratbu**" during the **Club Dredd Days**.   
+For starters, he is an excellent musician and lead guitarist. He even build his own Rock band called "**Mahabaratbu**" during the **Club Dredd Days**.   
 Aside from that, he taught me and my friends in our village in Pasig to play the guitar correctly and with passion.
 
 Junie opened our eyes and exposed us to the Real Music and not the boring romantic Barry Manilow types. He introduced us to well renowned Rock Bands like Nirvana, Red Hot Chili Peppers, Metallica, Rage Against The Machine, Pantera, Sepultura and many more.   
