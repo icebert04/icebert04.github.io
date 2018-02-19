@@ -22,9 +22,9 @@ On a lighter note, Junie is also good in composing love letters. He used to make
 
 Everything really went well for Junie during those time that he feels like **He is Flying to the Moon**. He could easily touch the skies whenever he aims for his dreams.
 
-But like all of us, Junie made mistakes and failed in life. This made him fall down on earth fast and hard (not to mention painful). Those unfortunate events clouded his thinking and decision making.   
-Although he tried on climbing back, he keeps on going back to where he came from (the dirty ground). What made it worse, some of his friends kept saying to him that he is no good and should do things that other commong people do (be like a clerk).   
-He may reach the distance sometimes but he never really made it as far as the moon. To my knowledge, that really hurt him.
+But like most of us, Junie made mistakes and failed in life. This made him fall down on earth fast and hard (not to mention painful). Those unfortunate events clouded his thinking and decision making.   
+Although he tried on climbing back, he keeps on going back to where he came from (the dirty ground).   What made it worse, some of his friends kept saying to him that he is no good and should do things that other common people do (like working as a clerk).   
+He did reach the distance sometimes but he never really made it as far as the moon. To my knowledge, that really hurt him.
 
 Fast forward to present time. I gave my distracted friend some business advice. I introduced him to some people that I think might help him. And checked on him from time to time to monitor on his progress. I told him that though this business will bring him food on the table but it won't bring him to the moon. 
 
