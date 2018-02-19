@@ -17,6 +17,7 @@ Aside from that, he taught me and my friends in our village in Pasig to play the
 
 Junie opened our eyes and exposed us to the Real Music and not the boring romantic Barry Manilow types. He introduced us to well renowned Rock Bands like Nirvana, Red Hot Chili Peppers, Metallica, Rage Against The Machine, Pantera, Sepultura and many more.   
 It totally liberated us and made us "**Real Men**"! Such an awakening indeed!
+Did you ever tried the "**Mosh Pit**" before? If you haven't or you don't know the word... I pity you!
 
 On a lighter note, Junie is also good in composing love letters. He used to make love letters for me for the girl that I was courting in University of Asia and the Pacific. He is such good in words that he can work for the largest manufacturer of greeting cards (Hallmark Cards). He can also contribute articles for the the Newsweek, Reader's Digest, Rolling Stone, or the National Geographic.
 
