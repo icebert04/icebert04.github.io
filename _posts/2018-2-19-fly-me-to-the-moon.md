@@ -32,5 +32,6 @@ I never stop convincing him to use his talents and put it to good use like creat
 
 For now, Junie is seriously engaged into agriculture business as his main source of income but at the same time he is slowly growing his momentum back for him to get his wings and make him fly to the moon.
 
-Last December 11, 1972, NASA sent Apollo 17 as the final mission Apollo program to the moon. This year, My talentd friend Junie Quiogue will be flying NASA's next space shuttle.   
+Last December 11, 1972, NASA sent Apollo 17 as the final Apollo program to the moon.   
+This year, My talented friend Junie Quiogue will be flying NASA's next mission to space.   
 Watch for it!
