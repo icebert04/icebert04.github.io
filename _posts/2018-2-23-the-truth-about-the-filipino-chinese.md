@@ -23,7 +23,8 @@ Another extraordinary story is of Lucio Tan, who had to work in Bataan Tobacco F
 How about Henry Sy, a small time Sari-Sari store vendor who became the "Shopping Mall King" of Asia.
 
 The list goes on and on and most of them succeeded and past it on to their children.
-Just look around in your area and try to interview a Tsinoy and ask about their success. They may have different stories and businesses but the concept and approach remains the same.
+Just look around in your area and try to interview a Tsinoy and ask about their success.   
+They may have different stories and businesses but the concept and approach remains the same.
 They somehow endured the early struggles and now reaping what they sow.
 
 I was lucky that I got to talk to some of my Tsinoy friends who, in some way, made a decent earning and provided well for their family.
