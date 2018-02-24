@@ -8,7 +8,7 @@ We do have a lot of "**Tsinoy**" (Chinese Filipino) in our country. But how come
 The answer is this... "**They started out Dirt Poor**"! They are the prototypical "**Rags To Riches**" stories here in the Philippines.
 
 In the late 18th century, China was in turmoil. Forcing many Chinese to leave their homeland in hopes of making a living.
-A lot of them came from Fujian province (southeast coast of mainland China).
+A lot of them came from Fujian province (southeast coast of mainland China).   
 Their ancestors would need to travel 3 months by sea to reach countries in Southeast Asia.
 They lived in the boat cabin for a long time with insufficient water and food. Some could not even last the entire journey.
 
@@ -19,7 +19,7 @@ Now most of these Chinese are among the richest in our country today.
 John Gokongwei, born in Fujian Province, China... peddled along the streets of Cebu and wet markets in various towns selling soaps.
 Now he owns big companies such as Cebu Pacific, Universal Robina and Robinsons.
 
-Another extraordinary story is of Lucio Tan, who had to work in Bataan Tobacco Factory to help the family. We all know what he is now today.
+Another extraordinary story is of Lucio Tan, who had to work in Bataan Tobacco Factory to help the family. We all know what he is now today.   
 How about Henry Sy, a small time Sari-Sari store vendor who became the "Shopping Mall King" of Asia.
 
 The list goes on and on and most of them succeeded and past it on to their children.
