@@ -12,7 +12,7 @@ A lot of them came from Fujian province (southeast coast of mainland China).
 Their ancestors would need to travel 3 months by sea to reach countries in Southeast Asia.
 They lived in the boat cabin for a long time with insufficient water and food. Some could not even last the entire journey.
 
-After that long trip, these Chinese will now land in countries like The Philippines and find how they will survive in a strange place. They don't have lands, connections and even money.
+After that long trip, these Chinese will now land in countries like The Philippines and find how they will survive in a strange place. They don't have lands, connections and even money.   
 All they got is their will, grit and determination. They will trade and barter anything to stay alive in a foreign land.
 
 Now most of these Chinese are among the richest in our country today.
