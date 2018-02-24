@@ -27,7 +27,7 @@ Just look around in your area and try to interview a Tsinoy and ask about their 
 They may have different stories and businesses but the concept and approach remains the same.
 They somehow endured the early struggles and now reaping what they sow.
 
-I was lucky that I got to talk to some of my Tsinoy friends who, in some way, made a decent earning and provided well for their family.
+I was lucky that I got to talk to some of my Tsinoy friends who, in some way, made a decent earning and provided well for their family.   
 I asked them what is wrong with the Filipinos? Why most of them are Poor?
 
 My Tsinoy friends said that Filipinos are "Showy" and give importance on one thing that will depreciate in value... Material Things!
