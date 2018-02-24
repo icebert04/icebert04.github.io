@@ -37,7 +37,8 @@ People in the Middle Class that are stuck in limbo because they use their money 
 They buy these and that, post it in Facebook, buy some more, then post it to brag to everybody thinking that they belong to the "Elite".
 
 The "**Real Elite**" are exactly the opposite. They don't attend evening parties, buy much branded items, and they definitely hide (not brag) their success in Facebook.
-They don't think of houses and cars. They aim for factories and businesses because according to them, those are they called "**Cash Cows**" that will feed their needs for life.
+They don't think of houses and cars.   
+They aim for factories and businesses because according to them, those are they called "**Cash Cows**" that will feed their needs for life.
 
 These Tsinoys advice are very simple... just 2 words:
 **FRUGALITY & DISCIPLINE**.
