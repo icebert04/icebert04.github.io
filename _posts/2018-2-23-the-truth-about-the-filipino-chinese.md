@@ -46,6 +46,6 @@ These Tsinoys advice are very simple... just 2 words:
 Nothing poetic, no scientific study, no secrets.   
 All of us just need to do is to be "**Consistent**" in doing these 2 words and we will get to their level.
 
-These Tsinoys has definitely come along way. They are living proof of financial success.
+These Tsinoys has definitely come along way. They are living proof of financial success.   
 If they can do it, We can do it too.
 All we need is to change our mindset!
