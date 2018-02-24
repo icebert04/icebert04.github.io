@@ -43,7 +43,7 @@ They aim for factories and businesses because according to them, those are they 
 These Tsinoys advice are very simple... just 2 words:
 **FRUGALITY & DISCIPLINE**.
 
-Nothing poetic, no scientific study, no secrets.
+Nothing poetic, no scientific study, no secrets.   
 All of us just need to do is to be "**Consistent**" in doing these 2 words and we will get to their level.
 
 These Tsinoys has definitely come along way. They are living proof of financial success.
