@@ -3,9 +3,9 @@ published: true
 ---
 ![Tsinoy](/images/Mang Ben.jpg)
 
-We do have a lot of "Tsinoy" (Chinese Filipino) in our country. But how come most of them are Rich?
+We do have a lot of "**Tsinoy**" (Chinese Filipino) in our country. But how come most of them are Rich?
 
-The answer is this... "They started out Dirt Poor"! They are the prototypical "Rags To Riches" stories here in the Philippines.
+The answer is this... "**They started out Dirt Poor**"! They are the prototypical "**Rags To Riches**" stories here in the Philippines.
 
 In the late 18th century, China was in turmoil. Forcing many Chinese to leave their homeland in hopes of making a living.
 A lot of them came from Fujian province (southeast coast of mainland China).
@@ -35,14 +35,14 @@ You know, stories like a Yaya buying an iPhone rather than putting up a small Ag
 People in the Middle Class that are stuck in limbo because they use their money on things to impress the other Middle Class.
 They buy these and that, post it in Facebook, buy some more, then post it to brag to everybody thinking that they belong to the "Elite".
 
-The "Real Elite" are exactly the opposite. They don't attend evening parties, buy much branded items, and they definitely hide (not brag) their success in Facebook.
-They don't think of houses and cars. They aim for factories and businesses because according to them, those are they called "Cash Cows" that will feed their needs for life.
+The "**Real Elite**" are exactly the opposite. They don't attend evening parties, buy much branded items, and they definitely hide (not brag) their success in Facebook.
+They don't think of houses and cars. They aim for factories and businesses because according to them, those are they called "**Cash Cows**" that will feed their needs for life.
 
 These Tsinoys advice are very simple... just 2 words:
-FRUGALITY & DISCIPLINE.
+**FRUGALITY & DISCIPLINE**.
 
 Nothing poetic, no scientific study, no secrets.
-All of us just need to do is to be "Consistent" in doing these 2 words and we will get to their level.
+All of us just need to do is to be "**Consistent**" in doing these 2 words and we will get to their level.
 
 These Tsinoys has definitely come along way. They are living proof of financial success.
 If they can do it, We can do it too.
