@@ -30,7 +30,7 @@ They somehow endured the early struggles and now reaping what they sow.
 I was lucky that I got to talk to some of my Tsinoy friends who, in some way, made a decent earning and provided well for their family.   
 I asked them what is wrong with the Filipinos? Why most of them are Poor?
 
-My Tsinoy friends said that Filipinos are "Showy" and give importance on one thing that will depreciate in value... Material Things!
+My Tsinoy friends said that Filipinos are "Showy" and give importance on one thing that will depreciate in value... Material Things!   
 You know, stories like a Yaya buying an iPhone rather than putting up a small Agri-business in their province.
 
 People in the Middle Class that are stuck in limbo because they use their money on things to impress the other Middle Class.
