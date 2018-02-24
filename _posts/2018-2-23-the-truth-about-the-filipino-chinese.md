@@ -33,7 +33,7 @@ I asked them what is wrong with the Filipinos? Why most of them are Poor?
 My Tsinoy friends said that Filipinos are "Showy" and give importance on one thing that will depreciate in value... Material Things!   
 You know, stories like a Yaya buying an iPhone rather than putting up a small Agri-business in their province.
 
-People in the Middle Class that are stuck in limbo because they use their money on things to impress the other Middle Class.
+People in the Middle Class that are stuck in limbo because they use their money on things to impress the other Middle Class.   
 They buy these and that, post it in Facebook, buy some more, then post it to brag to everybody thinking that they belong to the "Elite".
 
 The "**Real Elite**" are exactly the opposite. They don't attend evening parties, buy much branded items, and they definitely hide (not brag) their success in Facebook.
