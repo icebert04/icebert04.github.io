@@ -19,6 +19,8 @@ If she does loves it, that means that she's a keeper! It means she can ride the 
 
 After that, you can go ahead and advance to a more extravagant and upscale dates for as many as you want. She totally deserves it (even if it is highway robbery). It just proves what kind of personality your date has. Her parents could be influential on who she is today. Your date has good upbringing and that my son is very wife material.
 
-I mean, if you see a girl who doesn't mind mingling with the affluent and the rich but also who can hug the poorest of the poor. If you do meet a person like that... you are in good position to potentially marry someone who will not give you a headache for the rest of your adult life.   
+I mean, if you see a girl who doesn't mind mingling with the affluent and the rich but also who can hug the poorest of the poor. 
+So, the hottest woman in the world, but hates to learn and read? Goodbye. An attractive, affluent person, but tramples on others’ dignity? Bye.”
+If you do meet a person like that... you are in good position to potentially marry someone who will not give you a headache for the rest of your adult life.   
 I don't care if she is rich or poor, brown skin or white skin, blah..   
-What I am looking for is a woman who is genuinely likes you for who you are. Someone 
+What I am looking for is a woman who is genuinely likes you for who you are. Someone who shares your values.
