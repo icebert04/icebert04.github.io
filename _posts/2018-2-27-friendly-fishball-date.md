@@ -22,5 +22,5 @@ After that, you can go ahead and advance to a more extravagant and upscale dates
 I mean, if you see a girl who doesn't mind mingling with the affluent and the rich but also who can hug the poorest of the poor. 
 So, the hottest woman in the world, but hates to learn and read? Goodbye. An attractive, affluent person, but tramples on others’ dignity? Bye.”
 If you do meet a person like that... you are in good position to potentially marry someone who will not give you a headache for the rest of your adult life.   
-I don't care if she is rich or poor, brown skin or white skin, blah..   
-What I am looking for is a woman who is genuinely likes you for who you are. Someone who shares your values.
+I don't care if she is rich or poor, brown, tan, or white, a good cook or not....   
+What I am looking for is a woman who is genuinely likes you for who you are. Someone who shares your values. And someone who will love you unconditionally and makes you a better man.
