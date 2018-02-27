@@ -25,9 +25,9 @@ But if you do meet a person who is sincere, sweet and charming... you are in goo
 I don't care if she is rich or poor, brown, tan, or white, a good cook or not....   
 What I am looking for is a woman who is genuinely likes you for who you are. Someone who shares your values. And someone who will love you unconditionally and makes you a better man.
 
-If you ask me, it wouldn't hurt if she is pretty (someone who will give attractive apos). I would like that she gets along with your immediate family and friends. She shouldn’t be critical of the people who you love and have been loyal to you throughout your life. She can have some bad habits and traits but in general, she should be a good fit with the people in your life. Marriage is a joining of two lives that existed prior to meeting the other person.
+If you ask me, it wouldn't hurt if she is pretty (someone who will give attractive apos). I would like that she gets along with your immediate family and friends. She shouldn’t be critical of the people who you love and have been loyal to you throughout your life. She can have some bad habits & traits and all, but in general, she should be a good fit with the people in your life. Marriage is a joining of two lives that existed prior to meeting the other person.
 
-But it is just me, your daddy, who sometimes expects the moon and stars. You can't blame me you know... after all you are my son and I love you so much and I always want you to have the moon and the stars. The whole universe if I have to. 
+But it is just me, your daddy, who sometimes expects the moon and stars. You can't blame me you know... after all you are my son and I love you so much and I always want you to have the moon and the stars.... The whole universe if I have to. 
 
 So go ahead and go on friendly fishball dates. Date as many girls as want. Get to know them. Because one day there will come a time that you will meet a person that will make you say.... "God, I wanna go on a enchanting fishball dates with her for the rest of my life"! 
 
