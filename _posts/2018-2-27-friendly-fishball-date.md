@@ -24,7 +24,7 @@ If you think she is the hottest woman in the world, but hates to learn and read.
 An attractive, affluent person, but tramples on other's dignity.... **Bye Bitch**!   
 But if you do meet a person who is sincere, sweet and charming... you are in good position to potentially marry someone who will not give you a headache for the rest of your adult life.   
 I don't care if she is rich or poor, brown, tan, or white, a good cook or not....   
-What I am looking for is a woman who is genuinely likes you for who you are. Someone who shares your values. And someone who will love you unconditionally and makes you a better man.
+What I am looking for is a woman who will genuinely likes you for who you are. Someone who shares your values. And someone who will love you unconditionally and makes you a better man.
 
 If you ask me, it wouldn't hurt if she is pretty (someone who will give attractive apos). I would like that she gets along with your immediate family and friends. She shouldn’t be critical of the people who you love and have been loyal to you throughout your life. She can have some bad habits & traits and all, but in general, she should be a good fit with the people in your life. Marriage is a joining of two lives that existed prior to meeting the other person.
 
