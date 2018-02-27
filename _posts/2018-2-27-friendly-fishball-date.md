@@ -29,4 +29,4 @@ If you ask me, it wouldn't hurt if she is pretty (someone who will give attracti
 
 But it is just me, your daddy, who sometimes expects the moon and stars. You can't blame me you know... after all you are my son and I love you so much and I always want you to have the moon and the stars. The whole universe if I have to. 
 
-So go ahead and go on friendly fishball dates. Date as many girls as want. Get to know them. Because one day there will come a time that you will meet a person who you just clicked with and is very comfortable with her. Like you've known her your whole life, and you don't have to pretend to be anyone or anything... if you see something like her... go on and go out and go on a date with her again. 
+So go ahead and go on friendly fishball dates. Date as many girls as want. Get to know them. Because one day there will come a time that you will meet a person that will make you say.... "God, I wanna go on a enchanting fishball dates with her for the rest of my life"! 
