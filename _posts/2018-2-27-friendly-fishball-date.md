@@ -5,7 +5,7 @@ published: true
 
 Dear Son,
 
-Soon, you will get bigger & taller and will be a full-fledge grown-up. Your interest will drastically change from playing game consoles & computer games to meeting pretty & fine looking girls.   
+Soon, you will get bigger & taller and will be a full-pledge grown-up. Your interest will drastically change from playing game consoles & computer games to meeting pretty & fine looking girls.   
 Your life will be most centered on the opposite sex. You will be looking at their beautiful faces on their social media accounts. You will be calling them on the phone and their voice is the only thing that you want to hear to complete your day.   
 Believe me, I too was like that during my bachelor years. Women are like "**Heroin and Bullets**". They get so heavenly addictive but will make you bleed (in sorrow) whenever they change their mind and when they feel like it.   
 It will really torture you that you will go asking yourself who is the right girl for you.  
