@@ -20,7 +20,7 @@ It means that she is not choosy and will totally be happy wherever you go... as 
 
 After that, you can go ahead and advance to a more extravagant and upscale dates for as many as you want. She totally deserves it (even if it is highway robbery). It just proves what kind of personality your date has. Her parents could be influential on who she is today. Your date has good upbringing and that my son is very wife material.
 
-If you thinkshe is the hottest woman in the world, but hates to learn and read.... So long, Farewell, Adieu!   
+If you think she is the hottest woman in the world, but hates to learn and read.... So long, Farewell, Adieu!   
 An attractive, affluent person, but tramples on other's dignity.... Bye Bitch!
 But if you do meet a person who is sincere, sweet and charming... you are in good position to potentially marry someone who will not give you a headache for the rest of your adult life.   
 I don't care if she is rich or poor, brown, tan, or white, a good cook or not....   
