@@ -14,7 +14,8 @@ My Lola is very alert and sharp on the things that I want. Because I was a quiet
 She is always a "**Mind Reader**" and have a knack on what's on your mind that you don't need to say anything at all.
 I love it so much that I had that Teddy Bear up to my teenage years (I got rid of it since my friends were teasing me). 🐻
 
-Even up to my teenage years, My Lola was always there for me. My Dad and I left her place in Parañaque and moved to Pasig. But my Lola (and Lolo) still managed to see me often since my Dad's work require to travel overseas.
+Even up to my teenage years, My Lola was always there for me.   
+My Dad and I left her place in Parañaque and moved to Pasig. But my Lola (and Lolo) still managed to see me often since my Dad's work require to travel overseas.   
 I'm a Big Boy and I'm supposed to live on my own house alone right?....
 WRONG! My Lola still took care of me and watch me playing the basketball league if she needed it to be.
 
