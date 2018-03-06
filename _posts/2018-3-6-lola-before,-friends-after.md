@@ -19,7 +19,7 @@ My Dad and I left her place in Parañaque and moved to Pasig. But my Lola (and L
 I'm a Big Boy and I'm supposed to live on my own house alone right?....
 WRONG! My Lola still took care of me and watch me playing the basketball league if she needed it to be.
 
-Then I grew older, got married, and moved back to her place. At that time I was 30 something with my two boys... Luigi & Lorenzo.
+Then I grew older, got married, and moved back to her place. At that time I was 30 something with my two boys... Luigi & Lorenzo.   
 My relationship with my Lola somewhat changed since she now diverted her attention to my kids.
 I can see from a distance how my Lola took care of me when I was little... exactly what she is doing to my children.
 
