@@ -17,7 +17,8 @@ I love it so much that I had that Teddy Bear up to my teenage years (I got rid o
 Even up to my teenage years, My Lola was always there for me.   
 My Dad and I left her place in Parañaque and moved to Pasig. But my Lola (and Lolo) still managed to see me often since my Dad's work require to travel overseas.   
 I'm a Big Boy and I'm supposed to live on my own house alone right?....
-WRONG! My Lola still took care of me and watch me playing the basketball league if she needed it to be.
+WRONG!   
+My Lola still took care of me and watch me playing the basketball league if she needed it to be.
 
 Then I grew older, got married, and moved back to her place. At that time I was 30 something with my two boys... Luigi & Lorenzo.   
 My relationship with my Lola somewhat changed since she now diverted her attention to my kids.
