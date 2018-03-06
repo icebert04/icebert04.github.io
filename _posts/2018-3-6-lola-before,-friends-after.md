@@ -23,8 +23,8 @@ Then I grew older, got married, and moved back to her place. At that time I was 
 My relationship with my Lola somewhat changed since she now diverted her attention to my kids.
 I can see from a distance how my Lola took care of me when I was little... exactly what she is doing to my children.
 
-Those candies, chocolates and toys were replaced with advises, mentoring and explaining the hard-knock life.
-My Lola has now become my friend. She taught me that family always comes firsts. That I should treat my wife just like how my Lolo treated her... like a Queen! 👑
+Those candies, chocolates and toys were replaced with advises, mentoring and explaining the hard-knock life.   
+My Lola has now become my friend. She taught me that family always comes firsts. That I should treat my wife just like how my Lolo treated her... **like a Queen**! 👑   
 That I should put God in the center of my life regardless of my profession, status, and belief.
 
 I was surprised to see how many people that she helped and accepted in her house. She helped her immediate family, her long distant relatives, the helpers, the gardeners, the drivers, even my Pug Dorian (whom she spoiled with Bulalo bones and Bear Brand Milk). 🍼
