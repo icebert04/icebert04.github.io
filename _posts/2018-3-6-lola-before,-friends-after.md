@@ -3,9 +3,9 @@ published: true
 ---
 ![Lola](/images/Lola 2.jpg)
 
- When you have a Lola or a Lolo (Grandparents), most likely you will get spoiled. That is the plain nature of it.
-They will give you candies, chocolates, toys & dolls, and anything you ask for. 🍬🍫
-They will bring you to this place and that place. They will be proud to show you off to their friends, neighbors and colleagues.
+When you have a Lola or a Lolo (Grandparents), most likely you will get spoiled. That is the plain nature of it.
+They will give you candies, chocolates, toys & dolls, and anything you ask for. 🍬🍫   
+They will bring you to this place and that place. They will be proud to show you off to their friends, neighbors and colleagues.   
 They will do anything for you because you are their treasured "Apo"!
 
 I am saying all of these because I am like one of them... those "Treasured Apo"!
