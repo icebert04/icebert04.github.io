@@ -8,7 +8,7 @@ They will give you candies, chocolates, toys & dolls, and anything you ask for. 
 They will bring you to this place and that place. They will be proud to show you off to their friends, neighbors and colleagues.   
 They will do anything for you because you are their treasured "Apo"!
 
-I am saying all of these because I am like one of them... those "Treasured Apo"!
+I am saying all of these because I am like one of them... those "**Treasured Apo**"!   
 My Lola is always with me all the time. She prepares my breakfast before riding the school bus. And then she meets meet in afternoon with my favorite sandwiches.
 My Lola is very alert and sharp on the things that I want. Because I was a quiet and shy boy at that time... my Lola took it upon herself to sew me a "Superman costume" for my Teddy Bear. She is always a "Mind Reader" and have a knack on what's on your mind that you don't need to say anything at all.
 I love it so much that I had that Teddy Bear up to my teenage years (I got rid of it since my friends were teasing me). 🐻
