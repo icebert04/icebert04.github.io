@@ -10,8 +10,8 @@ They will do anything for you because you are their treasured "Apo"!
 
 I am saying all of these because I am like one of them... those "**Treasured Apo**"!   
 My Lola is always with me all the time. She prepares my breakfast before riding the school bus. And then she meets meet in afternoon with my favorite sandwiches.   
-My Lola is very alert and sharp on the things that I want. Because I was a quiet and shy boy at that time... my Lola took it upon herself to sew me a "Superman costume" for my Teddy Bear.   
-She is always a "Mind Reader" and have a knack on what's on your mind that you don't need to say anything at all.
+My Lola is very alert and sharp on the things that I want. Because I was a quiet and shy boy at that time... my Lola took it upon herself to sew me a "**Superman Costume**" for my Teddy Bear.   
+She is always a "**Mind Reader**" and have a knack on what's on your mind that you don't need to say anything at all.
 I love it so much that I had that Teddy Bear up to my teenage years (I got rid of it since my friends were teasing me). 🐻
 
 Even up to my teenage years, My Lola was always there for me. My Dad and I left her place in Parañaque and moved to Pasig. But my Lola (and Lolo) still managed to see me often since my Dad's work require to travel overseas.
