@@ -18,4 +18,7 @@ Like this guy in the picture in a yellow shirt. He is our pool maintenance guy! 
 I took the time to get to know him.... what could go wrong.
 
 His name is Dexter. He is from North Cotobato. He told me a lot of wonderful stories about his place. A landlocked province located in the region of Mindanao.   
-Cotabato is now one of the investment-friendly provinces in Mindanao. Thousands of hectares of land are suitable for a variety of crops: rice, banana, rubber, oil palm and other high value crops.
+Cotabato is now one of the investment-friendly provinces in Mindanao. Thousands of hectares of land are suitable for a variety of crops: rice, banana, rubber, oil palm and other high value crops.   
+This 656,590 hectares of land is also blessed with beautiful surroundings and touristic places like the New Isreal's eco-tourism park that is situated at the foot of Mt. Apo.   
+You can also feel the breeze of nature of the Majestic Asik-Asik Falls.
+
