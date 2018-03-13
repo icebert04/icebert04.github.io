@@ -27,7 +27,7 @@ Did you know that a Rubber farmer in Cotobato produces a **minimum monthly incom
 Aside from the high demand of rubber products in the world market, rubber trees can be intercropped with other crops including livestock.   
 A very good place for retirement.... Hhhhmmmm???
 
-The other guy on the picture (the one with the blue shirt). He's name is Jerome and he is from Bacolod. He is a longtime family driver but little did I know that his last name is a Tanalgo.   
+The other guy on the picture (the one with the blue shirt). His name is Jerome and he is from Bacolod. He is a longtime family driver but little did I know that his last name is a Tanalgo.   
 He is related to the Tanalgo siblings (Rose, Bing and JM) who happens to be the owners of Bacolod Chicken Inasal.   
 It's a wholly owned subsidiary restaurant that orginated in Bacolod. 
 
