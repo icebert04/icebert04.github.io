@@ -23,7 +23,7 @@ Cotabato is now one of the investment-friendly provinces in Mindanao. Thousands 
 This 656,590 hectares of land is also blessed with beautiful surroundings and touristic places like the New Isreal's eco-tourism park that is situated at the foot of Mt. Apo.   
 You also have the option to feel the breeze of nature of the Majestic Asik-Asik Falls.
 
-Did you know that Rubber farmer in Cotobato produces a minimum monthly income of P36,000.00 per hectare or a minimum annual income of P432,000.00 per hectare?   
+Did you know that a Rubber farmer in Cotobato produces a minimum monthly income of P36,000.00 per hectare or a minimum annual income of P432,000.00 per hectare?   
 Aside from the high demand of rubber products in the world market, rubber trees can be intercropped with other crops including livestock.   
 A very good place for retirement.... Hhhhmmmm???
 
