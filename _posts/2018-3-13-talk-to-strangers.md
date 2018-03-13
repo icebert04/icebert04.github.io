@@ -10,7 +10,7 @@ Tell me... I'm really curious!
 
 Me on the other hand wants to see a stranger every chance I get. Strangers to me are like Coins in the Nintendo Mario Bros video game. I try to get as many coins as I want.   
 Why?   
-My answer is this.... "Every individual has one unique story to tell that you could apply in your daily life"!
+My answer is this.... "Every individual has one unique story to tell that you can apply in your daily life"!
 
 I give one scenario. I swim regularly. But I just don't go out and swim, take a shower and head back home. I always check if there is people around. And believe me, there are always people around.   
 
