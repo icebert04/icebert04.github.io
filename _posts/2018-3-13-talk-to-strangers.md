@@ -35,7 +35,7 @@ This time, me and Jerome were talking about native chickens, how the Inasal is m
 It's a pleasing story to hear especially when you are hungry.
 
 North Cotobato and Bacolod. Two places that I haven't been but now have more reason to visit.   
-I wouldnt' know this information if acted like a horse with blinders in my eye. I just talked to these strangers and suddenly they became my friends.   
+I wouldnt' know this information if I acted like a horse with blinders in my eye. I just talked to these strangers and suddenly they became my friends.   
 We might do business together or not. It does not really matter. What matters is my perception in life is larger and better due to meeting new and interting individuals.
 
 So, let me ask this question again.... When is the last time you talked to a stranger?
