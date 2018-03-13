@@ -16,3 +16,6 @@ I give one scenario. I swim regularly. But I just don't go out and swim, take a 
 
 Like this guy in the picture in a yellow shirt. He is our pool maintenance guy! Only a few people talk to him. He just sits there all alone in his chair.   
 I took the time to get to know him.... what could go wrong.
+
+His name is Dexter. He is from North Cotobato. He told me a lot of wonderful stories about his place. A landlocked province located in the region of Mindanao.   
+Cotabato is now one of the investment-friendly provinces in Mindanao. Thousands of hectares of land are suitable for a variety of crops: rice, banana, rubber, oil palm and other high value crops.
