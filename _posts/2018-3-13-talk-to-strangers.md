@@ -31,7 +31,7 @@ The other guy on the picture (the one with the blue shirt). He's name is Jerome 
 He is related to the Tanalgo siblings (Rose, Bing and JM) who happens to be the owners of Bacolod Chicken Inasal.   
 It's a wholly owned subsidiary restaurant that orginated in Bacolod. 
 
-This time me and Jerome were talking about native chickens, how the Inasal is made, and all of it's secret behind it.   
+This time, me and Jerome were talking about native chickens, how the Inasal is made, and all of it's secret behind it.   
 It's a pleasing story to hear especially when you are hungry.
 
 North Cotobato and Bacolod. Two places that I haven't been but now have more reason to visit.   
