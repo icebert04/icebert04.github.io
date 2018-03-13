@@ -15,7 +15,7 @@ My answer is this.... "Every individual has one unique story to tell that you ca
 I give you one scenario. I swim regularly. But I just don't go out and swim, take a shower and head back home. I always check if there is people around.   
 And believe me, there are always people around.   
 
-Like this guy in the picture in a yellow shirt. He is our pool maintenance guy! Only a few people talk to him. He just sits there all alone in his chair.   
+Like this guy in the picture in a yellow shirt. He is our pool maintenance guy. Only a few people talk to him. He just sits there all alone in his chair.   
 I took the time to get to know him.... what could go wrong.
 
 His name is Dexter. He is from North Cotobato. He told me a lot of wonderful stories about his place. A landlocked province located in the region of Mindanao.   
