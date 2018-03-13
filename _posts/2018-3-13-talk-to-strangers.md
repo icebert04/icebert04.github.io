@@ -21,7 +21,7 @@ I took the time to get to know him.... after all, a few minutes of social talkin
 His name is Dexter. He is from North Cotobato. He told me a lot of wonderful stories about his place. A landlocked province located in the region of Mindanao.   
 Cotabato is now one of the investment-friendly provinces in Mindanao. Thousands of hectares of land are suitable for a variety of crops: rice, banana, rubber, oil palm and other high value crops.   
 This 656,590 hectares of land is also blessed with beautiful surroundings and touristic places like the New Isreal's eco-tourism park that is situated at the foot of Mt. Apo.   
-You can also feel the breeze of nature of the Majestic Asik-Asik Falls.
+You also have the option to feel the breeze of nature of the Majestic Asik-Asik Falls.
 
 Did you know that Rubber farmer in Cotobato produces a minimum monthly income of P36,000.00 per hectare or a minimum annual income of P432,000.00 per hectare?   
 Aside from the high demand of rubber products in the world market, rubber trees can be intercropped with other crops including livestock.   
