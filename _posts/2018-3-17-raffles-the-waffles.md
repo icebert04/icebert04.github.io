@@ -22,4 +22,7 @@ One thing I notice is her YouTube channel only has 8 subscribers. After I subscr
 I believe I was one of the first who did this but now you will see a lot of YouTubers who are doing the same thing that I did.   
 So again, you need to have a niche. You need to be unique, different and have a specialty on one thing.
 
-3.) **CONSISTENCY**  =  My last advice is I think the most important part. This where it separates the Men from the Boys or in her case the **Women from the Girls**.
+3.) **CONSISTENCY**  =  My last advice is I think the most important part.... Constancy and Regularity. This where it separates the Men from the Boys or in her case the **Women from the Girls**. A lot of talented people were hot and famous before but unheard-of after beacuse of this.   
+You need to keep up with your stories... rain or shine, good times or bad times, in sickness and in health till death you part.
+
+
