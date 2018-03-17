@@ -15,7 +15,7 @@ With their almost close to 4 Million stronghold subscribers, their estimated ear
 It's crazy! It's really hard to believe... but all of this are TRUE!
 
 So upon checking my niece YouTube channel. I took a minute to pause and think and then gave my "**Unsolicited Advice**".   
-One thing I notice is her YouTube channel only has 8 subscribers. After I subscribed her channel, I laid out my ideas and suggestions to her.
+One thing I noticed is her YouTube channel only has 8 subscribers. After I subscribed her channel, I laid out my ideas and suggestions to her.
 
 1.) **EXPOSURE** =  I told her that she needs to expose her YouTube channel to all social media sites and all throughout the cyber world. Start off by introducing it first with her friends, families and relatives. 
 
