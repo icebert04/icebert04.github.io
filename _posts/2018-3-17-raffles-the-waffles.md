@@ -13,5 +13,13 @@ With their almost close to 4 Million stronghold subscribers, their estimated ear
 
 It's crazy! It's really hard to believe... but all of this is TRUE!
 
-So upon checking my niece YouTube channel. I took a minute to pause and think then gave my "Unsolicited Advice".   
-One thing I notice is her YouTube channel only has 8 subscribers.  
+So upon checking my niece YouTube channel. I took a minute to pause and think then gave my "**Unsolicited Advice**".   
+One thing I notice is her YouTube channel only has 8 subscribers. After I subscribe her channel I laid out my ideas and suggestions to her.
+
+1.) **EXPOSURE** =  I told her that she needs to expose her YouTube channel to every social media and all throughout the cyber world. Start first with her friends, families and relatives. 
+
+2.) **NICHE**  =  I showed Sofia my past project called "**MyLungga.com**". It's a site that sells properties in the Philippines. The objective is I take videos of houses (like MTV Cribs), upload it in YouTube, then expect a hoards of buyers to call you after.   
+I believe I was one of the first who did this but now you will see a lot of YouTubers who are doing the same thing that I did.   
+So again, you need to have a niche. You need to be unique, different and have a specialty on one thing.
+
+3.) **CONSISTENCY**  =  My last advice is I think the most important part. This where it separates the Men from the Boys or in her case the **Women from the Girls**.
