@@ -26,3 +26,8 @@ So again, you need to have a niche. You need to be unique, different and have a 
 You need to keep up with your stories... rain or shine, good times or bad times, in sickness and in health till death you part.
 
 
+Regardless, I am very proud of my niece. Not just because she is my blood but she has the **Prowess and the Venturesomeness** knowing and hoping that her YouTube channel will make a good personality of her in the future.... 1 million subscribers or none.
+
+SOFIA'S YOUTUBE CHANNEL:
+
+[Raffles the Waffles](https://www.youtube.com/channel/UC7Ip2BfMNjZ8Lp1r8u4Ixeg)
