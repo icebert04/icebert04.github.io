@@ -30,4 +30,4 @@ Regardless, I am very proud of my niece. Not just because she is my blood but sh
 
 SOFIA'S YOUTUBE CHANNEL:
 
-[Raffles the Waffles](https://www.youtube.com/channel/UC7Ip2BfMNjZ8Lp1r8u4Ixeg)
+[Raffles the Waffles](https://www.youtube.com/watch?v=w1QYXtuRGOo)
