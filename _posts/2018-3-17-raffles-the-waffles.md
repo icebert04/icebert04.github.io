@@ -29,7 +29,7 @@ This is where it separates the Men from the Boys or in her case the **Women from
 You need to keep up with your stories... rain or shine, good times or bad times, in sickness and in health till death you part.
 
 
-Regardless, I am very proud of my niece. Not just because she is my blood but she has the **Prowess and the Venturesomeness** knowing and hoping that her YouTube channel will conceive a good personality out of her in the future.... 1 million subscribers or none.
+Regardless, I am very proud of my niece. Not just because she is my blood but she has the **Prowess and the Venturesomeness** knowing and expecting that her YouTube channel will conceive a good personality out of her in the future.... 1 million subscribers or none.
 
 SOFIA'S YOUTUBE CHANNEL:
 
