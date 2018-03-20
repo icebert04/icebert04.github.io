@@ -21,7 +21,7 @@ My first walk with him was a disaster. I got body ache from my shoulder, legs an
 But as days past, our walk improved a little better. First we just walk in just one same street. Then, we went out further and further and further.   
 To my surprise, Ash started to follow my commands like heel, stop and No!   
 Basic commands that will help human beings (like me) to make the walk more compelling.   
-Sure, Ash still gets overly aggresive towards other dogs, but as long as he hears me says No! He begins to concede and divert his attention to me and our walk.
+Sure, Ash still gets overly aggressive towards other dogs, but as long as he hears me says No! He begins to concede and divert his attention to me and our walk.
 
 Me and Ash walk at least 2 to 3 times a week. And as the week goes by, our relationship goes deeper and stronger. That dog is not just my walking partner anymore.... he slowly becoming to be my friend.   
 When I come ringing the doorbell, Ash excitedly barks louder, jumps continuously like there is no tomorrow, and pulling his leash telling everybody to get him out instantly. 
