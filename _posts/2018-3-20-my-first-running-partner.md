@@ -26,12 +26,12 @@ Me and Ash walk at least 2 to 3 times a week. And as the week goes by, our relat
 When I come ringing the doorbell, Ash excitedly barks louder, jumps continuously like there is no tomorrow, and pulling his leash telling everybody to get him out instantly. 
 I was overwhelmed to see him so excited to see me.   
 
-In the few weeks that we been walking, we encountered some memorable moments. Like when Ash makes urinal marks on every street humps. He is the only doh that I know that does that.   
+In the few weeks that we been walking, we encountered some extraordinary moments. Like when Ash makes urinal marks on every street humps. He is the only dog that I know that does that.   
 Another one is Ash begs for water to drink to maids who were watering the plants in their employers garden.   
-Ash became popular to the maids that whenever they Ash they lower down their water hose for Ash to drink to.
+Ash became popular to the maids that whenever they see Ash they happily lower down their water hose for Ash to drink to.
 
-The dog is also making me happy. I get to relax by walking him. Sometimes we relax on the park and just bond to each other. It's a wonderful feeling!   
-Today, we are starting to run a little. We are slowly creeping in to be running partners. But more than that we become good fellows.
+The dog is also making me upbeat and happy. I get to relax and be calm by walking him. Sometimes we just chill on the park and just bond to each other. It's a wonderful feeling! The stranger and the beast looking eye to eye.   
+Today, as of this writing, we are starting to **Run a little**. We are slowly creeping in to be **Running Partners**. But more than that we become good fellows.
 
 I hope what we're doing (Ash and I) rubs off to other people to take out their dogs for a run or a walk. Dogs need exercise and attention and we human beings need therapy from them.
 
