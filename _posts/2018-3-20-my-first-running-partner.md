@@ -13,7 +13,7 @@ So I went to my cousin Nico. I knew back then that he has a Labrador Retriever p
 
 To my surprise, the Labrador Retriever is not the puppy that I used to know before. He grew and grew big mightily. He is so stocky and got the jaws and head bone structure of a fierce dog... just like a Rottweiler and a Pitbull.
 
-Plus he doesn't go out very often since my cousin is busy attending to his business. In short, that dog is now a beast. A beast that is hard to contain.
+Plus he doesn't go out very often since my cousin is busy attending to his business. In short, that **Dog is now a Beast**. A beast that is hard to contain.
 
 My first walk with Ash (the Labrador who turned into a beast) was a nightmare. He is so aggressive, doesn't follow basic commands, and pulls you everywhere he wants to go.   
 My first walk with him was a disaster. I got body ache from my shoulder, legs and my wrist. I was thinking of giving up on him.
