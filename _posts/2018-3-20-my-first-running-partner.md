@@ -22,3 +22,9 @@ But as days past, our walk improved a little better. First we just walk in just 
 Ash incredibly starts to follow my commands like heel, stop and No! Basic commands that will help human beings (like me) to make the walk more interesting.   
 Sure, Ash still gets overly aggresive towards other dogs, but as long as he hears me says No! He begins to concede and divert his attention to me and our walk.
 
+Me and ASh walk 2 to 3 times a week. And as the week goes by, our relationship goes deeper. That dog is not just my walking partner anymore.... he slowly becoming to be my friend.   
+When I come ringing the doorbell, Ash excitedly barks louder, jumps continuously like there is no tomorrow. He is so excited to see me.   
+
+In the few weeks that we been walking, we encountered some memorable moments. Like when Ash makes urinal marks on every street humps. He is the only doh that I know that does that.   
+
+
