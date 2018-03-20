@@ -32,7 +32,7 @@ Another one is Ash begs for water to drink to maids who were watering the plants
 Ash became popular to the maids that whenever they see Ash they happily lower down their water hose for Ash to drink to.
 
 The dog is also making me upbeat and happy. I get to relax and be calm by walking him. Sometimes we just chill at the park and just bond to each other. It's a wonderful feeling! **The Stranger and the Beast** looking eye to eye.   
-Today, as of this writing, we are starting to **Run a little**. We are slowly creeping in to be **Running Partners**. But more than that we become good fellows.
+Today, as of this writing, we are starting to **Run a little**. We are slowly creeping in to be **Running Partners**. But more than that.... we become good fellows.
 
 I hope what we're doing (Ash and I) rubs off to other people to take out their dogs for a run or a walk. Dogs need exercise and attention and we human beings need therapy from them.
 
