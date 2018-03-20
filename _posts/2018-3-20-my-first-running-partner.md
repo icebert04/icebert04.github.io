@@ -9,9 +9,9 @@ There's this option to get a Jack Russell Terrier that suits well in a condomini
 So instead of getting a dog.... why not just "**Borrow a Dog**". You have to agree that it is a better idea. You get to run the dog that you don't own plus you don't have to feed and take care of it since it is not your dog.   
 And I'm pretty sure that the owner of that dog would be happy to have their pet get some outdoor exercise with me.
 
-So I went to my cousin Nico. I knew back then that he has a black Labrador Retriever. That dog is built for hunting and retrieving wild ducks. Perfect as my running partner. What could go wrong?
+So I went to my cousin Nico. I knew back then that he has a Labrador Retriever pup. That dog is built for hunting and retrieving wild ducks. Perfect as my running partner. What could go wrong?
 
-To my surprise, the Labrador Retriever is not the pup that I used to know before. He grew and grew big mightily. He is stocky and got the jaws and head bone structure of a fierce dog... just like a Rottwelier and a Pitbull.
+To my surprise, the Labrador Retriever is not the puppy that I used to know before. He grew and grew big mightily. He is so stocky and got the jaws and head bone structure of a fierce dog... just like a Rottweiler and a Pitbull.
 
 Plus he doesn't go out most often since my cousin is busy attending to his business. In short, that dog is now a beast. A beast that is hard to contain.
 
