@@ -10,3 +10,5 @@ So instead of getting a dog what not just borrow a dog. You have to agree that i
 And I'm pretty sure that the owner of that dog would be happy to have their dog get some outdoor exercise with me.
 
 So I went to my cousin Nico. I knew back then that he has a black Labrador Retriever. That dog is built for hunting and retrieving wild ducks. Perfect as my running partner. What could go wrong?
+
+To my surprise, the Labrador Retriever is not the pup that I used to know before. He grew and grew big mightily. He is stocky and got the jaws and head bone structure of a fierce dog... just like a Rottwelier and a Pitbull.
