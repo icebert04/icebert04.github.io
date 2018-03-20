@@ -6,8 +6,8 @@ published: true
 In my past article, I mentioned that I want to get a dog as my running partner. Although it looks like a fine idea, the problem is I don't have the space in my place to keep a running dog.   
 There's this option to get a Jack Russell Terrier that suits well in a condominium setting but I'm not sure if I am ready for that yet.
 
-So instead of getting a dog what not just borrow a dog. You have to agree that it is a better idea. You get to run the dog that you don't own plus you don't have to feed and take care of that do since it is not your dog.   
-And I'm pretty sure that the owner of that dog would be happy to have their dog get some outdoor exercise with me.
+So instead of getting a dog.... why not just "**Borrow a Dog**". You have to agree that it is a better idea. You get to run the dog that you don't own plus you don't have to feed and take care of it since it is not your dog.   
+And I'm pretty sure that the owner of that dog would be happy to have their pet get some outdoor exercise with me.
 
 So I went to my cousin Nico. I knew back then that he has a black Labrador Retriever. That dog is built for hunting and retrieving wild ducks. Perfect as my running partner. What could go wrong?
 
