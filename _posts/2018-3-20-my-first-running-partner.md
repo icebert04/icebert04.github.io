@@ -12,3 +12,13 @@ And I'm pretty sure that the owner of that dog would be happy to have their dog 
 So I went to my cousin Nico. I knew back then that he has a black Labrador Retriever. That dog is built for hunting and retrieving wild ducks. Perfect as my running partner. What could go wrong?
 
 To my surprise, the Labrador Retriever is not the pup that I used to know before. He grew and grew big mightily. He is stocky and got the jaws and head bone structure of a fierce dog... just like a Rottwelier and a Pitbull.
+
+Plus he doesn't go out most often since my cousin is busy attending to his business. In short, that dog is now a beast. A beast that is hard to contain.
+
+My first walk with Ash (the Labrador who turned into a beast) was a nightmare. He is so aggressive, doesn't follow basic commands, and pulls you everywhere he wants to go.   
+My first walk with him was a disaster. I got body ache from my shoulder, legs and my wrist. I was thinking of giving up on him.
+
+But as days past, our walk improved a little better. First we just walk in just one street. Then went out further.   
+Ash incredibly starts to follow my commands like heel, stop and No! Basic commands that will help human beings (like me) to make the walk more interesting.   
+Sure, Ash still gets overly aggresive towards other dogs, but as long as he hears me says No! He begins to concede and divert his attention to me and our walk.
+
