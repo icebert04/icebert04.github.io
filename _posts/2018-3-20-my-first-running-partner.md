@@ -26,5 +26,14 @@ Me and ASh walk 2 to 3 times a week. And as the week goes by, our relationship g
 When I come ringing the doorbell, Ash excitedly barks louder, jumps continuously like there is no tomorrow. He is so excited to see me.   
 
 In the few weeks that we been walking, we encountered some memorable moments. Like when Ash makes urinal marks on every street humps. He is the only doh that I know that does that.   
+Another one is Ash begs for water to drink to maids who were watering the plants in their employers garden.   
+Ash became popular to the maids that whenever they Ash they lower down their water hose for Ash to drink to.
 
+The dog is also making me happy. I get to relax by walking him. Sometimes we relax on the park and just bond to each other. It's a wonderful feeling!   
+Today, we are starting to run a little. We are slowly creeping in to be running partners. But more than that we become good fellows.
+
+I hope what we're doing (Ash and I) rubs off to other people to take out their dogs for a run or a walk. Dogs need exercise and attention and we human beings need therapy from them.
+
+My cousin Nico and his family are blessed to have a nice dog like Ash. That Labrador has touch their hearts in a lot of ways.   
+I know that for a fact because it has certainly touch mine!
 
