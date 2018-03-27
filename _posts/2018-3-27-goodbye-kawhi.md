@@ -20,4 +20,9 @@ And it seems to look that way. Kawhi is more quiet than Duncan. Kawhi lives very
 The basketball superstar with rocking cornrows, signed for 5 years with a whopping $94 million contract, is obessed with only getting coupons that guarantee him free chicken wings.   
 That is how simple he is. Good sign for the Spurs for right... Their future looks bright!
 
-Then comes the inevitable. 
+Then comes the inevitable. In comes the Uncle. Ever since the Kawhi's uncle (his business manager) came in to picture, everything went south for the Spurs and Kawhi.   
+There is a mysterious rift between the two parties. And it is not getting murkier as the days progresses. 
+
+I really don't know the real story. But I have to think its the influence of the Uncle. There is this possibility that Kawhi might ask for a trade after the end of the season. And I won't be surprised if the organization succumb to his request. 
+
+I like Kawhi! He is, by far, the best 2 way player in the league today. 
