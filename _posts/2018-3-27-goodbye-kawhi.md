@@ -7,7 +7,7 @@ In life, one thing remains certain... Death, Taxes and the San Antonio Spurs!
 
 The Spurs have been the NBA's best-run franchise for the past 20 years, and no other team has even come close. San Antonio has experienced an unparalleled level of sustained success, and has done so with nothing but class.
 
-They are known with excellent coaching with Head Coach Gregg Popovich who has 5 champioship rings. They got great scouting from discovering foreign players like Argentina's Manu Ginobili and France's Tony Parker.   
+They are known with excellent coaching with Head Coach Gregg Popovich who has 5 championship rings. They got great scouting from discovering foreign players like Argentina's Manu Ginobili and France's Tony Parker.   
 And most important of all the Spurs have exquisite "**Chemistry & Loyalty**"!
 
 One classic example comes from their Superstar Tim Duncan, who in the past, have the option to leave the team and join the upcoming Orland Magic with a massive salary but choose to stay with Pop.   
