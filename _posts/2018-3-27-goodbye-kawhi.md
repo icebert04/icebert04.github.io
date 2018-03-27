@@ -31,4 +31,4 @@ We will miss him... Yes! We might not even get a respectable replacement for him
 The San Antonio Spurs work so hard for many years to attain the respect from all over the NBA.   
 It will be a shame to let a toxic guy like Kawhi to poison their hard earned legacy!
 
-So goodbye Kawhi! The Spurs will move on succesfully.... even without you!
+So goodbye Kawhi! The Spurs will move on successfully.... even without you!
