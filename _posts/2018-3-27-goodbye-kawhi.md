@@ -25,4 +25,6 @@ There is a mysterious rift between the two parties. And it is not getting murkie
 
 I really don't know the real story. But I have to think its the influence of the Uncle. There is this possibility that Kawhi might ask for a trade after the end of the season. And I won't be surprised if the organization succumb to his request. 
 
-I like Kawhi! He is, by far, the best 2 way player in the league today. 
+I like Kawhi! He is, by far, the best 2 way player in the league today. But he keeps on making this drama and creates a negative impact on the players, coaching staff and the organization, then they should let him go.   
+We will miss him... Yes! we migth not get a respecatable replacement for him. But better moving forward than backward.   
+The San Antonio Spurs work so hard for many years to attain the respect from all over the NBA league. It will surely be a mistake to let a toxic guy like Kawhi to posion their legacy!
