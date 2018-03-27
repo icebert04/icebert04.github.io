@@ -29,6 +29,6 @@ I really don't know the real story. But I have to think its the influence of the
 I like Kawhi! He is, by far, the best 2 way player in the league today. But if he keeps on making this drama and creates a negative impact on the players, coaching staff and the organization, then they should let him go.   
 We will miss him... Yes! We might not even get a respectable replacement for him. But better moving forward than backward.   
 The San Antonio Spurs work so hard for many years to attain the respect from all over the NBA.   
-It will be a shame to let a toxic guy like Kawhi to posion their hard earned legacy!
+It will be a shame to let a toxic guy like Kawhi to poison their hard earned legacy!
 
 So goodbye Kawhi! The Spurs will move on succesfully.... even without you!
