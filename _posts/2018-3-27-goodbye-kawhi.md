@@ -18,7 +18,7 @@ So in return, the players return the favor by staying with them for eternity and
 Kawhi Leonard is the Spurs next new generation Superstar. The guy who will carry the torch from the hands of old man Tim Duncan. The player who will give the team more championships. The person who will continue the San Antonio Spurs legacy. 
 
 And it seems to look that way. Kawhi is more quiet than Duncan. Kawhi lives very simple even after signing a max deal. He often drives a rehabbed ’97 Chevy Tahoe, nicknamed Gas Guzzler, which he drove across Southern California’s Inland Empire as a teenager. “It runs,” Leonard explains, “and it’s paid off.”   
-The basketball superstar with rocking cornrows, signed for 5 years with a whopping $94 million contract, is obessed with only getting coupons that guarantee him free chicken wings.   
+The basketball superstar with rocking cornrows, signed for 5 years with a whopping $94 million contract, is obsessed with only getting coupons that guarantee him free chicken wings.   
 That is how simple he is. Good sign for the Spurs for right... Their future looks bright!
 
 Then comes the inevitable. In comes the Uncle. Ever since Kawhi's uncle (his business manager) came in to picture, everything went south for the Spurs and Kawhi.   
