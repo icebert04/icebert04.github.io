@@ -12,7 +12,8 @@ And most important of all the Spurs have exquisite "**Chemistry & Loyalty**"!
 
 One classic example comes from their Superstar Tim Duncan, who in the past, have the option to leave the team and join the upcoming Orland Magic with a massive salary but choose to stay with Pop.   
 The organization takes cares of their players (Superstar or not) by resting them and not playing them on back to back games.   
-The results was stupendous. The team managed to prolong the careers of most of their players. So in return, the players return the favor by staying with them for eternity and they don't ask for the moon and the stars when comes to sky-rocketing salaries.
+The results was stupendous. The team managed to prolong the careers of most of their players.   
+So in return, the players return the favor by staying with them for eternity and they don't ask for the moon and the stars when comes to sky-rocketing salaries.
 
 Kawhi Leonard is the Spurs next new generation Superstar. The guy who will carry the torch from the hands of old man Tim Duncan. The player who will give the team more championships. The person who will continue the San Antonio Spurs legacy. 
 
