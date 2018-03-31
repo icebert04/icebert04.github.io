@@ -11,4 +11,5 @@ The objective is to get 7 churches that will give significance and moral lesson 
 
 So here are my 7 Churches and the 7 Lessons that we learned from it...
 
-1.) 
+1.) **REMEMBER THE DEAD, PRAY FOR THE LIVING** (St. John Bosco Parish, Makati)   
+=> 
