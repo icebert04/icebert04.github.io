@@ -36,4 +36,7 @@ We spent some time here to pray mainly for our country and our countrymen to sta
 You want proof... well these people are more generous than the rich. 
 
 7.) **FOUNDATION OF MY FAMILY** (Our Lady of Beautiful Love Parish, Merville Park Parañaque)   
-=> 
+=> The church is inside Merville Park. It is a place where I grew up with my Grandparents. My Lolo and Lola taught all the right values in life.   
+When I got married, I went back to the same house and bear to handsome children. They too grew in Merville and also had the same teaching from the Great-Grandparents.   
+Family is important because it is an extension of God's love. We are the living proof that we too are the church of God and we too should pass on their teaching from generations after generations.
+
