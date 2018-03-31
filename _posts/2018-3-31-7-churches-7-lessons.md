@@ -35,4 +35,5 @@ We spent some time here to pray mainly for our country and our countrymen to sta
 => This parish is where the humble houses are located. I really insert this Church to our itinerary so that my kids will know how the Poor people lived. But if you really observe carefully... are they really poor? Maybe in this world they are but not in God's kingdom.   
 You want proof... well these people are more generous than the rich. 
 
-7.) 
+7.) **FOUNDATION OF MY FAMILY** (Our Lady of Beautiful Love Parish, Merville Park Parañaque)   
+=> 
