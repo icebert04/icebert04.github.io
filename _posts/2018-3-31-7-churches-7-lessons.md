@@ -11,7 +11,7 @@ The objective is to get 7 churches that will give significance and moral lesson 
 
 So here are my 7 Churches and the 7 Lessons that we learned from it...
 
-1.) **REMEMBER THE DEAD, PRAY FOR THE LIVING** (St. John Bosco Parish, Makati)   
+1.) **REMEMBER THE DEAD, PRAY FOR THE LIVING** (### St. John Bosco Parish, Makati)   
 => This church has been the Funeral chapel for our dearly daparted (Martinez Family). This place gives us a lot of reason the remember them. The happy times together and why we will always cherish them forever.   
 We also prayed for the living. Especially the troubled and those who are in need of God's guidance.
 
