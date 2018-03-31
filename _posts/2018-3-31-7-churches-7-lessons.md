@@ -26,3 +26,7 @@ We prayed and ask guidance to the Lord to shelter us from evil but more importan
 => This place is renowned to house the Bamboo Organ, a pipe organ made mostly with bamboo pipes. Music enthusiast often visit to see the talented musicians plays the bamboo pipes.   
 They are not the only ones who has the talent. Each one of us do too.   
 If you don't know your talents yet, ask God, and please use it and share it to the world. 
+
+5.) **LOVE YOUR COUNTRY** (San Antonio de Padua Parish, near Parañaque City Hall)   
+=> This House of God is a few steps a way from the Munisipyo. It's a branch of our government which resembles our country. There is too many corruption in the government, to much hate in our media and society, and more reasons for our fellow Filipinos to migrate to a foreign country.   
+We spent some time here to pray mainly for our country and our countrymen to stay and make the Philippines better.
