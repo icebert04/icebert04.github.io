@@ -40,3 +40,4 @@ You want proof... well these people are more generous than the rich.
 When I got married, I went back to the same house and bear to handsome children. They too grew in Merville and also had the same teaching from the Great-Grandparents.   
 Family is important because it is an extension of God's love. We are the living proof that we too are the church of God and we too should pass on their teaching from generations after generations.
 
+So, there are my 7 Chuches and the 7 Lessons that we learned from it. I hope next year. The next time you will Visita Iglesia, you will get the true teachings from our creator who love us all dearly.
