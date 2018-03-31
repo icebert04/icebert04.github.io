@@ -39,6 +39,7 @@ You want proof... well these people are more generous than the rich.
 7.) **FOUNDATION OF MY FAMILY** (Our Lady of Beautiful Love Parish, Merville Park Parañaque)   
 => The church is inside Merville Park. It is a place where I grew up with my Grandparents. My Lolo and Lola taught me all the right values in life.   
 When I got married, I went back to the same house and bear 2 handsome children. They too grew in Merville and also had the same teaching from their Great-Grandparents.   
-Family is important because it is an extension of God's love. We are the living proof that we too are the church of God and we too should pass on their teaching from generations after generations.
+Family is important because it is an extension of God's love.   
+We are the living proof that we too are the church of God and we too should pass on their teaching from generations after generations.
 
 So, there are my 7 Chuches and the 7 Lessons that we learned from it. I hope next year. The next time you will Visita Iglesia, you will get the true teachings from our creator who love us all dearly.
