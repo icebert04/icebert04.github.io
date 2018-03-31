@@ -20,7 +20,7 @@ We also prayed for the living. Especially the troubled and those who are in need
 We prayed and ask guidance to the Lord to shelter us from evil but more importantly to try to understand them as to Why are they made that way. There must be reason for it.
 
 3.) **SHED SOME OF YOUR RICHES TO THE POOR** (St. Alphonsus Mary de Liguori Parish, Makati)   
-=> This parish is beside Magallanes Village. It's an exclusive residential developement for the rich and elite. So we went there not only to give thanks for all the blessings that we received but also to ask God to enlighten the others (especially those who are really rich) to shed more of their money to strangers. It they do that, it will be for their own good.
+=> This parish is beside Magallanes Village. It's an exclusive residential development for the rich and elite. So we went there not only to give thanks for all the blessings that we received but also to ask God to enlighten the others (especially those who are really rich) to shed more of their money to strangers. It they do that, it will be for their own good.
 
 4.) **FIND YOUR TALENTS AND USE THEM** (St. Joseph Parish, Bamboo Organ, Las Pinas)   
 => This place is renowned to house the Bamboo Organ, a pipe organ made mostly with bamboo pipes. Music enthusiast often visit to see the talented musicians play the bamboo pipes.   
