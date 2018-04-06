@@ -14,8 +14,9 @@ In comes Mike. A neighnor of mine were we used to play Badminton & Basketball in
 So me and Mike talked and I asked a lot of question and what suggestion does he needs to give to me (because I'm so desperate). Mike's advice to me is this.... 
 "**Huwag kang kumain ng kanin**"! Or Don't eat rice! 
 
-We all know that Filipinos eat rice everyday. It is the most widely consumed "Staple Food" for a large part in the Philippines. Its cheap and it goes well with any other Filipino dishes.   
-But Rice is mainly composed of carbohydrates. Some types may cause unhealthy spikes in blood sugar, making them unsuitable for diabetics. I am not diabetic, but do I need to be one in order for me to stop eating the Filipinos most favorite staple food. 
+We all know that Filipinos eat rice everyday. It is the most widely consumed "**Staple Food**" for a large part in the Philippines. It's cheap and it goes well with any other Filipino dishes.   
+But Rice is mainly composed of carbohydrates. Some types may cause unhealthy spikes in blood sugar, making them unsuitable for diabetics.   
+I am not diabetic, but do I need to be one in order for me to stop eating Rice. 
 
 A cup of the cooked white rice carries roughly 130 to 200 calories, most of which comes in the form of starch, which turns into sugar, and often thereafter body fat. Fat is like a Tattoo that stays with you forever.... unless of course you want to remove it (or minimize it at least).
 
