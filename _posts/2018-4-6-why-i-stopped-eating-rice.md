@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![No Rice](/images/No Rice.jpg)
