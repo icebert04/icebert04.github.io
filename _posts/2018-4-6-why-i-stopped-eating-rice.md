@@ -27,7 +27,7 @@ Like replacing Taco Shells to Leafy Greens, French Fries to Turnips & Carrots, L
 The alternative are surprisingly more expensive than the original but who said that Health is cheap. Would you rather keep your money and get sick or vise versa? 
 
 Its sad to know that most of us eat the wrong food. And what it makes more sad is we never choose to change it.   
-It's never to late. We can still change. We don't need to take Giant steps to achieve that. Just one small step can make a BIG difference. Like skipping the midnight snack or cutting on the Softdrinks. Inviting your friends & relatives for organic dinner rather than eating on a fastfood joint.   
+It's never to late. We can still change. We don't need to take Giant steps to achieve that. Just one small step can make a BIG difference. Like skipping the midnight snack or cutting on the Soft-drinks. Inviting your friends & relatives for organic dinner rather than eating on a fastfood joint.   
 Those small things really matter.
 
 I've taken those small steps and today I added a few more by eliminating on Rice. I changed my mindset for reason that I want to live better and gain a richer healthy body.   
