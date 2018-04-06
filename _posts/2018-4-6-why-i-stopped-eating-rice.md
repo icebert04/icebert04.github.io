@@ -16,7 +16,7 @@ So me and Mike talked and I asked a lot of question and what suggestion does he 
 We all know that Filipinos eat rice everyday. It is the most widely consumed "Staple Food" for a large part in the Philippines. Its cheap and it goes well with any other Filipino dishes.   
 But Rice is mainly composed of carbohydrates. Some types may cause unhealthy spikes in blood sugar, making them unsuitable for diabetics. I am not diabetic, but do I need to be one in order for me to stop eating the Filipinos most favorite staple food. 
 
-A cup of the cooked white rice carries roughly more than 100 calories, most of which comes in the form of starch, which turns into sugar, and often thereafter body fat. Fat is like a Tattoo that stays with you forever.... unless of course you want to remove it (or minimize it at least).
+A cup of the cooked white rice carries roughly 130 to 200 calories, most of which comes in the form of starch, which turns into sugar, and often thereafter body fat. Fat is like a Tattoo that stays with you forever.... unless of course you want to remove it (or minimize it at least).
 
 Exercise and Diet is not really a hard thing to do. I choose my own Exercise habits according to my interest. And then I just replace my favorite dish to a more healthy (low calorie) food.   
 Like replacing Taco Shells to Leafy Greens, French Fries to Turnips & Carrots, Lasagna to Zucchini, and Pancakes to Oatmeal Pancakes.   
