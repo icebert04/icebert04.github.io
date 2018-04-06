@@ -11,7 +11,8 @@ So I tried to reduce my rice from **Unlimited Rice** to 1-2 cups. Then it went d
 
 In comes Mike. A neighnor of mine were we used to play Badminton & Basketball in our compound. Mike was able to reduce his weight drastically just by taking Coconuts as his regular diet. He just eats the meat of the fruit and the juice. He goes by just doing that regularly.   
 
-So me and Mike talked and I asked a lot of question and what suggestion does he needs to give to me (because I'm so desperate). Mike's advice to me is this.... 
+So me and Mike talked and I asked a lot of question and what suggestion does he needs to give to me (because I'm so desperate).   
+Mike's advice to me is this.... 
 "**Huwag kang kumain ng kanin**"! Or Don't eat rice! 
 
 We all know that Filipinos eat rice everyday. It is the most widely consumed "**Staple Food**" for a large part in the Philippines. It's cheap and it goes well with any other Filipino dishes.   
