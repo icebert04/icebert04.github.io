@@ -19,4 +19,5 @@ But Rice is mainly composed of carbohydrates. Some types may cause unhealthy spi
 A cup of the cooked white rice carries roughly more than 100 calories, most of which comes in the form of starch, which turns into sugar, and often thereafter body fat. Fat is like a Tattoo that stays with you forever.... unless of course you wan't to remove it (or minimize it at least).
 
 Exercise and Diet is not really a hard thing to do. I choose my own Exercise habits according to my interest. And then I just replace my favorite dish to a more healthy (low calorie) food.   
-Like replacing Taco Shells to Leafy Greens, 
+Like replacing Taco Shells to Leafy Greens, French Fries to Turnips & Carrots, Lasagna to Zucchini, and Pancakes to Oatmeal Pancakes.   
+The alternative are surprisingly more expensive than the original but who said that Health is cheap. Would you rather keep your money and get sick or vise versa? 
