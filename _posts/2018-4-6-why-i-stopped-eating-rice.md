@@ -29,6 +29,7 @@ Its sad to know that most of us eat the wrong food. And what it makes more sad i
 It's never to late. We can still change. We don't need to take Giant steps to achieve that. Just one small step can make a BIG difference. Like skipping the midnight snack or cutting on the Softdrinks. Inviting your friends & relatives for organic dinner rather than eating on a fastfood joint.   
 Those small things really matter.
 
-I've taken those small steps and today I added a few more by eliminating on Rice. I changed my mindset for reason that I want to live better and gain a richer healthy body. Better health is central to human happiness and well-being.
+I've taken those small steps and today I added a few more by eliminating on Rice. I changed my mindset for reason that I want to live better and gain a richer healthy body.   
+Better health is central to human happiness and well-being.
 
-So Goodbye Rice! Hello Happiness!
+So Goodbye Rice! It's been nice knowing you! We had a good run but it's time to say "**Adieu**" in order for me to find my new Happiness!
