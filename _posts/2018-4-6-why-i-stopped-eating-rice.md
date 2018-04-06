@@ -32,4 +32,4 @@ Those small things really matter.
 I've taken those small steps and today I added a few more by eliminating on Rice. I changed my mindset for reason that I want to live better and gain a richer healthy body.   
 Better health is central to human happiness and well-being.
 
-So Goodbye Rice! It's been nice knowing you! We had a good run but it's time to say "**Adieu**" in order for me to find my new Happiness!
+So **Goodbye Rice**! It's been nice knowing you! We had a good run but it's time to say "**Adieu**" in order for me to find my new Happiness!
