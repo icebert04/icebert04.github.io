@@ -11,7 +11,7 @@ Despite its small size, Suriname is one of the worlds most ethnically diverse co
 The largest group are the East Indians, followed by Maroons, Creoles, Javenese, Chinese, Levantines and Jews.   
 This is a legacy of centuries of Dutch rule, which entailed successive periods of forced, contracted, or voluntary migration by various nationalities and ethnic groups from around the world.
 
-But what I find more interesting is the country's nature. Nowadays, in most countries the ancient forests have long beend cut down or reduced to smaller sizes. But in Suriname this is not the case; about 80% of the land is still covered by rainforests.   
+But what I find more interesting is the country's safeguarded nature. Nowadays, in most countries the ancient forests have long beend cut down or reduced to smaller sizes. But in Suriname this is not the case; about 80% of the land is still covered by rainforests.   
 This has led to large wrap of the country being the designated as nature reserves that are overflowing with different kinds of wildlife. 
 
 Most tourists visit Suriname for the biodiversity of the Amazonian rain forests in the south of the country, which are noted for their flora and fauna.   
