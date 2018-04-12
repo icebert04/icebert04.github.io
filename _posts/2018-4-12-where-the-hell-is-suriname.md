@@ -11,3 +11,8 @@ This is a legacy of centuries of Dutch rule, which entailed successive periods o
 
 But what I find more interesting is the country's nature. Nowadays, in most countries the ancient forests have long beend cut down or reduced to smaller sizes. But in Suriname this is not the case; about 80% of the land is still covered by rainforests.   
 This has led to large wrap of the country being the designated as nature reserves that are overflowing with different kinds of wildlife. 
+
+Most tourists visit Suriname for the biodiversity of the Amazonian rain forests in the south of the country, which are noted for their flora and fauna.   
+There are also many waterfalls throughout the country. Raleighvallen, or Raleigh Falls, is a 56,000-hectare (140,000-acre) nature reserve on the Coppename River, rich in bird life.
+
+Brazil (south of Suriname) is one of the 62 visa-free countries that we Filipinos can travel to. 
