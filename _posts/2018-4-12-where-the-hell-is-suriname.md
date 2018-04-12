@@ -16,3 +16,5 @@ Most tourists visit Suriname for the biodiversity of the Amazonian rain forests 
 There are also many waterfalls throughout the country. Raleighvallen, or Raleigh Falls, is a 56,000-hectare (140,000-acre) nature reserve on the Coppename River, rich in bird life.
 
 Brazil (south of Suriname) is one of the 62 visa-free countries that we Filipinos can travel to. And while you're at it, might as well visit Suriname and get to know not just the vast swaths of tropical rainforest but also check their history like their Dutch colonial architecture and their melting pot ethnic diversity.
+
+It surely nice to meet new people. Without her, I won't be aware that this beautiful country is on our map.
