@@ -9,7 +9,7 @@ With an average elevation of 2,000 feet, the popular place has become probably t
 
 Most urban dwellers visit the city as a reason for escape on their everyday busy life. They drove to Tagaytay normally to dine and unwind. It's a perfect getaway!
 
-Me, on the other hand, wants to shake things a little. Dining is fine but sooner or later you will run out of restuarants to go to. Believe me, I'v been passing through Tagaytay for most part of my life and I've been to several places... and sometimes it gets boring.
+Me, on the other hand, wants to shake things a little. Dining is fine but sooner or later you will run out of restuarants to go to. Believe me, I'v been passing through Tagaytay for most part of my life and I've been to several places... and dining out becomes exciting to boring.
 
 So I did the "**Unthinkable**"! I searched, asked, and looked for relatives, friends, even enemies who are living in Tagaytay. Most of this property owners wouldn't mind me coming over to their place. In fact, they might be even be pleased to pay them a visit.   
 Another good thing is you don't need to rush when you eat out since the owner of the house is somebody that you know of. In other words, you can stay as long as you want.
