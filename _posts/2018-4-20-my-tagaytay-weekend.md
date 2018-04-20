@@ -26,4 +26,4 @@ Tito Ray is just one of the many friends and relatives that I can go and visit i
 The thing is... a lot of people living in Manila do too have friends and relatives that they can visit during the weekend.   
 I encourage you to try this unique method or at least even consider doing it. 
 
-It 
+It makes your Tagaytay weekend more rewarding and fullfilling. In fact, it might be even be your regular weekend routine whenever you climb up to Tagaytay City. 
