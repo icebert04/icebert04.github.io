@@ -23,7 +23,7 @@ There is also a small garden for Frisbee and outdoor games.
 When there is no guests, the garden is used for parking area.
 
 I normally visit this place whenever I travel alone to my province in Balayan Batangas. I go to Tito Ray's house as a Pit Stop.... or should I say like a "**Refueling Stop**"!   
-I also asked some advice from my uncle and get some pointers before fleeing to Batangas. It makes travelling much easier and more exciting.
+I also asked some advice from my uncle and get some pointers before fleeing to Batangas. It makes traveling much easier and more exciting.
 
 Tito Ray is just one of the many friends and relatives that I can go and visit in Tagaytay. There are a bunch of them waiting to be visited.   
 The thing is... a lot of people living in Manila do have friends and relatives that they can visit during the weekend. They can also make that change. You too can do that too....  
