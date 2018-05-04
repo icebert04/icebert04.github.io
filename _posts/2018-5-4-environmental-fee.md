@@ -11,7 +11,7 @@ I mean I have no problem paying up the fee but my concern is...
 1.) Does it have to be Php 25.00 per head.   
 2.) Are the Collected environmental fees will be put transparently into a general fund that will be used for improvement of tourism infrastructure.
 
-According to the municipial of Lian Batangas, a population of 50,000 residents, that they will implement collection of the said fees for the protection of their beach, their tourism, and their town.
+According to the municipal of Lian Batangas, a population of 50,000 residents, that they will implement collection of the said fees for the protection of their beach, their tourism, and their town.
 
 So before paying the Environmental Fee, I stopped my car, went down, and interviewed the representatives (collectors) who were seating comfortably in the small nipa hut.   
 The collectors said that the fee (Php 25.00) is distributed for the Barangay, the Tourism Office, the Environment and Tourism Project, the Educational Fund Program, and for their General Fund.
