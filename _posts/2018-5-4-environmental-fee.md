@@ -28,7 +28,7 @@ In short, the town has improved the outlook of their beach. I'm Impressed!
 Not bad Lian. I hope you continue your good deeds that will bring back your tourist back in the fold. I also heard that neighboring towns like Calatagan and Nasugbu are also implementing such rules and ordinance to safeguard and preserve their beloved town.
 
 I hope this Environmental Fee is just the beginning for us to protect what is ours. We don't want to live in a world where we always stay guard to Protect the Environment.   
-I want to Creat a World where the Environment doesn't need any more Protecting.
+I want to Create a World where the Environment doesn't need any more Protecting.
 
 
 
