@@ -7,7 +7,7 @@ Me and my family went to Matabungkay in Lian Batangas just to swim on the beach.
 Now it's diffirent.... We were surprised to see that there is now an 25.00 pesos Environmental Fee. And that is not for the entire family or entire group... it's Php 25.00 per head.   
 Isn't that a little "Overkill"? This is Batangas were talking about not Coron Palawan.
 
-I mean I have no problem paying up the fee but my concern is... 
+I mean I have no problem paying up the fee but my concern is...   
 1.) Does it have to be Php 25.00 per head.   
 2.) Are the Collected environmental fees will be put transparently into a general fund that will be used for improvement of tourism infrastructure.
 
