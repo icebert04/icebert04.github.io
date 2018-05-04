@@ -16,5 +16,12 @@ According to the municipial of Lian Batangas, a population of 50,000 residents, 
 So before paying the Environmental Fee, I stopped my car, went down, and interviewed the representatives (collectors) who were seating comfortably in the small nipa hut.   
 The collectors said that the fee (Php 25.00) is distributed for the Barangay, the Tourism Office, the Environment and Tourism Project, the Educational Fund Program, and for their General Fund.
 
+They also said that one of the reason they have this Environmental Fee is that in the past there are lots of nearby town tourist like Balayan, Calaca and Tuy.... not to mention people from Tagaytay, most parts in Cavite and Metro Manila come over to their place and leave their trash upon departing.
+
+Trash was everywhere. From plastics, paper cups, liquor bottles, water bottles, sardine cans, worn out slippers, heck... even condoms.   
+Matabungkay has become a dumpyard that cause an immense amount of algae and waste. Does that ring any bell.... Oh Hi there Boracay!
+
+
+
 
 
