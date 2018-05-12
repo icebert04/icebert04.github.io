@@ -16,7 +16,7 @@ We talked a lot. Not only in the vicinity where is stationed but through social 
 During those talks, I get to know the person. The reason why is she so special and made her different and unique. 
 
 She is busy involved in so many projects but the one thing that struck me is her helping the youth get into College. Sr. Mary Grace goes out of her way to find those kids who lack the funds to go to Universities.   
-I don't know how many youngters did she help but I'm quite sure there's a lot. And she never brags about it. She just stays quiet and continues on lending a helping hand.
+I don't know how many youngsters did she help but I'm quite sure there's a lot. And she never brags about it. She just stays quiet and continues on lending a helping hand.
 
 She is a definition of a Real Mother. Someone who will make an uttermost sacrifice to change people's lives.... whether they are relative or not. 
 
