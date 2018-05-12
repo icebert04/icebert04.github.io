@@ -7,7 +7,7 @@ published: true
 Her name is Sr. Mary Grace Rillo, Superior of the Carmelites in the province of Lipa City, Batangas. Although she is fully devoted in the house of God, she makes time to check on the well being on each and every member of her family (even to the farthest degree). 
 
 Sr. Mary Grace is a Scholastican and the eldest among her siblings. She should be taking care of the properties, businesses of her family but instead she is living the call to contemplative life in a powerhouse of prayer.   
-I grew up knowing that I have an aunt who is a nun at one of the church in Batangas. I remember that my Grandmother (Tita Caring) and my Mom used to visit Sr. Mary Grace church regularly.   
+I grew up knowing that I have an aunt who is a nun at one of the church in Batangas. I remember that my Grandmother (Tita Caring) and my Mom used to visit Sr. Mary Grace's church regularly.   
 As a child, I always get bored going to that place. There's not much to do there but **"Sit and Pray"**.   
 But I always been hearing stories about that nun who helped a lot of people. This began to question me... Why is she so special to a lot of people? What made her different from the others?
 
