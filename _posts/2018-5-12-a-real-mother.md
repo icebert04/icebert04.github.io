@@ -12,7 +12,7 @@ As a child, I always get bored going to that place. There's not much to do there
 But I always been hearing stories about that nun who helped a lot of people. This began to question me... Why is she so special to a lot of people? What made her different from the others?
 
 Years past and both my Lola and my Mom has gone to meet our creator. Now, it is just me who visit Sr. Mary Grace. Not that often but still managed to stop by especially when I'm around the area.   
-We talked a lot. Not only in the vicinity where is stationed but through social media (Yes, they are allowed to use Facebook).   
+We talked a lot. Not only in the vicinity where she is stationed but through social media (Yes, they are allowed to use Facebook).   
 During those talks, I get to know the person. The reason why is she so special and made her different and unique. 
 
 She is busy involved in so many projects but the one thing that struck me is her helping the youth get into College. Sr. Mary Grace goes out of her way to find those kids who lack the funds to go to Universities.   
