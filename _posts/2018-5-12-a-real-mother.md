@@ -20,5 +20,5 @@ I don't know how many youngsters did she help but I'm quite sure there's a lot. 
 
 She is a definition of a Real Mother. Someone who will make an uttermost sacrifice to change people's lives.... whether they are relative or not. 
 
-Tomorrow is Mother's Day.... She also deserved to hear that compliment and salutation. She is a true mother to us all!
+Tomorrow is Mother's Day.... She also deserved to hear that compliment and salutation. A true mother to us all!
 
