@@ -15,5 +15,6 @@ Years past and both my Lola and my Mom gone to meet our creator. Now, it is just
 We talked a lot. Not only on the vicinity where is stationed but through social media (Yes, they are allowed to us Facebook).   
 During those talks, I get to know that person. The reason why is she so special and made her different and unique. 
 
-
+She is busy involve in so many projects but the one thing that strike me is her helping the youth get into College. Sr. Mary Grace goes out of her way to find those kids who lack the funds to go to Universities.   
+I don't know how many youngters did she help but I'm quite sure there's a lot. 
 
