@@ -13,5 +13,7 @@ But I always been hearing stories about that nun who help a lot of people. This 
 
 Years past and both my Lola and my Mom gone to meet our creator. Now, it is just me who visit Sr. Mary Grace. Not that often but still managed to stop by especially when I'm around the area.   
 We talked a lot. Not only on the vicinity where is stationed but through social media (Yes, they are allowed to us Facebook).   
+During those talks, I get to know that person. The reason why is she so special and made her different and unique. 
+
 
 
