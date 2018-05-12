@@ -11,5 +11,7 @@ I grew up knowing that I have an aunt who is a nun at one of the church in Batan
 As a child, I always get bored going to that place. There's not much to do there but **"Sit and Pray"**.   
 But I always been hearing stories about that nun who help a lot of people. This began to question me... Why is she so special to a lot of people? What made her different from the others?
 
+Years past and both my Lola and my Mom gone to meet our creator. Now, it is just me who visit Sr. Mary Grace. Not that often but still managed to stop by especially when I'm around the area.   
+We talked a lot. Not only on the vicinity where is stationed but through social media (Yes, they are allowed to us Facebook).   
 
 
