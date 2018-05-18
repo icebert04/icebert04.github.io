@@ -9,7 +9,7 @@ These gadgets (Smartphones, PCs and iPads do cause harm in so many ways like....
 I must say it's time to "**Rethink Their Wisdom**"! In comes the game of Chess!   
 This popular game goes way way back in the Gupta Empire. Unfortunately, kids of this day and age have forgotten this board game or even worst didn't know it exist.
 
-I always make it point to let my children know how important this game is and what benefits they will be getting from it. Chess can do a lot of things to kids and adults alike. It can Raise your IQ Level, Sharpen Your Memory, Teaches Planning and Foresight, Teaches Creativity, Promotes Abstract Thinking, Develops Patience & Thoughtfullness, Speed, and Learning to Focus. 
+I always make it point to let my children know how important this game is and what benefits they will be getting from it. Chess can do a lot of things to kids and adults alike. It can Raise your IQ Level, Sharpen Your Memory, Teaches Planning and Foresight, Teaches Creativity, Promotes Abstract Thinking, Develops Patience & Thoughtfulness, Speed, and Learning to Focus. 
 
 In this picture, you will see my eldest playing Chess and getting some tips and pointers from a former Chess player in Nasugbu Batangas. He happens to be my son's Ninong (Godfather).   
 He informed Luigi that the key to learning the game of Chess is "**Consistency**" and "**Facing your Fears**".   
