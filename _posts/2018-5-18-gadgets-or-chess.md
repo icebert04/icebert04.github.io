@@ -18,4 +18,5 @@ My son should be playing often to able to get the grasp of game. More importantl
 Don't get me wrong, I also allow my children to play those gadgets that I'd mentioned. After all they are all kids. There is no escaping technology. They belong to that world!   
 But it is also paramount to learn and appreciate the old game of Chess. The Chess artifacts or ivory pieces also teaches how we can apply it in real life. Knowing which move to make comes with In-Sight and Knowledge. When you see a Good Move, Look for a Better One.
 
-
+Life is like a game of Chess, to Win you have to make a Move.   
+And I'm proud to say that my children is in the right direction.  
