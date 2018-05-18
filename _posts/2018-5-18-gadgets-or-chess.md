@@ -13,7 +13,7 @@ I always make it point to let my children know how important this game is and wh
 
 In this picture, you will see my eldest playing Chess and getting some tips and pointers from a former Chess player in Nasugbu Batangas. He happens to be my son's Ninong (Godfather).   
 He informed Luigi that the key to learning the game of Chess is "**Consistency**" and "**Facing your Fears**".   
-My son should be playing often to able to get the grasp of game. More importantly, Luigi, at all cost, should be facing dominant and superior competitors to learn faster. Letting him know that a "**Defeat is the Gateway for Greater Knowledge**"!
+My son should be playing often to able to get the grasp of the game. More importantly, Luigi, at all cost, should be facing dominant and superior competitors to learn faster. Letting him know that a "**Defeat is the Gateway for Greater Knowledge**"!
 
 Don't get me wrong, I also allow my children to play those gadgets that I'd mentioned. After all, they are all kids. There is no escaping technology. They belong to that world!   
 But it is also significant to learn and appreciate the old game of Chess. The Chess artifacts or Ivory pieces also teaches how we can apply it in real life. Knowing which move to make comes with In-Sight and Knowledge. Like "**when you see a Good Move, Look for a Better One**"!
