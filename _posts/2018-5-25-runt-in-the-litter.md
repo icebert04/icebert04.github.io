@@ -14,7 +14,7 @@ My Son (Lorenzo) is a runt in the litter. His sibling and older brother (Luigi) 
 Lorenzo, on the other hand, was born just above 5 lbs. He has a physical deformities. He only has 4 fingers on his left hand, a mishapend left ear, and malformed toes.   
 We, as parents, can afford to live with that and shrug off the negativity. But the thing that struck us the most is Lorenzo's Autism. That really hit us to the ground!
 
-Still, we took this as not as a Problem but rather as a Challenge. Lorenzo is turning 13 years old this May 28 and in someway he has improved in lot of ways. Those challenging years of bringing our Autistic son to different kinds of therapy doctors from Occupational Therapy, Speech Theraphy and SPED Doctors.   
+Still, we took this not as a Problem but rather as a Challenge. Lorenzo is turning 13 years old this May 28 and in someway he has improved in lot of ways. Those challenging years of bringing our Autistic son to different kinds of therapy doctors from Occupational Therapy, Speech Theraphy and SPED Doctors.   
 It cost us an arm and leg but it is definitely worth it. Especially knowing that Lorenzo has matured and someway catching up with his older brother. Lorenzo is a bit slow developing, but we are amazed with his progress. In due time and patience, we will see a young and mature Lorenzo.... ready to tackle the world.
 
 But why is that Lorenzo is not loved by the people compared to his brother? Is it because Lorenzo acts differently? Somehow I am feeling that Lorenzo is "The Runt of the Litter" to the opinions, assessment, and impression of the other people. Like Lorenzo doesn't belong!   
@@ -25,6 +25,6 @@ Just look at your Facebook and you will see the picture. Who will get the most F
 How about a Sexy Young Lady displaying her newly bought Bikini in Miniloc Island Resort or the not so attractive lady celebrating her birthday in Jollibee?   
 Did you get my point? It's **"Survival of the Fittest"** out there.
 
-In all honesty, I don't give a damn about what people think. What I care about is my Runt in here. I believe in stories like the **"Ugly Duckling"** and **"Jon Snow's Direwolf"**. I believe that the future looks bright for my Runt. Lorenzo has his parents, brother, some family members, friends to support and guide him. We are all confident that Lorenzo will grow up to be a fine, young, and indenpendent man. 
+In all honesty, I don't give a damn about what people think. What I care about is my Runt in here. I believe in stories like the **"Ugly Duckling"** and **"Jon Snow's Direwolf"**. I believe that the future looks bright for my Runt. Lorenzo has his parents, brother, some family members, friends to support & guide him. We are all confident that Lorenzo will grow up to be a fine, young, and indenpendent man. 
 
 If it doens't turn out that way, and everything goes south... that is all fine by me. Lorenzo will still be the most **"Prettiest Runt in the World"** for me!
