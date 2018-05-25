@@ -21,7 +21,7 @@ But why is that Lorenzo is not loved by the people compared to his brother? Is i
 I would understand if this came from strangers but I am getting the same reaction from some of my family members and relatives. 
 
 I guess We have to accept the fact that this is the society that we will live in. It's a Jungle out there and only the best of the best will live. All the runts, the outcasts, the hobos, the bums, the ugly and hideous will get step on by the Great and Pretty Ones.   
-Just look at your Facebook and you will see the picture. Who will get the most Facebook Likes.... the Handsome hunk riding on a Ducati SuperSport or a Thin Boy lying on bed suffering from Cerebral Palsy?   
+Just look at your Facebook and you will see the picture. Who will get the most Facebook Likes.... the Handsome Hunk riding on a Ducati SuperSport or a Thin Boy lying on bed suffering from Cerebral Palsy?   
 How about a Sexy Young Lady displaying her newly bought Bikini in Miniloc Island Resort or the not so attractive lady celebrating her birthday in Jollibee?   
 Did you get my point? It's **"Survival of the Fittest"** out there.
 
