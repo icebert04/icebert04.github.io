@@ -22,7 +22,7 @@ I would understand if this came from strangers but I am getting the same reactio
 
 I guess We have to accept the fact that this is the society that we live in. It's a Jungle out there and only the best of the best will live. All the runts, the outcasts, the hobos, the bums, the ugly and hideous will get step on by the Great and Pretty Ones.   
 Just look at your Facebook and you will get the picture. Who will get the most Facebook Likes.... the Handsome Hunk riding on a Ducati SuperSport or a Thin Boy lying on bed suffering from Cerebral Palsy?   
-How about a Sexy Young Lady displaying her newly bought Bikini in Miniloc Island Resort or the not so attractive lady celebrating her birthday in Jollibee?   
+How about a Sexy Young Lady displaying her newly bought Bikini in Miniloc Island Resort or the Not So attractive Teenage Girl celebrating her birthday in Jollibee?   
 Did you get my point? It's **"Survival of the Fittest"** out there.
 
 In all honesty, I don't give a damn about what people think. What I care about is my Runt in here. I believe in stories like the **"Ugly Duckling"** and **"Jon Snow's Direwolf"**. I believe that the future looks bright for my Runt. Lorenzo has his parents, brother, some family members, friends to support & guide him. We are all confident that Lorenzo will grow up to be a fine, young, and indenpendent man. 
