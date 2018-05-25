@@ -15,12 +15,12 @@ Lorenzo, on the other hand, was born just above 5 lbs. He has a physical deformi
 We, as parents, can afford to live with that and shrug off the negativity. But the thing that struck us the most is Lorenzo's Autism. That really hit us to the ground!
 
 Still, we took this as not as a Problem but rather as a Challenge. Lorenzo is turning 13 years old this May 28 and in someway he has improved in lot of ways. Those challenging years of bringing our Autistic son to different kinds of therapy doctors from Occupational Therapy, Speech Theraphy and SPED Doctors.   
-It cost us an arm and leg but it is definitely worth it. Especially knowing that Lorenzo has matured and someway catching up with his older brother. Lorenzo is a bit slow developing but we are amazed with his progress. In due time and patience, we will see a young and mature Lorenzo.... ready to tackle the world.
+It cost us an arm and leg but it is definitely worth it. Especially knowing that Lorenzo has matured and someway catching up with his older brother. Lorenzo is a bit slow developing, but we are amazed with his progress. In due time and patience, we will see a young and mature Lorenzo.... ready to tackle the world.
 
 But why is that Lorenzo is not loved by the people compared to his brother? Is it because Lorenzo acts differently? Somehow I am feeling that Lorenzo is "The Runt of the Litter" to the opinions, assessment, and impression of the other people. Like Lorenzo doesn't belong!   
 I would understand if this came from strangers but I am getting the same reaction from some of my family members and relatives. 
 
-I guess We have to accept the fact that this the society that we will live in. It's a Jungle out here and only the best of the best will live. All the runts, the outcasts, the hobo, the bum, the ugly and hideous will get step on by the Great Ones.   
+I guess We have to accept the fact that this is the society that we will live in. It's a Jungle out there and only the best of the best will live. All the runts, the outcasts, the hobos, the bums, the ugly and hideous will get step on by the Great and Pretty Ones.   
 Just look at your Facebook and you will see the picture. Who will get the most likes.... the handsome hunk riding on a Ducati SuperSport or a thin boy lying on bed suffering from Cerebral Palsy?   
 How a bout a sexy young lady displaying her newly bought bikini in Miniloc Island Resort or the not so attractive lady celebrating her birthday with her family & friends in her apartment?   
 Did you get my point? It's **"Survival of the Fittest"** out there.
