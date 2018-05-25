@@ -29,7 +29,7 @@ How about a Sexy Young Lady displaying her newly bought Bikini in Miniloc Island
 Did you get my point? It's **"Survival of the Fittest"** out there.
 
 In all honesty, I don't give a damn about what people think. What I care about is my Runt in here.   I believe in stories like the **"Ugly Duckling"** and **"Jon Snow's Direwolf"**. I believe that the future looks bright for my Runt. Lorenzo has his parents, brother, some family members, friends to support & guide him.   
-We are all confident that Lorenzo will grow up to be a fine, young, and indenpendent man. 
+We are all confident that Lorenzo will grow up to be a fine, young, and independent man. 
 
 If it doens't turn out that way, and everything goes south... that is all fine by me.   
 Lorenzo will still be the most **"Prettiest Runt in the World"** for me!
