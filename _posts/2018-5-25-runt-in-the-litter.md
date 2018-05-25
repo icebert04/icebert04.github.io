@@ -8,7 +8,8 @@ Simply considering a number of young animals born to an animal all at once or, i
 A Runt that is used to depict the smallest or the weakest of all the siblings in the litter.
 
 That Runt will be needing a lot of extra special care and attention to ensure that they can feed enough and are not left out by the other bigger puppies. 
-The Runt have a lot of disadvantages. Everyone seems to warn everybody against picking the runt of the litter.... saying that the puppy will be sickly, have personality flaws and behavior problems.   
+The Runt have a lot of disadvantages.   
+Everyone seems to warn everybody against picking the runt of the litter.... saying that the puppy will be sickly, have personality flaws and behavior problems.   
 They are often left out in the cold.
 
 My Son (Lorenzo) is a runt in the litter. His sibling and older brother (Luigi) was born normal, weighing in at 8 lbs at the time of his birth, and grew up intelligent, athletic, and was loved by many.
