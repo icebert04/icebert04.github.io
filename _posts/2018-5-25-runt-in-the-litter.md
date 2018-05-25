@@ -9,4 +9,8 @@ That Runt will be needding a lot of extra special care and attention to ensuew t
 The Runt have a lot of disadvantages. Everyone seems to warn everybody against picking the runt of the litter.... saying that the puppy will be sickly, have personality flaws and behavior problems.   
 They are often left out in the cold.
 
-My Son (Lorenzo) is a runt in the litter. His 
+My Son (Lorenzo) is a runt in the litter. His sibling and older brother (Luigi) was born normal, weighing in at 8 lbs at the time of his birth, and grew up intelligent, athletic, and was loved by many.
+
+Lorenzo, on the other hand, was born just above 5 lbs. He has a physical deformities. He only has 4 fingers on his left hand, mishapend left ear, and malformed toes.   
+We, as parents, can live with that and shrug off the negativity. But the thing that struck us the most is Lorenzo's Autism. That really hit us to the ground!
+
