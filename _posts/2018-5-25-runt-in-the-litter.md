@@ -14,3 +14,4 @@ My Son (Lorenzo) is a runt in the litter. His sibling and older brother (Luigi) 
 Lorenzo, on the other hand, was born just above 5 lbs. He has a physical deformities. He only has 4 fingers on his left hand, mishapend left ear, and malformed toes.   
 We, as parents, can live with that and shrug off the negativity. But the thing that struck us the most is Lorenzo's Autism. That really hit us to the ground!
 
+Still, we took this as not as a Problem but rather as a Challenge. Lorenzo is turning 13 years old this May 28 and in someway he has improved in lot of ways. Those challenging years 
