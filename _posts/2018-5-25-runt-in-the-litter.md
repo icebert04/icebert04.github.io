@@ -11,11 +11,11 @@ They are often left out in the cold.
 
 My Son (Lorenzo) is a runt in the litter. His sibling and older brother (Luigi) was born normal, weighing in at 8 lbs at the time of his birth, and grew up intelligent, athletic, and was loved by many.
 
-Lorenzo, on the other hand, was born just above 5 lbs. He has a physical deformities. He only has 4 fingers on his left hand, mishapend left ear, and malformed toes.   
-We, as parents, can live with that and shrug off the negativity. But the thing that struck us the most is Lorenzo's Autism. That really hit us to the ground!
+Lorenzo, on the other hand, was born just above 5 lbs. He has a physical deformities. He only has 4 fingers on his left hand, a mishapend left ear, and malformed toes.   
+We, as parents, can afford to live with that and shrug off the negativity. But the thing that struck us the most is Lorenzo's Autism. That really hit us to the ground!
 
 Still, we took this as not as a Problem but rather as a Challenge. Lorenzo is turning 13 years old this May 28 and in someway he has improved in lot of ways. Those challenging years of bringing our Autistic son to different kinds of therapy doctors from Occupational Therapy, Speech Theraphy and SPED Doctors.   
-It cost us an arm and lef but it is definitely worth it. Especially knowing that Lorenzo has matured and someway catching up with his older brother. Lorenzo is a bit slow developing but we are amazed with his progress. In due time and patience, we will see a young and mature Lorenzo.... ready to tackle the world.
+It cost us an arm and leg but it is definitely worth it. Especially knowing that Lorenzo has matured and someway catching up with his older brother. Lorenzo is a bit slow developing but we are amazed with his progress. In due time and patience, we will see a young and mature Lorenzo.... ready to tackle the world.
 
 But why is that Lorenzo is not loved by the people compared to his brother? Is it because Lorenzo acts differently? Somehow I am feeling that Lorenzo is "The Runt of the Litter" to the opinions, assessment, and impression of the other people. Like Lorenzo doesn't belong!   
 I would understand if this came from strangers but I am getting the same reaction from some of my family members and relatives. 
