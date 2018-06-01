@@ -17,3 +17,4 @@ This year (exactly a week ago), we went back to San Pablo but decicided to stay 
 My Tito Norman is a doctor and Tita Josie works basically at home. They have 2 daughters (1 working in Manila and 1 about to study in UPLB).   
 They lived in a property roughly around 700 square meters (definitely bigger than Manila). 
 
+In their home the lovely couple have 3 adult dogs, 6 puppies, 4 male cats, 1 senior citizen chicken, and 1 parakeet. Plus they got fruit bearing trees like Rambutan, Kamias, Calamansi, Sili and lots and lots of herbs.  
