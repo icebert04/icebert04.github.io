@@ -25,8 +25,8 @@ But inside of their house, they have a steady PLDT Wifi, Cable TV, and all of th
 In short, my Tito and Tita have the best of both worlds. They are enjoying the simplicity of their province and the produce that their province gives them and also they have all the technology, mechanics, and knowledge like Metro Manila provides.
 
 Their Weekday Rush hour is like a Easy Sunday driving in Manila. Their tap water is cold and it is safe to drink. They are abundant with Coconuts, Buko Pies and all of its by-products.   
-But most important of all, the people there are less stress than in Manila. A prerequisite for a Healthy and Happy Living!
+But most important of all, the people there are less stress than in Manila. **A prerequisite for a Healthy and Happy Living!**
 
-We never really miss home when we were in San Pablo! So for all the vacationers out there. Try San Pablo. Relax and reconnect yourself, Get a deeper understanding of the locals, and experience activities that take more time. 
+We never really miss home when we were in San Pablo! So for all the vacationers out there. Try San Pablo. Relax and reconnect yourself, Get a deeper understanding of the locals, and experience activities that takes more time. 
 
 I can see from the faces of my Tito Norman and Tita Josie that they are living in probably one of the most happiest place in our country.
