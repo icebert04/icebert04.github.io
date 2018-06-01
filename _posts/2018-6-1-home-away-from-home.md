@@ -19,3 +19,7 @@ They lived in a property roughly around 700 square meters (definitely bigger tha
 
 In their home the lovely couple have 3 adult dogs, 6 puppies, 4 male cats, 1 senior citizen chicken, and 1 parakeet. Plus they got fruit bearing trees like Rambutan, Kamias, Calamansi, Sili and lots and lots of herbs.   
 So this family have some farm and pet animals, generous trees and plants, and the lakes and waterfalls.
+
+But inside of their house, they have a steady PLDT Wifi, Cable TV, and all of the food that you can buy in Manila. Their place in San Pablo also has a mall (SM San Pablo), restaurants, reliable hospitals and respectable education institutions.
+
+In short, my Tito and Tita have the best of both worlds. They are enjoying the simplicity of their province and the produce that place gives them and also they have all the technology, mechanics, and knowledged like Metro Manila provides.
