@@ -31,4 +31,4 @@ But most important of all, the people there are less stress than in Manila. **A 
 
 We never really miss home when we were in San Pablo! So for all the vacationers out there. Try San Pablo. Relax and reconnect yourself, Get a deeper understanding of the locals, and experience activities that takes more time. 
 
-I can see from the faces of my Tito Norman & Tita Josie that they are living in probably one of the most happiest place in our country.
+I can see from the faces of my Tito Norman & Tita Josie that they pick the perfect place and are living in probably one of the most happiest place in our country.
