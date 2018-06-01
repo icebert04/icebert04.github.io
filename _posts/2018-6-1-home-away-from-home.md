@@ -23,3 +23,6 @@ So this family have some farm and pet animals, generous trees and plants, and th
 But inside of their house, they have a steady PLDT Wifi, Cable TV, and all of the food that you can buy in Manila. Their place in San Pablo also has a mall (SM San Pablo), restaurants, reliable hospitals and respectable education institutions.
 
 In short, my Tito and Tita have the best of both worlds. They are enjoying the simplicity of their province and the produce that place gives them and also they have all the technology, mechanics, and knowledged like Metro Manila provides.
+
+Their Weekday Rush hour is like a Easy Sunday driving in Manila. Their tap water is cold and it is safe to drink. They are abundant with Coconuts, Buko Pies and all of its by-products.   
+But most important of all, the people there are less stress than in Manila. A prerequisite for a Healthy and Happy Living!
