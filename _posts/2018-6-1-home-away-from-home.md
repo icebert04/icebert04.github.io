@@ -15,7 +15,7 @@ It is nestled in the foothills of 3 mountains: **Mount Banahaw**, **Mount Makili
 Whenever I have the chance, I drive for 2 hours to San Pablo, then rush to Laguna's beatified nature consists of lakes, waterfalls, and lagoons.   
 Last time we were in San Pablo we went swimming in **Pandin Lake**, visited **Nagcarlan's Underground Cementery**, bought a few slippers in **Liliw** then took the heat off in **Majajay's Falls**.  
 
-This year (exactly a week ago), we went back to San Pablo but decicided to stay put in the house of my uncle and aunt (Tito and Tita), who happened to be a local in the city.   
+This year (exactly a week ago), we went back to San Pablo but decided to stay put in the house of my uncle and aunt (Tito and Tita), who happened to be a local in the city.   
 My Tito Norman is a Doctor and Tita Josie works basically at home. They have 2 daughters (1 working in Manila and 1 about to study in UPLB).   
 They lived in a property roughly around 700 square meters (outside of the norm in Manila). 
 
