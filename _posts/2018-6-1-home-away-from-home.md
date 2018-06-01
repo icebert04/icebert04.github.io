@@ -3,7 +3,7 @@ published: true
 ---
 ![Home](/images/San Pablo 2.jpg)
 
-Do you ever get that feeling that when you take your long vacation then suddenly you miss home? That happens habitually when stay in your vacation spot for too long.   
+Do you ever get that feeling that when you take your long vacation then suddenly you miss home? That happens habitually when you stay in your vacation spot for too long.   
 You begin to miss stuff at home like your Wifi speed, the Malls, your favorite Restaurants, and the sense that you're being updated on all things.
 
 Your vacation spot or Province of your selection, though blessed with natural resources and beautiful surroundings, probably doesn't have the things that big cities like Manila have.   
