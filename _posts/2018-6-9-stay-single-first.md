@@ -22,3 +22,6 @@ Factors such as Lack of Information, Early Menarche, and the Rise of the uncontr
 Girls in our country are stuck in **"Disney World"**! Like they live in a Fairy Tale land, where their Prince Charming will come rescue them from their Evil Parents. They will know the Sad Ending after giving birth to their 4th child, waiting for their drunk prince charming to arrive.
 
 Our Government should implement information campaigns and programs that can educate these young girls. While parents must bring their daughters to school consistently for them to be educated, get some skills, earn a stable income, where she may more likely marry later and delay childbearing until she is ready.
+
+I'll make this very simple.... What life do you want? The 17 year old Filipina with 4 children or my Web Developer friend from Japan?   
+It's a no brainer.... I'll take the life of Cassandra in a heartbeat!
