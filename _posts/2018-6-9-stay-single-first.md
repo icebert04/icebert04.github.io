@@ -14,7 +14,7 @@ My friend is so madly in love that she probably could be tying the knot this yea
 Marriage is not in her mind.... well, not yet.   
 Cassandra wants to travel, see different cultures, broaden her horizons and create memories of a lifetime. And so she did exactly that. She traveled to countries in South East Asia, and now in Europe. 
 
-The last time that we talked, she was in Prague checking on the hidden attractions, cool sights, and unusual things in the capital. She really had fun travelling and intends to travel for more.
+The last time that we talked, she was in Prague checking on the hidden attractions, cool sights, and unusual things in the capital. She really had fun traveling and intends to travel for more.
 
 Sadly, that is not the case in the Philippines. 1 in 10 young Filipino women (age 15-19) is already a mother or pregnant with her first child. The Philippines has the 3rd highest "**Teen Pregnancy**" rate and is the only country in the region where the rate is increasing.   
 Factors such as Lack of Information, Early Menarche, and the Rise of the Uncontrollable Gadgets and Online Social Networks are the primary reason why the problem continues to persist.
