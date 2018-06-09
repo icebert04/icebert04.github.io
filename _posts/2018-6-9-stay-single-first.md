@@ -14,3 +14,6 @@ My friend probably could be tying the knot this year right..... Eeennkkk, WRONG!
 Marriage is in her mind.... well, not yet.   
 Cassandra wants to travel, see the different cultures, broaden her horizons and create memories of a lifetime. And so she did exactly that. She travelled to countries in South East Asia, and now in Europe. 
 
+The last time that we talked she was in Prague checking on the hidden attractions, cool sights, and unusual things in the capital. She really had fun travelling and intends to travel to other countries.
+
+Sadly, that is not the case in the Philippines. 
