@@ -17,7 +17,7 @@ Cassandra wants to travel, see different cultures, broaden her horizons and crea
 The last time that we talked, she was in Prague checking on the hidden attractions, cool sights, and unusual things in the capital. She really had fun traveling and intends to travel for more.
 
 Sadly, that is not the case in the Philippines. 1 in 10 young Filipino women (age 15-19) is already a mother or pregnant with her first child. The Philippines has the 3rd highest "**Teen Pregnancy**" rate and is the only country in the region where the rate is increasing.   
-Factors such as Lack of Information, Early Menarche, and the Rise of the Uncontrollable Gadgets and Online Social Networks are the primary reason why the problem continues to persist.
+Factors such as Lack of Information, Early Menstruation, and the Rise of the Uncontrollable Gadgets and Online Social Networks are the primary reason why the problem continues to persist.
 
 Girls in our country are stuck in **"Disney World"**! Like they live in a Fairy Tale land, where their Prince Charming will come rescue them from their Evil Parents. They will know the Sad Ending after giving birth to their 4th child, waiting for their drunk prince charming to arrive.
 
