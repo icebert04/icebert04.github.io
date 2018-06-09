@@ -25,5 +25,6 @@ Our Government should implement information campaigns and programs that can educ
 
 Ladies, please be wise and think first before making an act. Life is precious and believe it or not... you can control it even if life is full of uncertainties.   
 Enjoy your youth. It's an advice where most adult people gives to lessen their regret. 
+
 I'll make this very simple.... What life do you want? The 17 year old Filipina with 4 children or my Web Developer friend from Japan?   
 It's a no brainer.... I'll take the life of Cassandra in a heartbeat!
