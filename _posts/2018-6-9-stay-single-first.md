@@ -21,7 +21,7 @@ Factors such as Lack of Information, Early Menstruation, and the Rise of the Unc
 
 Girls in our country are stuck in **"Disney World"**! Like they live in a Fairy Tale land, where their Prince Charming will come rescue them from their Evil Parents. They will know the Sad Ending after giving birth to their 4th child, waiting for their drunk prince charming to arrive.
 
-Our Government should implement information campaigns and programs that can educate these young girls. While parents must bring their daughters to school consistently for them to be educated, get some skills, earn a stable income, where their daugthers may more likely marry later and delay childbearing until they are ready.
+Our Government should implement information campaigns and programs that can educate these young girls. While parents must bring their daughters to school consistently for them to be educated, get some skills, earn a stable income, where their daughters may more likely marry later and delay childbearing until they are ready.
 
 Ladies, please be wise and think first before making an act. Life is precious and believe it or not... you can control it even if life is full of uncertainties.   
 Enjoy your youth. It's an advice where most adult people gives to lessen their regret. 
