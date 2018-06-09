@@ -4,7 +4,7 @@ published: true
 ![Aram](/images/A Ram 6.jpg)
 
 Yes ladies, Don't get married yet. Enjoy the life of being single first. Don't be in a rush to marry the man of your dreams. Or have the baby of your own. That will come in due time.
-Rather, relish the privilege of being a **"Bachelorette"**. The life of little responsibilites, bounteous travel & adventures, and more importantly.... total **"Freedom"**!
+Rather, relish the privilege of being a **"Bachelorette"**. The life of little responsibilities, bounteous travel & adventures, and more importantly.... total **"Freedom"**!
 
 Cassandra (not her real name), who is in this picture, is a friend of mine based in Tokyo. She is also a Web Developer like me and enjoys the perks of flexible working hours and earning potential.   
 She left her parents after graduation and immediately got a promising job in Japan. Everything was doing well for Cassandra. Her career, her adventure for new food discovery and yes.... her love life.   
