@@ -12,4 +12,5 @@ That is the reason why I didn't declare her real name because she has a over jea
 
 My friend probably could be tying the knot this year right..... Eeennkkk, WRONG!!!!   
 Marriage is in her mind.... well, not yet.   
-Cassandra wants to travel, see the different cultures, broaden her horizons and create memories of a lifetime.  
+Cassandra wants to travel, see the different cultures, broaden her horizons and create memories of a lifetime. And so she did exactly that. She travelled to countries in South East Asia, and now in Europe. 
+
