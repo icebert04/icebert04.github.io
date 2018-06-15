@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Kitchen](/images/Ka-Ising.jpg)
