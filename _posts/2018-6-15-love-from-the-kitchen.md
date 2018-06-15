@@ -13,4 +13,6 @@ From there Felicia Manalo (her full name), will start the wood (fallen from the 
 
 She will start first with our freshly brewed **"Kapeng Barako"** or Batangas Coffee. Then she continues with her own version of **"Beef Tapa Jerky"** with sunny side up eggs, kuyog (danggit), atchara and fried rice. Take note that the Tapa Jerky that she makes is labor intensive. It takes days for her to make something like that and only minutes for us to consume.
 
-Me and my sister Meryl, always goes after her palayok (A clay pot used as the traditional food preparation container). We go there to check if there still a remaining **"Sinaing na Tuligan"** left. If there's none, we beg Ka-Ising to go to the market and buy that specific salt water fish for us. Believe me, this reciper of hers is so good that it took my sister 12 years to shed off all of her Baby Fats.
+Me and my sister Meryl, always goes after her palayok (A clay pot used as the traditional food preparation container). We go there to check if there still a remaining **"Sinaing na Tuligan"** left. If there's none, we beg Ka-Ising to go to the market and buy that specific salt-water fish for us. Believe me, this recipe of hers is so good that it took my sister 12 years to shed off all of her Baby Fats.
+
+The most favorite of all of her recipes is the **"Adobong Batangas"**. 
