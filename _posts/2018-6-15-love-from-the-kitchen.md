@@ -13,7 +13,8 @@ From there Felicia Manalo (her full name), will start the wood (fallen from the 
 
 She will start first with our freshly brewed **"Kapeng Barako"** or Batangas Coffee. Then she continues with her own version of **"Beef Tapa Jerky"** with Sunny-side up Eggs, Kuyog (Danggit), Atchara and Fried Rice. Take note that the Tapa Jerky that she makes is labor intensive. It takes days for her to make something like that and only minutes for us to consume.
 
-Me and my sister Meryl, always goes after her **Palayok** (A clay pot used as the traditional food preparation container). We go there to check if there still a remaining **"Sinaing na Tuligan"** left. If there's none, we beg Ka-Ising to go to the market and buy that specific salt-water fish for us. Believe me, this recipe of hers is so good that it took my sister 12 years to shed off all of her Baby Fats.
+Me and my sister Meryl, always goes after her **Palayok** (A clay pot used as the traditional food preparation container). We go there to check if there still a remaining **"Sinaing na Tuligan"** left.   
+If there's none, we beg Ka-Ising to go to the market and buy that specific salt-water fish for us. Believe me, this recipe of hers is so good that it took my sister 12 years to shed off all of her Baby Fats.
 
 The most favorite of all of her recipes is the **"Adobong Baboy"**. It's one of the best well known dishes in our country. It consist of pork meat, spices, soy sauce and garlic. It all starts when Ka-Ising marinates the meat with vinegar overnight. The next morning, she slow cooked the Adobo until we ran out of firewood.   
 The meat is so soft and tender that I don't mind having that dish from breakfast till midnight snack. 
