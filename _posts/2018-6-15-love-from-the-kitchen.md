@@ -26,7 +26,7 @@ The thing that matters most is Ka-Ising's desire and passion to spend that crazy
 I will never forget one birthday of mine where Ka-Ising's gift overpowered the rest. She gave me a plastic Batmobile with Batman & Robin on it. The rest of the gift that I've received were branded clothes that every kids needs but not wanted.   
 Ka-Ising knew what I wanted and that is what hit me the most.
 
-Me and everyone in my family has a very special bond with the Cook. She became family. 
+Me and everyone in my family has a very special bond with the Cook. THe Cook who mostly spent most of her adult age in our kitchen. She's so special that She become family. 
 
 At the moment, Ka-Ising is staying with her family happily retired in her profession. Every now and then, whenever I get the chance... I **"Renew that Bond"**!   
 The love that started from the kitchen now stayed with us through lifetime. She deserves all the love and respect from all of us.
