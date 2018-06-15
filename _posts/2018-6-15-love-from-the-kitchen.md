@@ -17,7 +17,7 @@ Take note that the Tapa Jerky that she makes is labor intensive. It takes days f
 Me and my sister Meryl, always goes after her **Palayok** (A clay pot used as the traditional food preparation container). We go there to check if there still a remaining **"Sinaing na Tuligan"** left.   
 If there's none, we beg Ka-Ising to go to the market and buy that specific salt-water fish for us. Believe me, this recipe of hers is so good that it took my sister 12 years to shed off all of her Baby Fats.
 
-The most favorite of all of her recipes is the **"Adobong Baboy"**. It's one of the best well known dishes in our country. It consist of pork meat, spices, soy sauce and garlic. It all starts when Ka-Ising marinates the meat with vinegar overnight. The next morning, she slow cooked the Adobo until we ran out of firewood.   
+My most favorite of all of her recipes is the **"Adobong Baboy"**. It's one of the best well known dishes in our country. It consist of pork meat, spices, soy sauce and garlic. It all starts when Ka-Ising marinates the meat with vinegar overnight. The next morning, she slow cooked the Adobo until we ran out of firewood.   
 The meat is so soft and tender that I don't mind having that dish from breakfast till midnight snack. 
 
 Ka-Ising makes quality **"Ube Halaya"**. It's a popular local dessert that is served in many households during special occasions like fiesta and family gatherings. She does Tsokolate and Suman for breakfast for my Lola's guests. Everyday we never ran out of guests so we got lots of those in our table. 
