@@ -24,7 +24,8 @@ Ka-Ising makes quality **"Ube Halaya"**. It's a popular local dessert that is se
 
 There are more dishes that Ka-Ising cooks like the **"Ginataang Kuhol"**, **"Sinigang na Hipon"**, **"Kalderetang Baka"**, and many other but I have to stop from here. This article is getting too long and all those recipes are making me hungry. 
 
-The thing that matters most is Ka-Ising's desire and passion to spend that crazy amount of time to create the masterpiece that we eat everyday. She wants us not only to fulfill our hunger but she also loves us dearly. In essence, She took care of us all.  
+The thing that matters most is Ka-Ising's desire and passion to spend that crazy amount of time to create the masterpiece that we eat everyday. She wants us not only to fulfill our hunger but she also loves us dearly. In essence, She took care of us all. 
+
 I will never forget one birthday of mine where Ka-Ising's gift overpowered the rest. She gave me a plastic Batmobile with Batman & Robin on it. The rest of the gift that I've received were branded clothes that every kids needs but not wanted.   
 Ka-Ising knew what I wanted and that is what hit me the most.
 
