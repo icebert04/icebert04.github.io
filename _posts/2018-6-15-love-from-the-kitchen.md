@@ -8,4 +8,7 @@ All of us are loved by the people close to us. We undeniably aborb that love and
 Things get pretty shallow outside of our Immediate Family circle. We got back-stabbing relatives, ex-friends and ex-lovers, hypocrite co-workers, etc.   
 Only seldom we see and hear stories of extra-ordinary love from strangers and outsider. 
 
-Mine started from the kitchen. Ka-Ising (Felicia Manalo) is her name. She works as **"The Cook"** for my Lola in a 10 hectare property in Balayan Batangas. Every morning, Ka-Ising wakes up very early to take that 3 kilometer walk from her place to my Lola's mango orchard.
+Mine started from the kitchen. Ka-Ising is her name. She works as **"The Cook"** for my Lola in a 10 hectare property in Balayan Batangas. Every morning, Ka-Ising wakes up very early to take that 3 kilometer walk from her place to my Lola's residence.   
+From there Felicia Manalo (her full name), will start the wood (fallen from the mango trees) by only using a steel pipe to initiate the fire.
+
+She will start first with our freshly brewed **"Kapeng Barako"** or Batangas Coffee. 
