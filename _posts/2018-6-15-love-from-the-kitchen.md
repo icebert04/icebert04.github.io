@@ -11,4 +11,4 @@ Only seldom we see and hear stories of extra-ordinary love from strangers and ou
 Mine started from the kitchen. Ka-Ising is her name. She works as **"The Cook"** for my Lola in a 10 hectare property in Balayan Batangas. Every morning, Ka-Ising wakes up very early to take that 3 kilometer walk from her place to my Lola's residence.   
 From there Felicia Manalo (her full name), will start the wood (fallen from the mango trees) by only using a steel pipe to initiate the fire.
 
-She will start first with our freshly brewed **"Kapeng Barako"** or Batangas Coffee. Then she continues with her own version of **"Beef Tapa Jerky"** with sunny side up eggs, atchara and fried rice.  
+She will start first with our freshly brewed **"Kapeng Barako"** or Batangas Coffee. Then she continues with her own version of **"Beef Tapa Jerky"** with sunny side up eggs, atchara and fried rice. Take note that the Tapa Jerky that she makes is labor intensive. It takes days for her to make something like that and only minutes for us to consume.   
