@@ -20,4 +20,4 @@ The meat is so soft and tender that I don't mind having that dish from breakfast
 
 Ka-Ising makes quality **"Ube Halaya"**. It's a popular local dessert that is served in many households during special occasions like fiesta and family gatherings. She does Tsokolate and Suman for breakfast for my Lola's guests. Everyday we never ran out of guests so we got lots of those in our table. 
 
-There are more dishes that Ka-Ising cooks like the **"Ginataang Kuhol"**, **"Sinigang na Hipon"**, **"Kalderetang Baka"**, and many other but  
+There are more dishes that Ka-Ising cooks like the **"Ginataang Kuhol"**, **"Sinigang na Hipon"**, **"Kalderetang Baka"**, and many other but I have to stop from here. This article is getting too long and all those recipes are making me hungry. 
