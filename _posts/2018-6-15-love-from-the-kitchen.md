@@ -15,4 +15,5 @@ She will start first with our freshly brewed **"Kapeng Barako"** or Batangas Cof
 
 Me and my sister Meryl, always goes after her palayok (A clay pot used as the traditional food preparation container). We go there to check if there still a remaining **"Sinaing na Tuligan"** left. If there's none, we beg Ka-Ising to go to the market and buy that specific salt-water fish for us. Believe me, this recipe of hers is so good that it took my sister 12 years to shed off all of her Baby Fats.
 
-The most favorite of all of her recipes is the **"Adobong Batangas"**. 
+The most favorite of all of her recipes is the **"Adobong Baboy"**. It's one of the best well known dishes in our country. It consist of pork meat, spices soy sauce and garlic. It all start by marinating the meat with vinegar overnight. The next morning, she slow cooked the Adobo until we ran out of firewood.   
+The meat is so soft and tender that I don't mind having that dish from breakfast till midnight snack. 
