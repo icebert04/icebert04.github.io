@@ -25,3 +25,8 @@ There are more dishes that Ka-Ising cooks like the **"Ginataang Kuhol"**, **"Sin
 The thing that matters most is Ka-Ising's desire and passion to spend that crazy amount of time to create the masterpiece that we eat everyday. She wants us not only to fulfill our hunger but she loves us dearly.   
 I will never forget one birthday of mine where Ka-Ising's gift overpowered the rest. She gave me a plastic Batmobile with Batman & Robin on it. The rest of the gift that I've received were branded clothes that every kids needs but not wanted.   
 Ka-Ising knew what I wanted and that is what hit me the most.
+
+Me and everyone in my family has a very special bond with the Cook. She became family. 
+
+At the moment, Ka-Ising is staying with her family happily retired in her profession. Every now and then, whenever I get the chance... I **"Renew that Bond"**!   
+The love that started from the kitchen now stayed with us through lifetime. 
