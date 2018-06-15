@@ -17,3 +17,7 @@ Me and my sister Meryl, always goes after her palayok (A clay pot used as the tr
 
 The most favorite of all of her recipes is the **"Adobong Baboy"**. It's one of the best well known dishes in our country. It consist of pork meat, spices soy sauce and garlic. It all start by marinating the meat with vinegar overnight. The next morning, she slow cooked the Adobo until we ran out of firewood.   
 The meat is so soft and tender that I don't mind having that dish from breakfast till midnight snack. 
+
+Ka-Ising makes quality **"Ube Halaya"**. It's a popular local dessert that is served in many households during special occasions like fiesta and family gatherings. She does Tsokolate and Suman for breakfast for my Lola's guests. Everyday we never ran out of guests so we got lots of those in our table. 
+
+There are more dishes that Ka-Ising cooks like the **"Ginataang Kuhol"**, **"Sinigang na Hipon"**, **"Kalderetang Baka"**, and many other but  
