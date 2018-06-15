@@ -31,4 +31,4 @@ Me and everyone in my family has a very special bond with the Cook. She became f
 At the moment, Ka-Ising is staying with her family happily retired in her profession. Every now and then, whenever I get the chance... I **"Renew that Bond"**!   
 The love that started from the kitchen now stayed with us through lifetime. She deserves all the love and respect from all of us.
 
-There is a saying that a way through a Man's Heart is through his Stomach. I believe that a way through a Man's Heart is through is Heart.... the only thing that truly matters. 
+There is a saying that a way through a Man's Heart is through his Stomach. I believe that a way through a Man's Heart is through is Heart.... the one thing that truly matters. 
