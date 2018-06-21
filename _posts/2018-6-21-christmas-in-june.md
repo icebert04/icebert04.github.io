@@ -18,3 +18,6 @@ Intrigued with his pure intentions I asked more details about the said event. Qu
 Those questions lead to hours of long talks and interesting stories about him and his efforts he has done to other countries. At that time, I began to know the guy... the real him!   
 Jim played and made jokes with my boys. Gave kitchen souveneirs to my wife. And gave me and very unique item that came from South Africa.   
 My doubts turned into blessed assurance. I said to myself... he is definitely Santa Claus! He definitely must be!
+
+In Western and Eastern Christian culture, people tend to be more "Kind and Generous" only in the month of December. After that it's all back to selfishness again.   
+Why can't we be this Candadian guy who treats each month like Christmas. Giving is so important and it isn´t always about what you have in your hands to give, but sometimes so much more; something from deep down in your heart that you`re doing voluntarily.
