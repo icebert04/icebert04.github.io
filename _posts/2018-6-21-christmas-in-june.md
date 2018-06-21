@@ -25,7 +25,7 @@ Why can't we be this Candadian guy who treats each month like Christmas. It teac
 
 Giving gives us hope that there is still some good in this world. It reminds us that we do have gentle hearts and can be **"Man For Others"** whenever a circumstance arrise.   
 I'm glad I met Jim. He taught how to be "Jolly" and "Happy" all the time regardless of month we are in. I am happiest in the month of December so why not do that also in January, February and all of the remaining months.   
-We can have a "Monthly Christmas" and spread Holiday spirit and the gift of giving in our minds and hearts. 
+We can have a **"Monthly Christmas"** and spread Holiday spirit and the gift of giving in our minds and hearts. 
 
 So yes, this is all an illusion. The big guy from Canada is pretending to be an ordinary guy who helds events for charitable purposes. The real story is Jim is Santa Claus. He is just wise to hide his loyal reindeers to me and my family.   
 I have a hunch that Rudolph The Red Nose reindeer is hiding somewhere among our neighbor's trees. 
