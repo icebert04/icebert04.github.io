@@ -9,7 +9,8 @@ Dasher, Dancer, Prancer, Vixen, Comet, Cupid, Donner, Blitzen and his most prize
 My children even took pictures of Santa's sleight that weigh over 400,000 tons carrying all the toys for all the children all over the world.
 
 So I asked Santa why did he paid us a visit in the midyear. Are we good to people so you decided to give your Christmas presents in advance?
-Heck no! The gentleman said. I'm not Santa and I don't live in the North Pole. My name is Jim, a Canadian. Suddenly, the reindeers and the long sleight disappeared in our very eyes.   
+Heck no! The gentleman said.   
+I'm not Santa and I don't live in the North Pole. My name is Jim, a Canadian. Suddenly, the reindeers and the long sleight disappeared in our very eyes.   
 It's all an illusion. So this guy must be an impostor. 
 
 Still, I politely ask the guy who look Santa his purpose of his visit. The guy with the long beard replied "I have a charity event in Tacloban". A Concert where the proceeds will go directly to the poor people in province of Leyte.   
