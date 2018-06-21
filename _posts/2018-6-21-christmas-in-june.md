@@ -21,3 +21,6 @@ My doubts turned into blessed assurance. I said to myself... he is definitely Sa
 
 In Western and Eastern Christian culture, people tend to be more "Kind and Generous" only in the month of December. After that it's all back to selfishness again.   
 Why can't we be this Candadian guy who treats each month like Christmas. Giving is so important and it isn´t always about what you have in your hands to give, but sometimes so much more; something from deep down in your heart that you`re doing voluntarily.
+
+Giving gives us hope that there is still some good in this world. It reminds us that we do have gentle hearts and can be "Man For Others" whenever a circumstance arrives.   
+I'm glad I met Jim. He taught how to be "Jolly" and "Happy" all the time regardless of month we are in. 
