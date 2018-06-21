@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Christmas](/images/Santa Claus.jpg)
