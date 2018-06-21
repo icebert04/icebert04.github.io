@@ -23,4 +23,5 @@ In Western and Eastern Christian culture, people tend to be more "Kind and Gener
 Why can't we be this Candadian guy who treats each month like Christmas. Giving is so important and it isn´t always about what you have in your hands to give, but sometimes so much more; something from deep down in your heart that you`re doing voluntarily.
 
 Giving gives us hope that there is still some good in this world. It reminds us that we do have gentle hearts and can be "Man For Others" whenever a circumstance arrives.   
-I'm glad I met Jim. He taught how to be "Jolly" and "Happy" all the time regardless of month we are in. 
+I'm glad I met Jim. He taught how to be "Jolly" and "Happy" all the time regardless of month we are in. I am happiest in the month of December so why not do that also in January, February and all of the remaining months.   
+We can have a "Monthly Christmas" and spread Holiday spirit and the gift of giving in our minds and hearts. 
