@@ -11,9 +11,9 @@ My children even took pictures of Santa's sleight that weigh over 400,000 tons c
 So I asked Santa why did he paid us a visit in the midyear. Are we good to people so you decided to give your Christmas presents in advance?
 Heck no! The gentleman said.   
 I'm not Santa and I don't live in the North Pole. My name is Jim, from Winnipeg Canada. Suddenly, the reindeers and the long sleight disappeared in our very eyes.   
-It's all an illusion. This guy is totally an impostor. 
+It's all an illusion. This guy is totally an impostor! 
 
-Still, I politely ask the guy who look Santa his purpose of his visit. The guy with the long beard replied "I have a charity event in Tacloban". A Concert where the proceeds will go directly to the poor people in province of Leyte.   
+Still, I politely asked the guy who look like Santa his purpose of his visit. The guy with the long beard replied **"I have a charity event in Tacloban"**. A Concert where the proceeds will go directly to the poor people in province of Leyte.   
 Intrigued with his pure intentions I asked more details about the said event. Questions like What type of songs will you be playing? How long will he be staying? and Are you along in this program?
 
 Those questions lead to hours of long talks and interesting stories about him and his efforts he has done to other countries. At that time, I began to know the guy... the real him!   
