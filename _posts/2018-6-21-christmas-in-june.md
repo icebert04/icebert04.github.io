@@ -20,7 +20,7 @@ Those questions lead to hours of long talks and interesting stories about him an
 Jim played and made jokes with my boys. Gave kitchen souveneirs to my wife. And hand overed me a very unique item that came from South Africa.   
 My doubts turned into blessed assurance. I said to myself... he is definitely Santa Claus! He definitely must be!
 
-In Western and Eastern Christian culture, people tend to be more **"Kind and Generous"** only in the month of December. After that it's all back to selfishness again.   
+In Western and Eastern Christian culture, people tend to be more **"Kind and Generous"** only in the month of December. After that, it's all back to selfishness again.   
 Why can't we be this Candadian guy who treats each month like Christmas. Giving is so important and it isn´t always about what you have in your hands to give, but sometimes so much more; something from deep down in your heart that you`re doing voluntarily.
 
 Giving gives us hope that there is still some good in this world. It reminds us that we do have gentle hearts and can be "Man For Others" whenever a circumstance arrives.   
