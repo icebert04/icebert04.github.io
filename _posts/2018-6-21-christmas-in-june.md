@@ -17,4 +17,4 @@ Intrigued with his pure intentions I asked more details about the said event. Qu
 
 Those questions lead to hours of long talks and interesting stories about him and his efforts he has done to other countries. At that time, I began to know the guy... the real him!   
 Jim played and made jokes with my boys. Gave kitchen souveneirs to my wife. And gave me and very unique item that came from South Africa.   
-My doubts turned into blessed assurance. 
+My doubts turned into blessed assurance. I said to myself... he is definitely Santa Claus! He definitely must be!
