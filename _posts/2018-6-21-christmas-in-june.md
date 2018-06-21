@@ -17,7 +17,7 @@ Still, I politely asked the guy who look like Santa his purpose of his visit. Th
 Intrigued with his pure intentions, I asked more details about the said event. Questions like What type of songs will he be playing? The duration of his stay? and Will he being going to other places like Cebu or Davao?
 
 Those questions lead to hours of long talks and interesting stories about him and his efforts that he has accomplished in other countries. At that time, I began to know the guy... the real him!   
-Jim played and made jokes with my boys. Gave kitchen souveneirs to my wife. And hand overed me a very unique item that came from South Africa.   
+Jim played and made jokes with my boys. Gave kitchen souvenirs to my wife. And hand overed me a very unique item that came from South Africa.   
 My doubts turned into blessed assurance. I said to myself... he is definitely Santa Claus! He definitely must be!
 
 In Western and Eastern Christian culture, people tend to be more **"Kind and Generous"** only in the month of December. After that, it's all back to selfishness again.   
