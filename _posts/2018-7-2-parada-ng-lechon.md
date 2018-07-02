@@ -23,7 +23,7 @@ We get to see new guests from different places, relatives that we haven't seen f
 
 Both local and tourist alike find ways to get to Balayan to celebrate dubbed as **"The Ultimate Fiesta Experience"**. Some choose to stay behind a day or two and still continue to wet people with water to prolong their enjoyment. This happens once a year, might as well extend it right.... are the reasons of the vacationers in Balayan.
 
-Fiestas were encouraged by the Spanish to coincide with Christian holy days, early festivals became vital instruments in spreading Christianity thoughout the country.   
+Fiestas were encouraged by the Spanish to coincide with Christian holy days, early festivals became vital instruments in spreading Christianity throughout the country.   
 But today, Fiestas are much more than that. It's about the people. Their generosity and hospitality. Their warmness of receiving guests even if they are total stangers.   
 It's like **Everyday is a Happy Day to Every Filipino**.
 
