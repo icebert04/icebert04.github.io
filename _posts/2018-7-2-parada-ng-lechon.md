@@ -13,3 +13,5 @@ Fiestas in the Philippines are held to honor their local Roman Catholic patron s
 In dismay, I only been to a few of those festivals. A fact that I regret up to this day. A Filipino should enjoy their own country and see all the beauty of it.   
 Hopefully someday I will.... Luckily, I have my hometown to go to. The place where my ancestors originated (Martinez Family). A small town in Batangas called Balayan. 
 
+The Parada ng Lechon in Balayan (the “king of all Batangas festivals”) is a celebration held annually on 24 June (Feast of St. John the Baptist) where a full roasted pig is dressed, paraded, and doused with water to signify the act of baptism and celebrate St. John’s sainthood.
+In the early 1950's, the elders descirbed the 
