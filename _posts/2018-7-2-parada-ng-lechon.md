@@ -14,4 +14,6 @@ In dismay, I only been to a few of those festivals. A fact that I regret up to t
 Hopefully someday I will.... Luckily, I have my hometown to go to. The place where my ancestors originated (Martinez Family). A small town in Batangas called Balayan. 
 
 The Parada ng Lechon in Balayan (the “king of all Batangas festivals”) is a celebration held annually on 24 June (Feast of St. John the Baptist) where a full roasted pig is dressed, paraded, and doused with water to signify the act of baptism and celebrate St. John’s sainthood.
-In the early 1950's, the elders descirbed the 
+
+Some tourist described the Parada ng Lechon as "The Most Hospitable and Unique Fiesta Celebration in the Country" because the fun does not end with the parade of the pigs.   
+Beer and music lovers attest that the real fun begins after the parade when Balayan town becomes a very big and open beer fest area where people drink enormous amounts of beer and other liquors and listen to dozens of live bands in many streets of the poblacion and even in many barrios.
