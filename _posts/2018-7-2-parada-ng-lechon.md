@@ -21,7 +21,7 @@ Beer and music lovers attest that the real fun begins after the parade when Bala
 Every year, me and my family adjust our work and school schedule to be able to attend the Parada ng Lechon. We just don't get the annual Parada ng Lechon t-shirts, the food and the booze, but every year is a different year for us.   
 We get to see new guests from different places, relatives that we haven't seen for a long time, and a week of activities and events before the Parade.
 
-Both local and tourist alike find ways to get to Balayan to celebrate dubbed as "The Ultimate Fiesta Experience". Some choose to stay behind a day or two and still continue to wet people with water to prolong their enjoyment. This happens once a year, might as well extend it right.... are the reasons of the vacationers in Balayan.
+Both local and tourist alike find ways to get to Balayan to celebrate dubbed as **"The Ultimate Fiesta Experience"**. Some choose to stay behind a day or two and still continue to wet people with water to prolong their enjoyment. This happens once a year, might as well extend it right.... are the reasons of the vacationers in Balayan.
 
 Fiestas were encouraged by the Spanish to coincide with Christian holy days, early festivals became vital instruments in spreading Christianity thoughout the country.   
 But today, Fiestas are much more than that. It's about the people. Their generosity and hospitality. Their warmness of receiving guests even if they are total stangers.   
