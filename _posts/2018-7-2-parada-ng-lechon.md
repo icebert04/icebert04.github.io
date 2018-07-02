@@ -8,6 +8,8 @@ Theoretically, a foreign tourist can visit the Philippines spending only their a
 
 It's funny to think that with all the problems that the country faces today these fiestas somewhat decreases it. A fact that the Philippines absorbs 20 storms per year that destroys hundreds of houses of the poor Filipinos but still manage to smile at camera of the media is a sign that Filipinos are Jolly People regardless of the circumstances.
 
-Fiestas in the Philippines are held to honor their local Roman Catholic patron saint and to commemorate local history and culture. Festivals like the Kalibo' Ati-Atihan, Baguio's Panagbenga, Marinduque's Moriones, Lucban's Pahiyas and Bacolod's MassKara are one of the top events that people go to.   
+Fiestas in the Philippines are held to honor their local Roman Catholic patron saint and to commemorate local history and culture. Festivals like the Kalibo's Ati-Atihan, Baguio's Panagbenga, Marinduque's Moriones, Lucban's Pahiyas and Bacolod's MassKara are one of the top events that people go to.   
 
-In dismay, I only been to a few of those festivals. A fact that I regret up to this day. A Filipino should enjoy their own country and see all the beauty of it. Hopefully someday I will.... Luckily, I have my hometown to go to. The place where my ancestors originated (Martinez Family). A small town in Batangas called Balayan.  
+In dismay, I only been to a few of those festivals. A fact that I regret up to this day. A Filipino should enjoy their own country and see all the beauty of it.   
+Hopefully someday I will.... Luckily, I have my hometown to go to. The place where my ancestors originated (Martinez Family). A small town in Batangas called Balayan. 
+
