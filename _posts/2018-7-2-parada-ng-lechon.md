@@ -25,6 +25,6 @@ Both local and tourist alike find ways to get to Balayan to celebrate dubbed as 
 
 Fiestas were encouraged by the Spanish to coincide with Christian holy days, early festivals became vital instruments in spreading Christianity thoughout the country.   
 But today, Fiestas are much more than that. It's about the people. Their generosity and hospitality. Their warmness of receiving guests even if they are total stangers.   
-It's like everyday is a Happy Day to every Filipino.
+It's like **Everyday is a Happy Day to Every Filipino**.
 
 If you feel that I am overeacting and dressing this up a notch, come and join the Parada ng Lechon 2019.... and let the Lechon, the splashing of the water do the talking for you!!!
