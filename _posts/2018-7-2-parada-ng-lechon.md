@@ -27,4 +27,4 @@ Fiestas were encouraged by the Spanish to coincide with Christian holy days, ear
 But today, Fiestas are much more than that. It's about the people. Their generosity and hospitality. Their warmness of receiving guests even if they are total strangers.   
 It's like **Everyday is a Happy Day to Every Filipino**.
 
-If you feel that I am overeacting and dressing this up a notch, come and join the **Parada ng Lechon 2019**.... and let the Lechon, the splashing of the water do the talking for you!!!
+If you feel that I am overreacting and dressing this up a notch, come and join the **Parada ng Lechon 2019**.... and let the Lechon, the splashing of the water do the talking for you!!!
