@@ -19,7 +19,7 @@ Some tourist described the Parada ng Lechon as "The Most Hospitable and Unique F
 Beer and music lovers attest that the real fun begins after the parade when Balayan town becomes a very big and open beer fest area where people drink enormous amounts of beer and other liquors and listen to dozens of live bands in many streets of the poblacion and even in many barrios.
 
 Every year, me and my family adjust our work and school schedule to be able to attend the Parada ng Lechon. We just don't get the annual Parada ng Lechon t-shirts, the food and the booze but every year is a different year for us.   
-We get to see new guests from different places, relatives that we haven't seen for a long time, and a week of activitied and events before the Parade.
+We get to see new guests from different places, relatives that we haven't seen for a long time, and a week of activities and events before the Parade.
 
-Both local and tourist alike find ways to get to Balayan to celebrate dubbes as "The Ultimate Fiesta Experience". Some choose to stay behind a day or two and still continue to wet people with water to prolong their enjoyment. This happens once a year, might as well extend it right.
+Both local and tourist alike find ways to get to Balayan to celebrate dubbed as "The Ultimate Fiesta Experience". Some choose to stay behind a day or two and still continue to wet people with water to prolong their enjoyment. This happens once a year, might as well extend it right.
 
