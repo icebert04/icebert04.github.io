@@ -31,7 +31,7 @@ And now that she is gone, I have nobody to share my ideas with. I won't get insp
 But as the saying goes, life must go on. Rose is my inspiration nowadays whenever I want to remember my dead sister. I checked Rose's newsfeed regularly and imagined that my sister is there with her in all of her post.   
 Like that time when Rose hiked the Atburan Rockies in Gen. Nakar, Quezon. I fabricated a story in my mind that Roberta was with her. Rigorously laughing together, drinking tequila or vodka while strumming the guitar and singing their favorite tunes.  
 
-Through Rose actions, I feel my sister being alive again. Like the action and adventures never stopped. 
+Through Rose actions, I feel my sister being alive again. Like the action and adventures never even stopped. 
 
 To my Dead Sister Roberta... I like to take this opportunity to say "I Love You". I miss you! Your voice, your messages, and your cheeky bone smile!   
 Thanks for being there for me. You will still continue to inspire me and use my god given talent to the fullest.
