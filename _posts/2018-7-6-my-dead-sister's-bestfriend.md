@@ -18,3 +18,6 @@ One of them was Rose. At that time I taught Rose was a bad influence to my siste
 But as days passed, I come to know the person whom my sister officially tagged as her best friend.   
 During my sister's "Darkest Days", Rose was there to lift my sister's emotion. Rose was basically available 24/7 for my sister. Rose was emotionally supportive and always have her back in time of need.
 
+Rose is a type of friend that didn't make my sister's problem disappear but Rose is the type who won't disappear when my sister has problems. They travelled together, spent multiple sleep over together and drank, cooked and laughed together. 
+
+Rose is not the showy type and brag her "Bestfriend Tag" during the wake. She just stayed behind the limelight and let other people visit my sister's remains. And when she is all alone with my sister, that is the time she makes her grief and sit down beside my sister. 
