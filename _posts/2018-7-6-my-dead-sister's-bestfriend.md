@@ -16,7 +16,7 @@ But when my Mom died 7 years ago. Roberta's group of friends became untraceable 
 
 One of them was Rose. At that time I taught Rose was a bad influence to my sister. Primarily known as the Strict and Unforgiving Kuya, I told Roberta to stay away from Rose.   
 But as days passed, I come to know the person whom my sister officially tagged as her best friend.   
-During my sister's "Darkest Days", Rose was there to lift my sister's emotion. Rose was basically available 24/7 for my sister. Rose was emotionally supportive and always have her back in time of need.
+During my sister's **"Darkest Days"**, Rose was there to lift my sister's emotion. Rose was basically available 24/7 for my sister. Rose was emotionally supportive and always have her back in time of need.
 
 Rose is a type of friend that didn't make my sister's problem disappear but Rose is the type who won't disappear when my sister has problems. They travelled together, spent multiple sleep over together and drank, cooked and laughed together. 
 
