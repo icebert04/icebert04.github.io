@@ -20,8 +20,10 @@ During my sister's **"Darkest Days"**, Rose was there to lift my sister's emotio
 
 Rose is a type of friend that didn't make my sister's problem disappear but is the type of friend who didn't disappear when my sister had problems. They travelled together, spent multiple sleep-over together and drank, cooked and laughed together. 
 
-Rose is not the showy type and brag her "Bestfriend Tag" during the wake. She just stayed behind the limelight and let other people visit my sister's remains. And when she is all alone with my sister, that is the time she makes her grief and sit down beside my sister.
-And when Rose is crying that is the time that it hurt me the most. I feel her pain! Her lost! But she kept quiet. She kept her distance. And cried when nobody is watching.
+Rose is not the showy type and brag her **"Bestfriend Tag"** during the wake of Roberta. She just stayed behind the limelight and let other people visit my sister's remains. And when she is all alone with my sister, that is the time she makes her grief and sit down beside my sister.
+And when Rose is crying, that is the time that it hurt me the most. 
+To see her crying was really intense! I felt her pain! Her lost!   
+But she kept quiet. She kept her distance. And cried when nobody was watching.
 
 It's hard to continue life without the sweetest person in the planet. My sister was my number fan whenever I create a project online. Roberta and I always communicate through Social Media and through I got the courage to say "I Love You" to the people that I love.   
 And now that she is gone, I have nobody to share my ideas with. I won't get inspiring songs from her beautiful and charming voice. That Black Hole will forever remain with me. 
