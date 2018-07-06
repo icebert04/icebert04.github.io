@@ -36,4 +36,4 @@ Thanks for being there for me. You will still continue to inspire me and use my 
 
 To the Official Bestfriend Rose... If ever you are reading this. In behalf of my family, we like to give our utmost gratitude for being there for my sister. Please continue what you are doing. The wackiness, the drunkenness, and all the crazy thing that you and Roberta had been doing when she was still alive. 
 
-For sure, that will make Roberta smile!
+For sure, that will make Roberta smile and will eagerly say to you... Loka loka ka!
