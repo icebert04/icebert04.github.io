@@ -28,3 +28,12 @@ And now that she is gone, I have nobody to share my ideas with. I won't get insp
 
 But as the saying goes, life must go on. Rose is my inspiration nowadays whenever I want to remember my dead sister. I checked Rose's newsfeed regularly and imagine that my sister is there with her in all of her post.   
 Like that time when Rose climbed General Nakar. I imagined that Roberta was with her. Rigidrously laughing together, drinking tequila or vodka while strumming the guitar singing their favorite hymes.  
+
+Through Rose actions, I feel my sister being alive again. Like the action and adventures never stopped. 
+
+To my Dead Sister Roberta... I like to take this opportunity to say "I Love You". I miss you! Your voice, your messages, and your cheeky bone smile!   
+Thanks for being there for me. You will still continue to inspire me and use my god given talent to the fullest.
+
+To the Official Bestfriend Rose... If ever you are reading this. In behalf of my family, we like to give our extreme gratitude for being there for my sister. Please continue what you are doing. The wackiness, the drunkenness, and all the crazy thing that you and Roberta had been doing when she was still alive. 
+
+For sure, that will make Roberta smile!
