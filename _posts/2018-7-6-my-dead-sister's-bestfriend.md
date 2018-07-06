@@ -26,7 +26,7 @@ And when Rose is crying, that is the time that it hurt me the most.
 To see her crying was really intense! I felt her pain! Her lost!   
 But she kept quiet. She kept her distance. And cried when nobody was watching.
 
-It's hard to continue life without the sweetest person in the planet. My sister was my number fan whenever I create a project online. Roberta and I always communicate through Social Media and through  her I got the courage to say **"I Love You"** to the people that I love.   
+It's hard to continue life without **"The Sweetest Person in the Planet"**. My sister was my number fan whenever I create a project online. Roberta and I always communicate through Social Media and through  her I got the courage to say **"I Love You"** to the people that I love.   
 And now that she is gone, I have nobody to share my ideas with. I won't get inspiring songs from her beautiful and charming voice. It created a Black Hole that will forever remain with me. 
 
 But as the saying goes, life must go on. Rose is my inspiration nowadays whenever I want to remember my dead sister. I checked Rose's newsfeed regularly and imagined that my sister is there with her in all of her post.   
