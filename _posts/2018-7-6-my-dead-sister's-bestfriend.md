@@ -19,7 +19,7 @@ But as days passed, I come to know the person whom my sister officially tagged a
 During my sister's **"Darkest Days"**, Rose was there to lift my sister's emotion. Rose was basically available 24/7 for my sister. Rose was emotionally supportive and always have her back in time of need.
 
 Rose is a type of friend that didn't make my sister's problem disappear, but is the type of friend who didn't disappear.... at all!   
-They travelled together, spent multiple sleep-over together and drank, cooked and laughed together. 
+They traveled together, spent multiple sleep-over together and drank, cooked and laughed together. 
 
 Rose is not the showy type and brag her **"Bestfriend Tag"** during the wake of Roberta. She just stayed behind the limelight and let other people visit my sister's remains. And when she is all alone with my sister, that is the time she makes her grief and sit down beside my sister.
 And when Rose is crying, that is the time that it hurt me the most. 
