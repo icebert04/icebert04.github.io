@@ -20,4 +20,6 @@ During my sister's "Darkest Days", Rose was there to lift my sister's emotion. R
 
 Rose is a type of friend that didn't make my sister's problem disappear but Rose is the type who won't disappear when my sister has problems. They travelled together, spent multiple sleep over together and drank, cooked and laughed together. 
 
-Rose is not the showy type and brag her "Bestfriend Tag" during the wake. She just stayed behind the limelight and let other people visit my sister's remains. And when she is all alone with my sister, that is the time she makes her grief and sit down beside my sister. 
+Rose is not the showy type and brag her "Bestfriend Tag" during the wake. She just stayed behind the limelight and let other people visit my sister's remains. And when she is all alone with my sister, that is the time she makes her grief and sit down beside my sister.
+And when Rose is crying that is the time that it hurt me the most. I feel her pain! Her lost! But she kept quiet. She kept her distance. And cried when nobody is watching.
+
