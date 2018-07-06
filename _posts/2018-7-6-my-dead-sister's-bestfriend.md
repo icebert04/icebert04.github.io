@@ -14,4 +14,7 @@ Our mother spoiled her rotten and gave everything she could ask for. Her 3 Kuyas
 My sister had Bestfriends during her time in CSA (Collegio De San Agustin). We come to know them and even became close to her group.   
 But when my Mom died 7 years ago. Roberta's group of friends became untraceable and grew by the numbers. She got friends from the city, from the province, and almost everythere that I is so hard to  keep track.
 
-One 
+One of them was Rose. At that time I taught Rose was a bad influence to my sister. Primarily known as the Strict and Unforgiving Kuya, I told Roberta to stay away from Rose.   
+But as days passed, I come to know the person whom my sister officially tagged as her best friend.   
+During my sister's "Darkest Days", Rose was there to lift my sister's emotion. Rose was basically available 24/7 for my sister. Rose was emotionally supportive and always have her back in time of need.
+
