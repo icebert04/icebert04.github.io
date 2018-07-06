@@ -12,7 +12,7 @@ Rose was there for my sister even before Roberta got sick. Which we believed mak
 Roberta was born as the sweetest person in our family. I really don't know why, but I think she is the youngest and everybody protected her like some kind of a antique dinnerware.   
 Our mother spoiled her rotten and gave everything she could ask for. Her 3 Kuyas (me included) are the last line of defense. Courting visits in the house are hard to come by when we reigned supreme in the front gate.  
 My sister had Bestfriends during her time in CSA (Colegio de San Agustin). We come to know them and even became close to her group.   
-But when my Mom died 7 years ago. Roberta's group of friends became untraceable and grew by the numbers. She got friends from the city, from the province, and almost everythere that it was so hard to keep track off.
+But when my Mom died 7 years ago. Roberta's group of friends became untraceable and grew by the numbers. She got friends from the city, from the province, and almost everywhere that it was so hard to keep track off.
 
 One of them was Rose. At that time I taught Rose was a bad influence to my sister. Primarily known as the Strict and Unforgiving Kuya, I told Roberta to stay away from Rose.   
 But as days passed, I come to know the person whom my sister officially tagged as her best friend.   
