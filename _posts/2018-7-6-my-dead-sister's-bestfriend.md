@@ -6,7 +6,7 @@ published: true
 My Dead Sister has been gone for more than 6 months but it feels like it is still fresh just like yesterday. I just counldn't believe that my baby sister was taken away from us.   
 During the wake, I had the time to observed all the people who gave their respect to my sister. From my sister's relatives, close friends, classmates, workmates.... each and every one of them, I examined carefully and studied their behavior.
 
-One thing that really caught my eye is this lady from Antipolo. Her name is Rose and classmate of my deceased sister (Roberta) in St. Paul Q.C. Rose was there with my sister from the time Roberta was rushed to the hospital, the entire duration of my sister's wake, the 9th and 40th day and even up today.   
+One thing that really caught my eye is this lady from Antipolo. Her name is Rose and classmate of my deceased sister (Roberta) in St. Paul University Q.C. Rose was there with my sister from the time Roberta was rushed to the hospital, the entire duration of my sister's wake, the 9th and 40th day and even up today.   
 Rose was there for my sister even before my Roberta got sick. Which we believed makes her the **"Official Bestfriend"**!
 
 Roberta was born as the sweetest person in our family. I really don't know why, but I think she is the youngest and everybody protected her like somekind of a antique dinnerware.   
