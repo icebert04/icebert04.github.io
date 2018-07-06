@@ -36,6 +36,7 @@ Through Rose actions, I feel my sister being alive again. Like the action and ad
 To my Dead Sister Roberta... I like to take this opportunity to say "I Love You". I miss you! Your voice, your messages, and your cheeky bone smile!   
 Thanks for being there for me. You will still continue to inspire me and I'll make sure to use my God given talent to the fullest.
 
-To the Official Bestfriend Rose... If ever you are reading this. In behalf of my family, we like to give our utmost gratitude for being there for my sister. Please continue what you are doing. The wackiness, the drunkenness, and all the crazy thing that you and Roberta had been doing when she was still alive. 
+To the Official Bestfriend Rose... If ever you are reading this. In behalf of my family, we like to give our utmost gratitude for being there for my sister.   
+Please continue what you are doing. The wackiness, the drunkenness, and all the crazy things that you and Roberta had been doing when she was still alive. 
 
-For sure, that will make Roberta smile and will eagerly say to you... Loka loka ka!
+For sure, that will make Roberta smile and will enthusiastically say to you... Loka loka ka!
