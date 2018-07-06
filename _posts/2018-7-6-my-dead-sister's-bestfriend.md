@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Sister](/images/Rose Aquino.jpg)
