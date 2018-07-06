@@ -3,4 +3,15 @@ published: true
 ---
 ![Sister](/images/Rose Aquino.jpg)
 
-Inuman...
+My Dead Sister has been gone for more than 6 months but it feels like it is still fresh just yesterday. I just counldn't believe that my baby sister is taken away from us.   
+During the wake, I had the time to observe all the people who gave their respect to my sister. From my sister's relatives, close friends, classmates, workmates.... each and every one of them I observe carefully and studied their behavior.
+
+One thing that really caught my eye is this lady from Antipolo. Her name is Rose and classmate of my deceased sister (Roberta) in St. Paul Q.C. Rose was there with my sister from the time Roberta was rushed to the hospital, the entire duration of my sister's wake, the 9th and 40th day and even up today.   
+Rose was there for my sister even before my Roberta got sick. That makes her the Official Bestfriend.
+
+Roberta was born as the sweetest person in our family. I really don't know why but I think she is the youngest and everybody protected her like somekind of a antique dinnerware.   
+Our mother spoiled her rotten and gave everything she could ask for. Her 3 Kuyas (me included) are the last line of defense. And it will take a courage of a lion to have the audacity of visiting our baby sister.   
+My sister had Bestfriends during her time in CSA (Collegio De San Agustin). We come to know them and even became close to her group.   
+But when my Mom died 7 years ago. Roberta's group of friends became untraceable and grew by the numbers. She got friends from the city, from the province, and almost everythere that I is so hard to  keep track.
+
+One 
