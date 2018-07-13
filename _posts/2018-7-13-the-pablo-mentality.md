@@ -10,7 +10,8 @@ I have a question for you? Any of you have reached their goal? What is your rati
 Mine is pretty bad! My success rate is 1 out of 10. I barely reach my goals. 
 
 
-A good example is getting a pet dog. We've been out without a dog for 5 years now. I thought of getting a Rottweiler for guarding my family and property protection. My second choice was acquiring a Jack Russell Terrier for me to have as a Jogging partner and join us for mountain trekking. 
+A good example is getting a pet dog. We've been out without a dog for 5 years now. I thought of getting a Rottweiler for guarding my family and property protection.   
+My second choice was acquiring a Jack Russell Terrier for me to have as a Jogging partner and join us for mountain trekking. 
 Neither one of them turned into a reality. 
 Nope, I never had any dog of any kind during those 5 years.
 
