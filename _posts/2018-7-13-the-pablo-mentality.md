@@ -19,7 +19,7 @@ While it was easy in getting or buying those breeds that I mentioned. The proble
 I was very choosy! Choosy on picking the perfect month and year, the perfect puppy out of the litter, and the perfect kennel.
 Aiming for perfection was dragging me for having something that I longly desire for a long long time.  
 
-In comes Pablo. The puppy who came from San Pablo Laguna. His mother is a cross breed of Mini-Pinscher and Chihuahua. While the father came from a breed that I don't where. 
+In comes Pablo. The puppy who came from San Pablo Laguna. His mother is a cross breed of Mini-Pinscher and Chihuahua. While the father came from a breed that I don't know where. 
 When we visited our relatives in San Pablo, we saw Pablo (unnamed at that time) along with 5 of his siblings still milking with their mother.   
 As cute as they are, I was just amazed by their colors and sizes. I never had the intention of asking for a puppy. 
 
@@ -47,4 +47,4 @@ Everything now is more attainable!
 
 So if you want to finish an Ironman triathlon, travel the country in an RV, publish your own book, go cliff diving, to eat whatever you want without gaining weight, to be attractive as you age, buy the house that you wanted, date your dream girl, retire early, or any other weird ideas.... just remember my dog Pablo.
 
-By having the **"Pablo Mentality"**, you will be creating multiple stepping stones that will surely turn most of your ambitions from dreams into reality. 
+By having the **"Pablo Mentality"**, you will be creating multiple stepping stones that will surely turn most of your ambitions from dreams into reality.
