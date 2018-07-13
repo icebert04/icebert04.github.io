@@ -28,7 +28,8 @@ Pablo was telling me to **"Go ahead and pick me"**! **"We'll just figure it out 
 Funny as it seems, I did the unthinkable and ask the owners If I can have one puppy. They said Yes!
 
 Pablo has been with me and my family for about a week now. And I have to tell, it was one of my biggest decision yet. It's not about just getting the dog... it's way-way more than that. 
-It taught me a lot of things. It's telling me that if I want something I should go ahead and take it... even if it's a stepping stone. It will eventually reach you to your main goal.
+It taught me a lot of things.   
+It's telling me that if I want something I should go ahead and take it... even if it's a stepping stone. It will eventually reach you to your main goal.
 **"I don't let my Ship come in... I swim out and meet it"**! 
 
 Now we have a dog that we long for many many years. I might still buy a Rottweiler for my farm or get a Jack Russell for our mountaineering escapade. But our hunger for a dog was met the day that we got Pablo.
