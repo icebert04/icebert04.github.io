@@ -20,7 +20,7 @@ I was very choosy! Choosy on picking the perfect month and year, the perfect pup
 Aiming for perfection was dragging me for having something that I longly desire for a long long time.  
 
 In comes Pablo. The puppy who came from San Pablo Laguna. His mother is a cross breed of Mini-Pinscher and Chihuahua. While the father came from a breed that I don't where. 
-When we visited our relatives in San Pablo, we saw Pablo (unnamed at that time) along with 5 of his siblings still milking with their mother. 
+When we visited our relatives in San Pablo, we saw Pablo (unnamed at that time) along with 5 of his siblings still milking with their mother.   
 As cute as they are, I was just amazed by their colors and sizes. I never had the intention of asking for a puppy. 
 
 But there is something about Pablo. Whenever I picked him up, he was like telling me to stop hesitating and start pulling the trigger. 
