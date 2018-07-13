@@ -15,7 +15,7 @@ My second choice was acquiring a Jack Russell Terrier for me to have as a Joggin
 Neither one of them turned into a reality. 
 Nope, I never had any dog of any kind during those 5 years.
 
-While it was easy in getting or buying those breeds that I mentioned. The problem is not the dog but the person... the problem is me.   
+While it was easy in getting or buying those breeds that I mentioned. The problem is not the dog, but the person... the problem is me.   
 I was very choosy! Choosy on picking the perfect month and year, the perfect puppy out of the litter, and the perfect kennel.
 Aiming for perfection was dragging me for having something that I longly desire for a long long time.  
 
