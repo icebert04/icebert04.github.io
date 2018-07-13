@@ -41,6 +41,6 @@ The important thing is getting that **"Stepping Stone"** in an instant, not beca
 Suddenly your goals are now more reachable because you acquired those stepping stones. 
 Everything now is more attainable!
 
- So if you want to finish an Ironman triathlon, travel the country in an RV, publish your own book, go cliff diving, to eat whatever you want without gaining weight, to be attractive as you age, buy the house that you wanted, date your dream girl, retire early, or any other weird ideas.... just remember my dog Pablo.
+So if you want to finish an Ironman triathlon, travel the country in an RV, publish your own book, go cliff diving, to eat whatever you want without gaining weight, to be attractive as you age, buy the house that you wanted, date your dream girl, retire early, or any other weird ideas.... just remember my dog Pablo.
 
-By having the "Pablo Mentality", you will be creating multiple stepping stones that will surely turn most of your ambitions from dreams into reality. 
+By having the **"Pablo Mentality"**, you will be creating multiple stepping stones that will surely turn most of your ambitions from dreams into reality. 
