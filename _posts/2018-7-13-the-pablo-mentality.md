@@ -24,7 +24,7 @@ When we visited our relatives in San Pablo, we saw Pablo (unnamed at that time) 
 As cute as they are, I was just amazed by their colors and sizes. I never had the intention of asking for a puppy. 
 
 But there is something about Pablo. Whenever I picked him up, he was like telling me to stop hesitating and start pulling the trigger. 
-Pablo was telling me to **"Go ahead and pick me"**! **"We'll just figure it out when we get there"**! **"Let's start this adventure of a lifetime"**!
+Pablo was telling me to **"Go ahead and pick me"**! **"We'll just figure it out when we get there"**! **"Let's start this adventure of a lifetime"**!   
 Funny as it seems, I did the unthinkable and ask the owners If I can have one puppy. They said Yes!
 
 Pablo has been with me and my family for about a week now. And I have to tell, it was one of my biggest decision yet. It's not about just getting the dog... it's way-way more than that. 
