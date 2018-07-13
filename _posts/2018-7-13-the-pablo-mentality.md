@@ -37,7 +37,8 @@ Pablo will be a nice complimentary companion to us along with our pet Siamese ca
 
 Obviously, we need to spend, invest, purchase something to get that goal that we are aiming for. 
 But sometimes we are forgetting that some of them are for Free (or incredibly cheap). 
-Pablo is one good example of that. Wanna dine out in a fancy restaurant? Why don't you go to your friend's house (like Baguio City), buy fresh veggies in the market, cook in their backyard, set up the table, and "Voila"... you got yourself a fancy restaurant plus you get to meet your long lost friend (good time for catching up).
+Pablo is one good example of that.   
+Wanna dine out in a fancy restaurant? Why don't you go to your friend's house (like Baguio City), buy fresh veggies in the market, cook in their backyard, set up the table, and "Voila"... you got yourself a fancy restaurant plus you get to meet your long lost friend (good time for catching up).
 
 Wanna buy that Ducati that you desired for many years? Why don't you try driving your friend's bike first (even just for a short ride inside the village).  Or rent it for a day. Or maybe a buy a cheaper version like a Yamaha before getting the real thing.
 The important thing is getting that **"Stepping Stone"** in an instant, not because it is free or cheap, but because it gives you the momentum to move forward to your goals... astonishingly much faster. 
