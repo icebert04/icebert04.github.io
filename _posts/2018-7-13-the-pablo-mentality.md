@@ -32,7 +32,7 @@ It taught me a lot of things.
 It's telling me that if I want something I should go ahead and take it... even if it's a stepping stone. It will eventually reach you to your main goal.
 **"I don't let my Ship come in... I swim out and meet it"**! 
 
-Now we have a dog that we long for many many years. I might still buy a Rottweiler for my farm or get a Jack Russell for our mountaineering escapade. But our hunger for a dog was met the day that we got Pablo.
+Now we have a dog that we long for many many years. I might still buy a Rottweiler for my farm or get a Jack Russell for our mountaineering escapade. But our hunger for a dog was met the day that we got Pablo.   
 Pablo will be a nice complimentary companion to us along with our pet Siamese cat named Nia (she too was given to us by my wife's aunt).
 
 Obviously, we need to spend, invest, purchase something to get that goal that we are aiming for. 
