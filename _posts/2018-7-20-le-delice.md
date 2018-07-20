@@ -10,7 +10,7 @@ But with the increasing car sales and the unsolvable traffic in cities (like Met
 
 It's fortunate the Merville Park (one of the oldest village in Parañaque City), managed to have a restaurant inside their subdivision. It's a solution to the dreadful traffic in Manila so that homeowners and tenants don't have to dine outside like the mall after attending their regular Sunday masses. 
 
-The name of the establishment is Le Delice (The Delight... in French). It's been operating for 20 years now and has been serving Internation dishes and Asian delights. They have different sausages from Hungarian, Schueblig, Frankfurter and the Veal Bratwurst. 
+The name of the establishment is Le Delice (The Delight... in French). It's been operating for 20 years now and has been serving Internation dishes and Asian delights. They have different sausages from Hungarian, Schueblig, Frankfurter and the Veal Bratwurst.   
 The deli prepares Pasta, Pizza, Swiss Treats, Salads, Soups, Desserts, and Pinoy Specials. There is also a Wine Store in their joint. 
 In a nutshell, it's a restaurant, coffee shop, wine shop, mini-supermarket... combine into one. 
 
