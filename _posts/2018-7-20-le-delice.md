@@ -16,7 +16,8 @@ In a nutshell, it's a restaurant, coffee shop, wine shop, mini-supermarket... co
 
 But it is not just that, it is a place where residents can bond with their friends and families. It is like a shrine where people can relax and unwind. The pool that is beside the restaurant also makes the ambiance more appealing. 
 
-I happen to had a small chat with the owner of Le Delice. Her name is Lucienne Hebeisen, a hardworking lady from Switzerland. She started this business in her front yard just all on her own. And now she has 20 employees. I've noticed that all of her staff are all cheerful and contented. One of the reason is that Lucienne hires people who live within 2-3 km radius making them one of the happiest working class in a city that is composed of a hectic and stressful schedule. 
+I happen to had a small chat with the owner of Le Delice. Her name is Lucienne Hebeisen, a hardworking lady from Switzerland. She started this business in her front yard just all on her own. And now she has 20 employees.   
+I've noticed that all of her staff are all cheerful and contented. One of the reason is that Lucienne hires people who live within 2-3 km radius making them one of the happiest working class in a city that is composed of a hectic and stressful schedule. 
 
 The Swiss entrepreneur is very hands-on and always make it a point to check on all small details from their menu, the deliveries, their beloved customers, and most important of all that their restaurant excels in customer service that kept their business striving for 2 decades.
 
