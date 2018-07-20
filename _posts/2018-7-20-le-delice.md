@@ -8,7 +8,7 @@ But the one thing that is lacking in some subdivisions is a Restaurant. An ideal
 It's a compelling case where most real estate developers tend to overlook. 
 But with the increasing car sales and the unsolvable traffic in cities (like Metro Manila), a real estate firm should now include these amenities in their future projects. 
 
-It's fortunate the Merville Park (one of the oldest village in Parañaque City), managed to have a restaurant inside their subdivision. It's a solution to the dreadful traffic in Manila so that homeowners and tenants don't have to dine outside like the mall after attending their regular Sunday masses. 
+It's fortunate the **Merville Park** (one of the oldest village in Parañaque City), managed to have a restaurant inside their subdivision. It's a solution to the dreadful traffic in Manila so that homeowners and tenants don't have to dine outside like the mall after attending their regular Sunday masses. 
 
 The name of the establishment is **Le Delice** (The Delight... in French). It's been operating for 20 years now and has been serving Internation dishes and Asian delights. They have different sausages from Hungarian, Schueblig, Frankfurter and the Veal Bratwurst.   
 The deli prepares Pasta, Pizza, Swiss Treats, Salads, Soups, Desserts, and Pinoy Specials. There is also a Wine Store in their joint. 
@@ -28,7 +28,7 @@ This busy woman surprisingly has an abundant time to have quality time with her 
 
 During our talk, I suggested to her that no matter her future plans is. Whether she will retire or migrate to another country, it is imperative that she keeps her restaurant in place. 
 I told her it's her responsibility to the community who is living there. Le Delice became a part of their lives.   
-Like their very own parish church (Our Lady of Beautiful Love), this beautiful restaurant became a **"Staple"** in their daily routine agenda.  
+Like their very own parish church (**Our Lady of Beautiful Love**), this beautiful restaurant became a **"Staple"** in their daily routine agenda.  
 
 **"You owe it to the people"**... this is what I implied to the owner.  **"Le Delice should continue bringing delight continuously through the years"**!   
 The sweet lady from Switzerland smiled and responded by saying... **"Don't worry Francis, I'll make sure that we keep on delighting people from this generation to the next"**!  
