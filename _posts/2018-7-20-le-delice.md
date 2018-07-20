@@ -30,5 +30,5 @@ During our talk, I suggested to her that no matter her future plans is. Whether 
 I told her it's her responsibility to the community who is living there. Le Delice became a part of their lives.   
 Like their very own parish church (Our Lady of Beautiful Love), this beautiful restaurant became a "Staple" in their daily routine agenda.  
 
-"You owe it to the people"... this is what I implied to the owner.  "Le Delice should continue bringing delight continuously through the years"! 
+"You owe it to the people"... this is what I implied to the owner.  "Le Delice should continue bringing delight continuously through the years"!   
 The sweet lady from Switzerland smiled and responded by saying... "Don't worry Francis, I'll make sure that we keep on delighting people from this generation to the next"!  
