@@ -4,7 +4,8 @@ published: true
 ![Restaurant](/images/Le Delice.jpg)
 
 In every village or subdivision, it consists of things that residents need. Stuff like swimming pools, basketball courts, gyms, parks and playgrounds, church, and preschools.
-But the one thing that is lacking in some subdivisions is a Restaurant. An ideal establishment that serves food and drinks to the residents. It's a compelling case where most real estate developers tend to overlook. 
+But the one thing that is lacking in some subdivisions is a Restaurant. An ideal establishment that serves food and drinks to the residents.   
+It's a compelling case where most real estate developers tend to overlook. 
 But with the increasing car sales and the unsolvable traffic in cities (like Metro Manila), a real estate firm should now include these amenities in their future projects. 
 
 It's fortunate the Merville Park (one of the oldest village in Parañaque City), managed to have a restaurant inside their subdivision. It's a solution to the dreadful traffic in Manila so that homeowners and tenants don't have to dine outside like the mall after attending their regular Sunday masses. 
