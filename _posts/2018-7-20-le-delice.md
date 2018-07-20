@@ -21,7 +21,8 @@ I've noticed that all of her staff are all cheerful and contented. One of the re
 
 The Swiss entrepreneur is very hands-on and always make it a point to check on all small details from their menu, the deliveries, their beloved customers, and most important of all that their restaurant excels in customer service that kept their business striving for 2 decades.
 
-Even that Lucienne is in her more advanced years, there are no signs of her slowing down. She opened another establishment (Cafe Lulu) in an adjacent city.  She is fully devoted and spends time in her New Apolostic church. And she does ballroom dancing in her free time. 
+Even that Lucienne is in her more advanced years, there are no signs of her slowing down. She opened another establishment (Cafe Lulu) in an adjacent city.   
+She is fully devoted and spends time in her New Apolostic church. And she does ballroom dancing in her free time. 
 
 This busy woman surprisingly has an abundant time to have quality time with her husband and always make it a point to check on her 2 boys who are both living in Canada. 
 
