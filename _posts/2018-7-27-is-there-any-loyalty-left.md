@@ -14,7 +14,7 @@ I'm beginning to lose hope and starting to believe that Loyalty has become extin
 
 But then I've noticed my son's commitment to a philosophy that I thought that won't even last a year. I then realized that my son Luigi has been devoted to a modern Japanese martial art (Aikido) for not just 1 year, not 2 but more than 5 years now.   
 It all started as a pre-requirement for my son's homeschool for socialization purposes, has now become a part of his own being. 
-I mean, I would be happy to see my son doing Aikido for a year and shift his activities in something else but I was taken by surprise to see him going the "Extra Mile". 
+I mean, I would be happy to see my son doing Aikido for a year and shift his activities in something else but I was taken by surprise to see him going the **"Extra Mile"**.   
 As we speak, Luigi is on his way on grabbing the Brown belt (one belt before the Black belt which denotes the highest grade or the expert in the perception of the public).
 
 Was this a feat or an achievement? I have to say... YES! Not because I am the father of the child, but because you don't normally see a kid stick to one activity or recreation for a long period of time.... especially in this day and age. 
