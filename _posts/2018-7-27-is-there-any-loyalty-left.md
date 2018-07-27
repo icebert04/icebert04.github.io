@@ -6,7 +6,7 @@ published: true
 Loyalty... does it still exist? Can we still see it listed in the dictionary? Do people still believe in it? 
 If you ask people around you might be surprised to know that some of them don't even know the meaning of the word.   
 In today's modern society, it is common to hear employees jumping from one company to the other. 
-Old close friends of yours have now shifted gears and became traitorous because of their own personal interests. 
+Old close friends of yours have now shifted gears and became traitorous because of their own personal interests.   
 Divorce lawyers earning more money because of infidelity and disloyal individuals who once believe in Love forever after.   
 Most people are now untrue to what should command one's allegiance to one's cause, group, philosophy, and even to our nation.
 
