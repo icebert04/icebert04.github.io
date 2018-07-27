@@ -37,7 +37,7 @@ So whoever who is reading this. I do hope that you find some trait of Loyalty in
 May all of us, do find Loyalty in us.  Loyalty is fast becoming cornerstones to competitive advantage in a world that is changing constantly.  
 
 Make no mistake, I am extremely happy to see my son have the most important quality anyone can have. 
-His Loyalty will be his "Resume in Life". He will form deeper connections, he will be respected, and he will be loved. 
+His Loyalty will be his **"Resume in Life"**. He will form deeper connections, he will be respected, and he will be loved. 
 
 My son will truly transcend in relationships... be it romantic, friendship, work, and business.  
 I just wish that whoever he is with, working with and living with... I pray that he will rub it off to most of them. 
