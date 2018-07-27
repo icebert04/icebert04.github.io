@@ -41,6 +41,6 @@ His Loyalty will be his **"Resume in Life"**.
 He will form deeper connections, he will be respected, and he will be loved. 
 
 My son will truly transcend in relationships... be it romantic, friendship, work, and business.  
-I just wish that whoever he is with, working with and living with... I pray that he will rub it off to most of them. 
+I just wish that whoever he is with, working with and living with... I pray that he will rub it off to most of them.   
 Because in this day and age, everyone really needs a sense of Loyalty! 
 And then they will make better decisions, and they will feel happier and more at peace, with themselves and to all the people concerned. 
