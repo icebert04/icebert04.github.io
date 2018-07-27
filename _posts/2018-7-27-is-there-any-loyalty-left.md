@@ -21,7 +21,7 @@ Was this a feat or an achievement? I have to say... YES!
 Not because I am the father of the child, but because you don't normally see a kid stick to one activity or recreation for a long period of time.... especially in this day and age. 
 They may be interested in one thing today, then get bored the day after. Their interest or obsession is not very reassuring anymore. There are no guarantees that they will stick to it.   
 With so many distractions, temptations, and many forms of entertainment... even kids of this generation are jumping from one field to another that you can't see them **"Stick to One"** anymore. 
-You never see them being faithful to their commitments or obligations. 
+You never see them being faithful to their commitments or obligations.   
 It's a sad fact, but it is true! Just look around and you will understand what I am saying.
 
 So how do we bring back Loyalty back to life and return it again to our society? Honesty, I really don't know. 
