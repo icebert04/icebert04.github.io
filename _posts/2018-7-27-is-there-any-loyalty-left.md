@@ -4,15 +4,15 @@ published: true
 ![Aikido](/images/Loyalty.jpg)
 
 Loyalty... does it still exist? Can we still see it listed in the dictionary? Do people still believe in it? 
-If you ask people around you might be surprised to know that some of them don't even know the meaning of the word. 
+If you ask people around you might be surprised to know that some of them don't even know the meaning of the word.   
 In today's modern society, it is common to hear employees jumping from one company to the other. 
 Old close friends of yours have now shifted gears and became traitorous because of their own personal interests. 
-Divorce lawyers earning more money because of infidelity and disloyal individuals who once believe in Love forever after.
+Divorce lawyers earning more money because of infidelity and disloyal individuals who once believe in Love forever after.   
 Most people are now untrue to what should command one's allegiance to one's cause, group, philosophy, and even to our nation.
 
 I'm beginning to lose hope and starting to believe that Loyalty has become extinct in our culture and beliefs. Is there any Loyalty left in this world?
 
-But then I've noticed my son's commitment to a philosophy that I thought that won't even last a year. I then realized that my son Luigi has been devoted to a modern Japanese martial art (Aikido) for not just 1 year, not 2 but more than 5 years now. 
+But then I've noticed my son's commitment to a philosophy that I thought that won't even last a year. I then realized that my son Luigi has been devoted to a modern Japanese martial art (Aikido) for not just 1 year, not 2 but more than 5 years now.   
 It all started as a pre-requirement for my son's homeschool for socialization purposes, has now become a part of his own being. 
 I mean, I would be happy to see my son doing Aikido for a year and shift his activities in something else but I was taken by surprise to see him going the "Extra Mile". 
 As we speak, Luigi is on his way on grabbing the Brown belt (one belt before the Black belt which denotes the highest grade or the expert in the perception of the public).
