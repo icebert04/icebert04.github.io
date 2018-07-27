@@ -17,7 +17,8 @@ It all started as a pre-requirement for my son's homeschool for socialization pu
 I mean, I would be happy to see my son doing Aikido for a year and shift his activities in something else but I was taken by surprise to see him going the **"Extra Mile"**.   
 As we speak, Luigi is on his way on grabbing the Brown belt (one belt before the Black belt which denotes the highest grade or the expert in the perception of the public).
 
-Was this a feat or an achievement? I have to say... YES! Not because I am the father of the child, but because you don't normally see a kid stick to one activity or recreation for a long period of time.... especially in this day and age. 
+Was this a feat or an achievement? I have to say... YES!   
+Not because I am the father of the child, but because you don't normally see a kid stick to one activity or recreation for a long period of time.... especially in this day and age. 
 They may be interested in one thing today, then get bored the day after. Their interest or obsession is not very reassuring anymore. There are no guarantees that they will stick to it.
 With so many distractions, temptations, and many forms of entertainment... even kids of this generation are jumping from one field to another that you can't see them "Stick to One" anymore. 
 You never see them being faithful to their commitments or obligations. 
