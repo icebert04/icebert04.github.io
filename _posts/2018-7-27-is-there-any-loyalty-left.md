@@ -26,7 +26,7 @@ It's a sad fact, but it is true! Just look around and you will understand what I
 
 So how do we bring Loyalty back to life and return it again to our society? Honestly, I really don't know. 
 The truth of the matter is, I really didn't force my son to stick to one thing. It just his character. His own free will.   
-There are reasons that he may inherit this valuable characteristic from his Great-Grandfather who was extremely devoted to his country. Or it could be his group's influence to love the sport. Or maybe he wants to prove something to himself.   
+There are reasons that he may inherit this valuable characteristic from his Great-Grandfather who was extremely devoted to his country. Or it could be his group's influence to love the sport. Or maybe he just wants to prove something to himself.   
 Until now, I don't have the slightest clue. 
 
 At this moment, my son's has not only have one dojo (a space for immersive learning ).... 
