@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ![Aikido](/images/Loyalty.jpg)
 
