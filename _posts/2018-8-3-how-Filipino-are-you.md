@@ -21,7 +21,7 @@ The gifts still continue even up to this present day. We still receive gifts fro
 
 Tito Mon & Tita Iting are true to their nation that they are born in. Their residence in Parañaque is devoted to Filipino products. I even mentioned in my old article about their cute Nipa Hut in their backyard.   
 And when they recently developed their property in Tagaytay, the heritage stretch out from the city all the way to the province. 
-But this property known to be as their vacation house is even more Filipino than the one in Manila. It's a haven for Filipino creativity. 
+But this property, which is known to be as their vacation house, is even more Filipino than the one in Manila. It's a haven for Filipino creativity. 
 
 Furnitures were mostly done in Tagaytay by local carpenters and shops owned by local entrepreneurs. The bamboo used in their buffet table, master bedroom bed came from the bamboo that they harvested in their home in Manila.   
 The paintings are done by their local artists, including the mirrors, lights, floor lamp, metal seat, and table. Accents too mostly came from artists from Palawan.
