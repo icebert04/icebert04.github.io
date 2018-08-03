@@ -33,6 +33,7 @@ The bamboo, the capiz, the rattan, the artworks and crafts, and everything the P
 Nakakalimutan na nating ang kahalagahan ng isang tunay na Pilipino. Kasalukuyan na itong pumapanaw sa ating isip, sa salita at sa ating gawa. 
 
 Tangkilikin natin ang mga produktong gawa sa ating bansa. Ipagkalat sa buong mundo kung sino tayo. 
-Ang bahay na ito sa Tagatay ay isang halimbawa. Sana ay matulad din tayo tulad nina Mon at Iting... tatak ng pagmahal sa bansang nakalimutan ng karamamihan.  
+Ang bahay na ito sa Tagatay ay isang halimbawa.   
+Sana ay matulad din tayo tulad nina Mon at Iting... tatak ng pagmahal sa bansang nakalimutan ng karamamihan.  
 
 
