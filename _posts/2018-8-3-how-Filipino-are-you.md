@@ -19,7 +19,7 @@ I too, was affected by this epidemic colonialism. Until my Tito Mon & Tita Iting
 Ever since I was a kid, the couple always gives me Christmas gifts that are made in the Philippines. Pieces of items like bamboo sticks, **Sungka**, Rattan baskets, and Abaca sandals.   
 The gifts still continue even up to this present day. We still receive gifts from them that is authentic Filipino like Rags from Mindanao and Coconut night light. 
 
-Tito Mon & Tita Iting are true to their nation that they are born in. Their residence in Parañaque is devoted to Filipino products. I even mentioned in my old article about their cute Nipa Hut in their backyard. 
+Tito Mon & Tita Iting are true to their nation that they are born in. Their residence in Parañaque is devoted to Filipino products. I even mentioned in my old article about their cute Nipa Hut in their backyard.   
 And when they recently developed their property in Tagaytay, the heritage stretch out from the city all the way to the province. 
 But this property known to be as their vacation house is even more Filipino than the one in Manila. It's a haven for Filipino creativity. 
 
