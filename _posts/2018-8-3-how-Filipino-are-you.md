@@ -23,7 +23,7 @@ Tito Mon & Tita Iting are true to their nation that they are born in. Their resi
 And when they recently developed their property in Tagaytay, the heritage stretch out from the city all the way to the province. 
 But this property known to be as their vacation house is even more Filipino than the one in Manila. It's a haven for Filipino creativity. 
 
-Furnitures were mostly done in Tagaytay by local carpenters and shops owned by local entrepreneurs. The bamboo used in their buffet table, master bedroom bed came from the bamboo that they harvested in their home in Manila. 
+Furnitures were mostly done in Tagaytay by local carpenters and shops owned by local entrepreneurs. The bamboo used in their buffet table, master bedroom bed came from the bamboo that they harvested in their home in Manila.   
 The paintings are done by their local artists, including the mirrors, lights, floor lamp, metal seat, and table. Accents too mostly came from artists from Palawan.
 
 And every time a visitor come by their place.... the beauty, exquisiteness, and charm that they see from the vacation house not only represents the couple and their immediate family but to all of us.... Filipinos. 
