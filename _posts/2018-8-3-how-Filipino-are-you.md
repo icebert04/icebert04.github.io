@@ -10,7 +10,7 @@ If you don't understand the words that I am saying then you are not a Filipino. 
 We somewhat forgot our roots. Our origin. Where we came from. 
 Do we still have Filipino blood left in our veins?
 
-How do we gauge if we are truly a Filipino? It all starts in your home. The place that you reside in and where you spend most of your time in. Just look at your home right now... what do you see? Do you identify any Filipino artifacts in your living room? Does your maid still use a **Bunot** to clean your floors? Do you have **"Timba at Tabo"** in your Banyo? Do you have any **Banig** somewhere in your closet?
+How do we gauge if we are truly a Filipino? It all starts in your home. The place that you reside in and where you spend most of your time in. Just look at your home right now... what do you see? Do you identify any Filipino artifacts in your living room? Does your maid still use a **Bunot** to clean your floors? Do you have **"Timba at Tabo"** in your Banyo? Do you have any **Banig** somewhere in your closet?   
 If you don't have any of these, then you might have forgotten how to be a True Filipino. 
 
 We can't blame ourselves living in a 3rd world country that is way behind in technology and manufacture. So most of us purchase imported things like smartphones, automobiles, shoes, bags, and almost everything that we can think of. 
