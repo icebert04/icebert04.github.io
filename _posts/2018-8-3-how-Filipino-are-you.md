@@ -27,7 +27,7 @@ Furnitures were mostly done in Tagaytay by local carpenters and shops owned by l
 The paintings are done by their local artists, including the mirrors, lights, floor lamp, metal seat, and table. Accents too mostly came from artists from Palawan.
 
 And every time a visitor come by their place.... the beauty, exquisiteness, and charm that they see from the vacation house not only represents the couple and their immediate family but to all of us.... Filipinos. 
-That is the reason why we are called **"Perlas ng Silangan"**! Why we have so much Class.
+That is the reason why we are called **"Perlas ng Silangan"**! Why we have so much Class.   
 The bamboo, the capiz, the rattan, the artworks and crafts, and everything the Philippines is widely known for should be and must be present in all of us. Not only in our homes but in all of that we do in our daily lives.  
 
 Nakakalimutan na nating ang kahalagahan ng isang tunay na Pilipino. Kasalukuyan na itong pumapanaw sa ating isip, sa salita at sa ating gawa. 
