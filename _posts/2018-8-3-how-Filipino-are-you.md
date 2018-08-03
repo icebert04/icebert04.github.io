@@ -16,7 +16,7 @@ If you don't have any of these, then you might have forgotten how to be a True F
 We can't blame ourselves living in a 3rd world country that is way behind in technology and manufacture. So most of us purchase imported things like smartphones, automobiles, shoes, bags, and almost everything that we can think of.   
 I too, was affected by this epidemic colonialism. Until my Tito Mon & Tita Iting came around. They showed the beauty of being a Filipino.
 
-Ever since I was a kid, the couple always gives me Christmas gifts that are made in the Philippines. Pieces of items like bamboo sticks, **Sungka**, Rattan baskets, and Abaca sandals. 
+Ever since I was a kid, the couple always gives me Christmas gifts that are made in the Philippines. Pieces of items like bamboo sticks, **Sungka**, Rattan baskets, and Abaca sandals.   
 The gifts still continue even up to this present day. We still receive gifts from them that is authentic Filipino like Rags from Mindanao and Coconut night light. 
 
 Tito Mon & Tita Iting are true to their nation that they are born in. Their residence in Parañaque is devoted to Filipino products. I even mentioned in my old article about their cute Nipa Hut in their backyard. 
