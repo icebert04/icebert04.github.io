@@ -6,7 +6,7 @@ published: true
 
 Pinoy ka ba? Marunong ka bang magsalita nang ating wika? Nasubukan mo na bang mag-Bayanihan? Kumakain ka na ba ng Balut?
 
-If you don't understand the words that I am saying then you are not a Filipino. **Western Colonialism** brought a negative effect in our culture that is rich in values, diverse language, etiquette, and manners that we can be proud of to the whole world. 
+If you don't understand the words that I am saying then you are not a Filipino. **Western Colonialism** brought a negative effect in our culture that is rich in values, diverse language, etiquette, and manners that we can be proud of to the whole world.   
 We somewhat forgot our roots. Our origin. Where we came from. 
 Do we still have Filipino blood left in our veins?
 
