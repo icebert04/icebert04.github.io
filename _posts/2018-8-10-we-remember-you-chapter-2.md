@@ -42,6 +42,6 @@ Enjoy Adelaide's festivals and sporting events. It's food and wine to go with th
 And to Casey, if ever you want to visit the Philippines. Don't hesitate to give us a call. We can go surfing in Baler, climb Sagada or eat Puto Bumbong in Mandaluyong.   
 If you're too busy, Luigi can fly down there and visit you guys. 
 
-Just like reading a book, life consists of surprises. 
+Just like reading a book, life consists of surprises.   
 Who knows, we might see each other again in Chapter 7.
 
