@@ -29,7 +29,7 @@ Parents always want what is best for their children. Truly knowing somebody clos
 You don't normally see parents of the child being close to another child. It's not how it works nowadays. Friends just come and goes. That is not that case here. 
 Our story here is different... We became close to Casey and in some way, Luigi earned the trust of Casey's parents.
 
-We will never get to know the outcome though since both kids will be moving on to Chapter 3. Casey and her whole family will be migrating to the Land of the Kangaroos. While Luigi will be busy doing community projects outside of Manila. 
+We will never get to know the outcome though since both kids will be moving on to Chapter 3. Casey and her whole family will be migrating to the Land of the Kangaroos. While Luigi will be busy doing community projects outside of Manila.   
 Things will be different.  Distance will definitely be a factor in their friendship. And there is this possibility that they may never see each other again. 
 
 And as Chapter 2 comes to a close, we will remember and treasure those "Happy Moments". It was an exciting chapter to read on to. 
