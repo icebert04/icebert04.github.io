@@ -26,7 +26,7 @@ Eventually, they grew older and more mature. Both of them had their own set grou
 Still, they managed to see each other and have fun just like in their **"Glory Days"**.
 
 Questions started to pop into my mind. Questions like will they still be close 6-8 years after? Will they be business partners? Will Luigi ask Casey what happened to her Prom Night? Or will he be the one bringing Casey to the Prom?   
-Parents always want what is best for their children. Truly knowing somebody close to your child earns your trust and won't mind regardless what kind of relationship occurs in the future. 
+Parents always want what is best for their children. Truly knowing somebody close to your child earns your trust and won't mind regardless what kind of relationship occurs in the future.   
 You don't normally see parents of the child being close to another child. It's not how it works nowadays. Friends just come and goes. That is not that case here. 
 Our story here is different... We became close to Casey and in some way, Luigi earned the trust of Casey's parents.
 
