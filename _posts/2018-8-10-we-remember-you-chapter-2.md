@@ -32,7 +32,7 @@ Our story here is different... We became close to Casey and in some way, Luigi e
 We will never get to know the outcome though since both kids will be moving on to Chapter 3. Casey and her whole family will be migrating to the Land of the Kangaroos. While Luigi will be busy doing community projects outside of Manila.   
 Things will be different.  Distance will definitely be a factor in their friendship. And there is this possibility that they may never see each other again. 
 
-And as Chapter 2 comes to a close, we will remember and treasure those "Happy Moments". It was an exciting chapter to read on to. 
+And as Chapter 2 comes to a close, we will remember and treasure those **"Happy Moments"**. It was an exciting chapter to read on to. 
 Several years from now, we will look back to this chapter and reminisce the good old days. 
 
 We also like to say our gratitude to the parents of Casey for sharing their child with us. You certainly raised a sociable, lively, and witty girl like Casey. 
