@@ -35,7 +35,7 @@ Things will be different.  Distance will definitely be a factor in their friends
 And as Chapter 2 comes to a close, we will remember and treasure those **"Happy Moments"**. It was an exciting chapter to read on to. 
 Several years from now, we will look back to this chapter and reminisce the good old days. 
 
-We also like to say our gratitude to the parents of Casey for sharing their child with us. You certainly raised a sociable, lively, and witty girl like Casey. 
+We also like to say our gratitude to the parents of Casey for sharing their child with us. You certainly raised a sociable, lively, and witty girl like Casey.   
 We thank you for giving us Chapter 2.
 Enjoy Adelaide's festivals and sporting events. It's food and wine to go with their beautiful long beachfront. 
 
