@@ -12,7 +12,7 @@ My son Luigi got 2 chapters in his book. His 1st chapter was his formative years
 Aside from his immediate family, Luigi was surrounded with pets from dogs, cats, 1 frog, 1 bantam rooster, and 1 flying lemur (we surrendered the animal to our local barangay after knowing that their species are endangered).
 He vaguely goes to the park and other public areas to play because of his young age and for reason that he is among his loved ones... humans and animals alike. 
 
-Chapter 2 is totally different.  We transferred to a Condominium setting not too far from the said village. This new place that we are living in right now is formed by a closely knit group of neighbors. 
+Chapter 2 is totally different.  We transferred to a Condominium setting not too far from the said village. This new place that we are living in right now is formed by a closely knit group of neighbors.   
 Luigi was 9 when we settled in there and began to have wings and legs to roam around and meet new acquaintances. 
 That is where he met a young girl named **"Casey"**. She is a cheerleader from St. Scholastica's College, Manila.  
 And that is where the adventure began. Luigi and Casey were almost together, especially during the summer. They played in the pool, climbed monkey bars in the playground, sold empanadas to neighbors, did board games like Monopoly and Chess, ate in our kitchen, learn how to play Badminton, went to hear mass together, did multiple laps and race in the lap pool, go malling, ate in Casey's kitchen, fought playing Minecraft, produced their own Rootbeer float, and many many more.
