@@ -8,7 +8,8 @@ In every book we read, there are chapters that we cherish and be nuts about. And
 In life, we do the same thing too. We ignore our bad chapters and relive the good ones. Those who are in their past their prime had accumulated a lot of chapters in life and just like wine they have gained intelligence through experience.   
 But it's not just the adults, kids too are starting to acquire their chapters in what they call their **"Fairytale Book"**.
 
-My son Luigi got 2 chapters in his book. His 1st chapter was his formative years. He was born and raised in an exclusive village in Merville Park, Parañaque. Aside from his immediate family, Luigi was surrounded with pets from dogs, cats, 1 frog, 1 bantam rooster, and 1 flying lemur (we surrendered the animal to our local barangay after knowing that their species are endangered).
+My son Luigi got 2 chapters in his book. His 1st chapter was his formative years. He was born and raised in an exclusive village in Merville Park, Parañaque.   
+Aside from his immediate family, Luigi was surrounded with pets from dogs, cats, 1 frog, 1 bantam rooster, and 1 flying lemur (we surrendered the animal to our local barangay after knowing that their species are endangered).
 He vaguely goes to the park and other public areas to play because of his young age and for reason that he is among his loved ones... humans and animals alike. 
 
 Chapter 2 is totally different.  We transferred to a Condominium setting not too far from the said village. This new place that we are living in right now is formed by a closely knit group of neighbors. 
