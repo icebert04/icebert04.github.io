@@ -16,7 +16,8 @@ Chapter 2 is totally different.  We transferred to a Condominium setting not too
 Luigi was 9 when we settled in there and began to have wings and legs to roam around and meet new acquaintances. 
 That is where he met a young girl named **"Casey"**. She is a cheerleader from St. Scholastica's College, Manila.  
 
-And that is where the adventure began. Luigi and Casey were almost together, especially during the summer. They played in the pool, climbed monkey bars in the playground, sold empanadas to neighbors, did board games like Monopoly and Chess, ate in our kitchen, learn how to play Badminton, went to hear mass together, did multiple laps and race in the lap pool, go malling, ate in Casey's kitchen, fought playing Minecraft, produced their own Rootbeer float, and many many more.
+And that is where the adventure began. Luigi and Casey were almost together, especially during the summer.   
+They played in the pool, climbed monkey bars in the playground, sold empanadas to neighbors, did board games like Monopoly and Chess, ate in our kitchen, learn how to play Badminton, went to hear mass together, did multiple laps and race in the lap pool, go malling, ate in Casey's kitchen, fought playing Minecraft, produced their own Rootbeer float, and many many more.
 
 The two even shared their expertise. Casey taught Luigi to do some **"Cartwheels"** and flexibility while Luigi instructed Casey to learn a few **"Aikido"** moves. 
 Me, my wife, and Casey's parents were so used to see them together that whenever one is missing... the first thing that comes to our mind is to look into either our condo unit or Casey's. 
