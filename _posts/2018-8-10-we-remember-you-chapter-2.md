@@ -22,7 +22,7 @@ The two even shared their expertise. Casey taught Luigi to do some **"Cartwheels
 Me, my wife, and Casey's parents were so used to see them together that whenever one is missing... the first thing that comes to our mind is to look into either our condo unit or Casey's. 
 
 Eventually, they grew older and more mature. Both of them had their own set group of friends at school and their extra-curricular activities. 
-Still, they managed to see each other and have fun just like in their "Glory Days".
+Still, they managed to see each other and have fun just like in their **"Glory Days"**.
 
 Questions started to pop into my mind. Questions like will they still be close 6-8 years after? Will they be business partners? Will Luigi ask Casey what happened to her Prom Night? Or will he be the one bringing Casey to the Prom? 
 Parents always want what is best for their children. Truly knowing somebody close to your child earns your trust and won't mind regardless what kind of relationship occurs in the future. 
