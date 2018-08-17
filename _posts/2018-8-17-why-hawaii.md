@@ -9,7 +9,7 @@ I got a sincere invitation from locals living in Mindanao, Visayas, and Luzon. A
 Those people who have replied and responded was more than what I needed.   
 To be honest, I was overwhelmed with their heartfelt solicitation. Every place that they mentioned were all enticing to me and my family. 
 
-And then, out of the blue, I've heard a whisper from far far away.... 5,307 miles to be exact.  I heard a voice from the massive ocean of the North Pacific. That voice is my cousin Lynn for the islands of Hawaii.
+And then, out of the blue, I've heard a whisper from far far away.... 5,307 miles to be exact.  I heard a voice from the massive ocean of the North Pacific. That voice is my cousin Lynn for the islands of Hawaii.   
 Lynn said... "Come to Hawaii Francis"! "It's family friendly as opposed to the other 49 states". "There are lot's of fun activities for the young and old". "You will definitely like it here"!
 
 I'd video called her the following day and asked for more details of the island that she is staying in. She even sent me links of the immigration process, entry requirements, etc.  
