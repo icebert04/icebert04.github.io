@@ -4,9 +4,10 @@ published: true
 ![Hawaii](/images/Hawaii 8.jpg)
 
 
-3 days ago, I popped a question in Social Media (particularly on Facebook) about what is the ideal place for a family to live in. I was blown away by the results that a lot of advice, comments and private messages poured in. 
+3 days ago, I popped a question in Social Media (particularly on Facebook) about what is the ideal place for a family to live in. I was blown away by the results that a lot of advice, comments and private messages poured in.   
 I got a sincere invitation from locals living in Mindanao, Visayas, and Luzon. As well as some proposition from friends and relatives in foreign countries like Canada, Australia, and The United States. 
-Those people who have replied and responded was more than what I needed. To be honest, I was overwhelmed with their heartfelt solicitation. Every place that they mentioned were all enticing to me and my family. 
+Those people who have replied and responded was more than what I needed.   
+To be honest, I was overwhelmed with their heartfelt solicitation. Every place that they mentioned were all enticing to me and my family. 
 
 And then, out of the blue, I've heard a whisper from far far away.... 5,307 miles to be exact.  I heard a voice from the massive ocean of the North Pacific. That voice is my cousin Lynn for the islands of Hawaii.
 Lynn said... "Come to Hawaii Francis"! "It's family friendly as opposed to the other 49 states". "There are lot's of fun activities for the young and old". "You will definitely like it here"!
