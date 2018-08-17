@@ -24,7 +24,8 @@ Hawaii for me is like the **"Bridge of Cultures"** of The Philippines and the US
 Hawaii has the best beaches just like in our country and at the same time is part of the 50 states in the USA. Which means that Hawaii is backed up by America's technology and infrastructure. 
 It's perfect!
 
-Lynn added that her 2 daughters are also homeschooled but they rushed to the waves to surf immediately after. They are out on the beach almost every day. They have so many outdoor activities are very deadly in hand to hand combat (Gracie Jiu-Jitsu). Most of their pictures that are posted on social media are all smiles. I've never seen a sign of frown on their face (a proof of genuine happiness). 
+Lynn added that her 2 daughters are also homeschooled but they rushed to the waves to surf immediately after. They are out on the beach almost every day.   
+They have so many outdoor activities are very deadly in hand to hand combat (Gracie Jiu-Jitsu). Most of their pictures that are posted on social media are all smiles. I've never seen a sign of frown on their face (a proof of genuine happiness). 
 The adults too are having the time of their lives. Lynn and her husband work so hard but still, they are the "Happiest Citizen in America".   
 Hawaii locals are less stressed and happier than residents of any other state — they also live longer. 
 
