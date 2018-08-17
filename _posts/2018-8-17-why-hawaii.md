@@ -29,7 +29,7 @@ They have so many outdoor activities are very deadly in hand to hand combat (Gra
 The adults too are having the time of their lives. Lynn and her husband work so hard but still, they are the **"Happiest Citizen in America"**.   
 Hawaii locals are less stressed and happier than residents of any other state — they also live longer. 
 
-Me and my family are moving on to another chapter in our lives. We are a family with a bigger and brighter vision. 
+Me and my family are moving on to another chapter in our lives. We are a family with a bigger and brighter vision.   
 Nothing is set in stone yet and we don't have any definitive place to move on to. But we are certainly looking...
 
 The waves from the Pacific ocean brought Lynn and family to the beautiful island of Hawaii. 
