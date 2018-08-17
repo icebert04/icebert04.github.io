@@ -33,8 +33,8 @@ Me and my family are moving on to another chapter in our lives. We are a family 
 Nothing is set in stone yet and we don't have any definitive place to move on to. But we are certainly looking...
 
 The waves from the Pacific ocean brought Lynn and family to the beautiful island of Hawaii. 
-I just have to let nature take its course and see if that same waves will bring me and my family to that prestigious haven. 
-I wonder if I should start now and be familiarized by saying the word... ALOHA!
+I just have to let nature take its course and see if that same waves will bring me and my family to that prestigious haven.   
+I wonder if I should start now and be familiarized by saying the word... **ALOHA!**
 
 
 
