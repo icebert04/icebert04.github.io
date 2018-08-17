@@ -13,7 +13,8 @@ And then, out of the blue, I've heard a whisper from far far away.... 5,307 mile
 Lynn said... **"Come to Hawaii Francis"**! "It's family friendly as opposed to the other 49 states". "There are lot's of fun activities for the young and old". **"You will definitely like it here"**!
 
 I'd video called her the following day and asked for more details of the island that she is staying in. She even sent me links of the immigration process, entry requirements, etc.  
-Lynn's voice was so tempting that it made me re-think my plans all over again. I've now added Hawaii on our list. 
+Lynn's voice was so tempting that it made me re-think my plans all over again.   
+I've now added Hawaii on our list. 
 
 Why Hawaii? The island's "Remoteness" (2,500 miles to the next closest landmass) is the perfect destination for anyone who wants some private time. The nightscapes, star-gazing, and moonrises are very common in the island.
 Hawaii's diverse natural scenery, warm tropical climate, an abundance of public beaches, oceanic surroundings, and active volcanoes make it a popular destination for tourists, surfers, biologists, and volcanologists.
