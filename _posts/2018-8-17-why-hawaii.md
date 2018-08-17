@@ -16,9 +16,9 @@ I'd video called her the following day and asked for more details of the island 
 Lynn's voice was so tempting that it made me re-think my plans all over again.   
 I've now added Hawaii on our list. 
 
-Why Hawaii? The island's "Remoteness" (2,500 miles to the next closest landmass) is the perfect destination for anyone who wants some private time. The nightscapes, star-gazing, and moonrises are very common in the island.   
+Why Hawaii? The island's **"Remoteness"** (2,500 miles to the next closest landmass) is the perfect destination for anyone who wants some private time. The nightscapes, star-gazing, and moonrises are very common in the island.   
 Hawaii's diverse natural scenery, warm tropical climate, an abundance of public beaches, oceanic surroundings, and active volcanoes make it a popular destination for tourists, surfers, biologists, and volcanologists.
-They have the most unique culture and is popularly known for the "Ukulele", "Surfing", "Aloha", "Pau Hana", "SPAM Jam", "Pineapples", and the "Shaka".
+They have the most unique culture and is popularly known for the **"Ukulele"**, **"Surfing"**, **"Aloha"**, **"Pau Hana"**, **"SPAM Jam"**, **"Pineapples"**, and the **"Shaka"**.
 
 Hawaii for me is like the "Bridge of Cultures" of The Philippines and the USA. Hawaii has the best beaches just like in our country and at the same time is part of the 50 states in the USA. Which means that Hawaii is backed up by America's technology and infrastructure. 
 It's perfect!
