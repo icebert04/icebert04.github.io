@@ -28,7 +28,8 @@ The problem with the Philippines is we are so fixated in Manila when there are s
 Why are we so zeroed in on city living when a forgotten division like Agriculture is up to 4 times more effective than other sectors in reducing poverty. 
 
 I love my country so much! And as much as possible I want to help the Patay Gutom. But I can not do it alone. Those Chickenjoys and Donuts would not even make a dent. 
-I need your help (about 14 million of you). Like me, you are also a Filipino. Let's help our countrymen.  Our government can only do so much. If we do this. Not only we will improve our economy but also lessen our crime rate.
+I need your help (about 14 million of you).   
+Like me, you are also a Filipino. Let's help our countrymen.  Our government can only do so much. If we do this. Not only we will improve our economy but also lessen our crime rate.
 
 We won't be also needing a lot of Overseas Foreign Workers being separated from their families if there will be opportunities in their provinces. There are so much do to do in our land. We are just not looking hard enough. 
 
