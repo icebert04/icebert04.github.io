@@ -35,5 +35,5 @@ We won't be also needing a lot of Overseas Foreign Workers being separated from 
 
 Skills are what we need. And lots of good education. If our country gets that... we will see less hunger and starvation in the city.  
 Let's convert the Patay Gutom to "Goodbye Gutom". 
-Food is a basic necessity of life. It is everybody's rights as human beings. 
+Food is a basic necessity of life. It is everybody's rights as human beings.   
 Let's nourish our country..... If we give, the more that we will receive. 
