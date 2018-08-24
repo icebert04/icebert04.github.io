@@ -24,7 +24,7 @@ Whenever I'm with them, I reach out and try to convince them to go back to their
 
 Roughly 10 million Filipino families rate themselves poor. They may be Poor in Manila but Prosperous in their Province. 
 If only 1/2 of that number goes back and convert themselves into farmers and entrepreneurs, our country's economy will be in a better position.   
-The problem with the Philippines is we are so fixated in Manila when there are so many rich lands in other areas in Luzon, Visayas, and especially in Mindanao. 
+The problem with the Philippines is we are so fixated in Manila when there are so many rich lands in other areas in Luzon, Visayas, and especially in Mindanao.   
 Why are we so zeroed in on city living when a forgotten division like Agriculture is up to 4 times more effective than other sectors in reducing poverty. 
 
 I love my country so much! And as much as possible I want to help the Patay Gutom. But I can not do it alone. Those Chickenjoys and Donuts would not even make a dent. 
