@@ -15,7 +15,7 @@ Little did they know that they were doing fine in the province that they are sta
 A little work here, some selling there, a little planting here, and some patience there would provide them and their families not only the basic needs like shelter and food but to what the city dwellers deeply crave...  a PEACE OF MIND! Living a "Buhay Probinisiya" is a dream for most urban people.
 
 It's not that I'm discouraging people not to live and work in big cities. As long as they earn a good living, then by all means proceed. But if they can't, they should go back to their province and do something on their land.   
-They can be better off planting bananas, then processed it as banana chips, and selling them than those people who are working in the office of Makati.
+They can be better off planting bananas, then processed it as banana chips, and selling them than those people who are working in the office of Makati.   
 In the province, they can be business owners. It only takes 1-2 years for them to do it and a lifetime for the middle-income workers in the city. 
 
 I don't want to share and expose this, but for the sake of this topic, I might as well tell it that whenever I have money to spare, I buy a bucket of Jollibee's Chickenjoy or a box of Dunkin Donuts. Then I look for a random PG (Patay Gutom) and give the food to them. I also make sure that the recipient is not part of an organized syndicate of some sort.  I rather give them food than money so I know that it will nourish their stomach and not their bad vices.
