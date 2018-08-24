@@ -19,7 +19,8 @@ It's not that I'm discouraging people not to live and work in big cities. As lon
 They can be better off planting bananas, then processed it as banana chips, and selling them than those people who are working in the office of Makati.   
 In the province, they can be business owners. It only takes 1-2 years for them to do it and a lifetime for the middle-income workers in the city. 
 
-I don't want to share and expose this, but for the sake of this topic, I might as well tell it that whenever I have money to spare, I buy a bucket of **Jollibee's Chickenjoy** or a box of Dunkin Donuts.   Then I look for a random PG (Patay Gutom) and give the food to them. I also make sure that the recipient is not part of an organized syndicate of some sort.   
+I don't want to share and expose this, but for the sake of this topic, I might as well tell it that whenever I have money to spare, I buy a bucket of **Jollibee's Chickenjoy** or a box of Dunkin Donuts.   
+Then I look for a random PG (Patay Gutom) and give the food to them. I also make sure that the recipient is not part of an organized syndicate of some sort.   
 I rather give them food than money so I know that it will nourish their stomach and not their bad vices.
 Whenever I'm with them, I reach out and try to convince them to go back to their province. Most of them have idle lands (surprisingly) and all that they need is a little bit of education and they will be much better off than you and me. 
 
