@@ -9,6 +9,7 @@ It is not because of lack of food & resources, nor our lack of government suppor
 
 Patay (Dead) and Gutom (Hunger) is not an admirable word to hear. Our country is not starving like some troubled countries in Africa. After all, The Philippines is an agricultural country with a land area of 30 million hectares (47% of which is for agricultural purposes).  
 We are abundant with main agricultural crops such as rice, corn, coconut, sugarcane, bananas, pineapple, coffee, mangoes, tobacco, and cacao (special mention to chocolate lovers out there). 
+
 So why do people still get hungry? Like I said, it's their choice. Choice of leaving from their world of abundance. Those who are living with hunger in the streets of big cities like Manila & Cebu are not really from that place. They came from their province hoping for a better life. Little did they know that they were doing fine in the province that they are staying in. 
 A little work here, some selling there, a little planting here, and some patience there would provide them and their families not only the basic needs like shelter and food but to what the city dwellers deeply crave...  a PEACE OF MIND! Living a "Buhay Probinisiya" is a dream for most urban people.
 
