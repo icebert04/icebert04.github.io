@@ -34,6 +34,6 @@ Like me, you are also a Filipino. Let's help our countrymen.  Our government can
 We won't be also needing a lot of Overseas Foreign Workers being separated from their families if there will be opportunities in their provinces. There are so much do to do in our land. We are just not looking hard enough. 
 
 Skills are what we need. And lots of good education. If our country gets that... we will see less hunger and starvation in the city.  
-Let's convert the Patay Gutom to "Goodbye Gutom". 
+Let's convert the Patay Gutom to **"Goodbye Gutom"**. 
 Food is a basic necessity of life. It is everybody's rights as human beings.   
 Let's nourish our country..... If we give, the more that we will receive. 
