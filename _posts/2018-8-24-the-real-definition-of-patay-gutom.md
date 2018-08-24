@@ -4,7 +4,8 @@ published: true
 ![Poverty](/images/Patay Gutom.jpg)
 
 The first time I've heard of that word was when I was 14. I asked my Mom what it meant and she said that Patay Gutom are those people who are deprived of one thing... FOOD! 
-As I grew older, I became fully aware of why these people exist. It is not because of lack of food & resources, nor our lack of government support but because it all boils down to one thing.... their CHOICE! The absurdly wrong choice! 
+As I grew older, I became fully aware of why these people exist.   
+It is not because of lack of food & resources, nor our lack of government support but because it all boils down to one thing.... their CHOICE! The absurdly wrong choice! 
 
 Patay (Dead) and Gutom (Hunger) is not an admirable word to hear. Our country is not starving like some troubled countries in Africa. After all, The Philippines is an agricultural country with a land area of 30 million hectares (47% of which is for agricultural purposes).  
 We are abundant with main agricultural crops such as rice, corn, coconut, sugarcane, bananas, pineapple, coffee, mangoes, tobacco, and cacao (special mention to chocolate lovers out there). 
