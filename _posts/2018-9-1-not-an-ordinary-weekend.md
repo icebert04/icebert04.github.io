@@ -53,7 +53,7 @@ The lake is also one of the primary sources of freshwater fish in the country.
 We stop by around C-6 road and bought some fresh kangkong. 
 It is so peaceful and quiet there, like you don't want to leave the place.
 
-8.) PAROLA
+8.) **PAROLA**
 => This centuries-old lighthouse became the secret rendezvous point of the Katipunan as it planned its revolution for Philippine Independence. The Parola was chosen by KKK Supremo Gat Andres Bonifacio as a meeting place because it was the most accessible channel from Tondo, Manila and from the Municipios along the Pasig River and the Province of Laguna.
 Another hidden gem of the city of Taguig.
 
