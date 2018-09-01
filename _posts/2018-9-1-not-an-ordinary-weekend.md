@@ -38,7 +38,7 @@ I made it a point to bring my boys here to let them see our Muslim brothers. We 
 It was destroyed again by another earthquake and was rebuilt in 1896 by Fr. Guillermo Diaz. 
 This parish is the perfect symbol for us Filipinos that we can rise to any crises that come our way. 
 
-5.) SIMBORYO
+5.) **SIMBORYO**
 => A centerpiece of the Sta. Ana Catholic Cemetery, erected by Filipino labor and supervised by Spanish friars in the year 1700. The dome is made of tiles and the walls of stones.
 My son Luigi liked how it was built and took a lot of pictures on his phone. 
 I think we should build more structure like these in our country. It's perfect for wedding and other major events.
