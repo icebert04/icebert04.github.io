@@ -44,7 +44,7 @@ My son Luigi liked how it was built and took a lot of pictures on his phone.
 I think we should build more structure like these in our country. It's perfect for wedding and other major events.
 
 6.) **FELIX MANALO SHRINE**
-=> Iglesia Ni Cristo (INC) is probably one of the most solid and strongest religious group in the Philippines. And they still continuously grow in numbers. 
+=> Iglesia Ni Cristo (INC) is probably one of the most solid and strongest religious group in the Philippines. And they still continuously grow in numbers.   
 Here is an unveiled a marker on the birthplace of Felix Manalo, declaring the site as a National Historical Landmark. The marker is located at Tipas, Taguig City, where the ancestral home of Manalo once stood.
 
 7.) LAGUNA DE BAY
