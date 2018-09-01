@@ -62,7 +62,7 @@ Another hidden gem of the city of Taguig.
 => It is an ideal resting spot for those wishing to take a break from the pressures of everyday life. The farm overlooking Laguna Lake integrates different kinds of urban farming setups—from gardens that showcase vertical farming that save space, to wooden rack and pole gardens that wow the eye.
 Again, every city should have more demo farm like these for healthier food choices.
 
-10.)  MERCADO DE LAGO
+10.)  **MERCADO DE LAGO**
 => A little piece of Bali so to speak. Our last stop of our day tour ended here at the floating food park. The place is so serene where they have nipa hut houses by the bay where you can dine in.  
 Plus you can see the white birds along the lake gazing through. It's a perfect sight to unwind and relax. 
 
