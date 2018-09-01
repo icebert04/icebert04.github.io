@@ -30,7 +30,7 @@ It teaches my kids how we got our independence and maintained our Filipino tradi
 Good to know that we have a market near our place if ever we need some fresh goods.
 
 3.) **BLUE MOSQUE**
-=> This religious center located at Maharlika Village, Taguig City, designed by renowned architect Angel Nakpil, is also a socio-civic meeting place for both Filipino and foreign Muslims.
+=> This religious center located at Maharlika Village, Taguig City, designed by renowned architect Angel Nakpil, is also a socio-civic meeting place for both Filipino and foreign Muslims.   
 I made it a point to bring my boys here to let them see our Muslim brothers. We went inside and were amazed by how disciplined and organized the people there who devote their time to this building.  
 
 4.) ARCHDIOCESAN SHRINE OF ST. ANNE
