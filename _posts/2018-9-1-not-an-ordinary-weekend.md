@@ -29,7 +29,7 @@ It teaches my kids how we got our independence and maintained our Filipino tradi
 => Located in ARCA South Taguig, it's a marketplace where you can buy organic produce from local farmers. There are also some plants and food stalls in the area.   
 Good to know that we have a market near our place if ever we need some fresh goods.
 
-3.) BLUE MOSQUE
+3.) **BLUE MOSQUE**
 => This religious center located at Maharlika Village, Taguig City, designed by renowned architect Angel Nakpil, is also a socio-civic meeting place for both Filipino and foreign Muslims.
 I made it a point to bring my boys here to let them see our Muslim brothers. We went inside and were amazed by how disciplined and organized the people there who devote their time to this building.  
 
