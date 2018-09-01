@@ -3,7 +3,8 @@ published: true
 ---
 ![Weekend](/images/Taguig 2.jpg)
 
-Weekends in the city are becoming to be very much boring and routinely. People just go to malls to dine, shop and entertain themselves. And that's what they do weekends after weekends.
+Weekends in the city are becoming to be very much boring and routinely.   
+People just go to malls to dine, shop and entertain themselves. And that's what they do weekends after weekends.
 
 Some people go the distance and travel to a nearby province to spend some time at the beach or someplace quiet. 
 
