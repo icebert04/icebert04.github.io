@@ -47,8 +47,8 @@ I think we should build more structure like these in our country. It's perfect f
 => Iglesia Ni Cristo (INC) is probably one of the most solid and strongest religious group in the Philippines. And they still continuously grow in numbers.   
 Here is an unveiled a marker on the birthplace of Felix Manalo, declaring the site as a National Historical Landmark. The marker is located at Tipas, Taguig City, where the ancestral home of Manalo once stood.
 
-7.) LAGUNA DE BAY
-=> The largest lake in the Philippines with a surface area of 911–949 km² (352-366 sq mi), with an average depth of about 2.8 meters (9 ft 2 in) and an elevation of about 1 meter (3 ft 3 in) above sea level.
+7.) **LAGUNA DE BAY**
+=> The largest lake in the Philippines with a surface area of 911–949 km² (352-366 sq mi), with an average depth of about 2.8 meters (9 ft 2 in) and an elevation of about 1 meter (3 ft 3 in) above sea level.   
 The lake is also one of the primary sources of freshwater fish in the country.
 We stop by around C-6 road and bought some fresh kangkong. 
 It is so peaceful and quiet there, like you don't want to leave the place.
