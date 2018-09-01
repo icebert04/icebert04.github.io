@@ -10,7 +10,8 @@ Some people go the distance and travel to a nearby province to spend some time a
 
 But what if you're too tired to drive far from home but you are also uninterested in going to crowded malls?? Is there any other option?
 
-I too was asking that same question. So I did some research and went to Google Maps. I intensified my quest and found a place where me and my family can have an "Extra-Ordinary Weekend". 
+I too was asking that same question. So I did some research and went to Google Maps.   
+I intensified my quest and found a place where me and my family can have an "Extra-Ordinary Weekend". 
 That place is no other than Taguig City.
 
 So we did our itineraries, hop into our car and off we go...
