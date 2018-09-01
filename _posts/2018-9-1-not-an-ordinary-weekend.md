@@ -58,7 +58,7 @@ It is so peaceful and quiet there, like you don't want to leave the place.
 The Parola was chosen by KKK Supremo Gat Andres Bonifacio as a meeting place because it was the most accessible channel from Tondo, Manila and from the Municipios along the Pasig River and the Province of Laguna.
 Another hidden gem of the city of Taguig.
 
-9.) INTEGRATED URBAN FARM
+9.) **INTEGRATED URBAN FARM**
 => It is an ideal resting spot for those wishing to take a break from the pressures of everyday life. The farm overlooking Laguna Lake integrates different kinds of urban farming setups—from gardens that showcase vertical farming that save space, to wooden rack and pole gardens that wow the eye.
 Again, every city should have more demo farm like these for healthier food choices.
 
