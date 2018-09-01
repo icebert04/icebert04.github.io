@@ -50,7 +50,7 @@ Here is an unveiled marker on the birthplace of Felix Manalo, declaring the site
 7.) **LAGUNA DE BAY**
 => The largest lake in the Philippines with a surface area of 911–949 km² (352-366 sq mi), with an average depth of about 2.8 meters (9 ft 2 in) and an elevation of about 1 meter (3 ft 3 in) above sea level.   
 The lake is also one of the primary sources of freshwater fish in the country.
-We stopped by around C-6 road and bought some fresh kangkong. 
+We stopped by around C-6 road and bought some fresh Kangkong. 
 It is so peaceful and quiet there, like you don't want to leave the place.
 
 8.) **PAROLA**
