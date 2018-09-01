@@ -34,7 +34,8 @@ Good to know that we have a market near our place if ever we need some fresh goo
 I made it a point to bring my boys here to let them see our Muslim brothers. We went inside and were amazed by how disciplined and organized the people there who devote their time to this building.  
 
 4.) **ARCHDIOCESAN SHRINE OF ST. ANNE**
-=> Built in 1587, this church, is definitely one of the oldest churches in the Philippines. This was destroyed by an earthquake in 1645 and reconstructed in 1848.  It was destroyed again by another earthquake and was rebuilt in 1896 by Fr. Guillermo Diaz. 
+=> Built in 1587, this church, is definitely one of the oldest churches in the Philippines. This was destroyed by an earthquake in 1645 and reconstructed in 1848.   
+It was destroyed again by another earthquake and was rebuilt in 1896 by Fr. Guillermo Diaz. 
 This parish is the perfect symbol for us Filipinos that we can rise to any crises that come our way. 
 
 5.) SIMBORYO
