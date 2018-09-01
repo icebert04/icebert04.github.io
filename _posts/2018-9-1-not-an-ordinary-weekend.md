@@ -36,7 +36,7 @@ I made it a point to bring my boys here to let them see our Muslim brothers. We 
 4.) **ARCHDIOCESAN SHRINE OF ST. ANNE**
 => Built in 1587, this church, is definitely one of the oldest churches in the Philippines. This was destroyed by an earthquake in 1645 and reconstructed in 1848.   
 It was destroyed again by another earthquake and was rebuilt in 1896 by Fr. Guillermo Diaz. 
-This parish is the perfect symbol for us Filipinos that we can rise to any crises that come our way. 
+This parish is the perfect symbol for us Filipinos that we can rise to any kind of crisis that come our way. 
 
 5.) **SIMBORYO**
 => A centerpiece of the Sta. Ana Catholic Cemetery, erected by Filipino labor and supervised by Spanish friars in the year 1700. The dome is made of tiles and the walls of stones.   
