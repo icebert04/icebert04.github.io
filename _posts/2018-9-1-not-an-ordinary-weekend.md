@@ -18,7 +18,7 @@ So we did our itineraries, hop into our car and off we go...
 
 Our first stop is...
 
-1.) LIBINGAN NG MGA BAYANI
+1.) **LIBINGAN NG MGA BAYANI**
 => The Libingan ng mga Bayani or the Cemetery of the Heroes is the final resting place of 33,520 Filipinos who laid their lives for the country during the Second World War.  Dignitaries and personnel of the Philippine military from privates to generals are also buried here.
 The burial ground is about 142 hectares with lots of trees and open space. 
 Here we paid our respect to the crosses with no names and to the former leaders of our nation.
