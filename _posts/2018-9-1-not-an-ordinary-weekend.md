@@ -68,6 +68,6 @@ Plus you can see the white birds along the lake gazing through. It's a perfect s
 
 So there you have it. 10 wonderful and educational sites just spent in one day in a place that is not so far away from our residence.   
 Malls are a good place to shop and dine. And nearby provinces is perfect for holidays and long weekends. 
-But there are more to explore rather than malls. 
+But there are more to explore rather than malls.   
 There is some beauty left in Metro Manila. All we have to do is look. 
 
