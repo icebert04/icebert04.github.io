@@ -26,7 +26,7 @@ Here we paid our respect to the crosses with no names and to the former leaders 
 It teaches my kids how we got our independence and maintained our Filipino tradition and culture.
 
 2.) **AANI WEEKEND MARKET**
-=> Located in ARCA South Taguig, it's a marketplace where you can buy organic produce from local farmers. There are also some plants and food stalls in the area.
+=> Located in ARCA South Taguig, it's a marketplace where you can buy organic produce from local farmers. There are also some plants and food stalls in the area.   
 Good to know that we have a market near our place if ever we need some fresh goods.
 
 3.) BLUE MOSQUE
