@@ -66,7 +66,7 @@ Again, every city should have more demo farm like these for healthier food choic
 => A little piece of Bali so to speak. Our last stop of our day tour ended here at the floating food park. The place is so serene where they have nipa hut houses by the bay where you can dine in.  
 Plus you can see the white birds along the lake gazing through. It's a perfect sight to unwind and relax. 
 
-So there you have it. 10 wonderful and educational sites just spent in one day in a place that is not so far away from our residence.   
+So there you have it. 10 wonderful and educational sites just spent in 1 day in a place that is not so far away from our residence.   
 Malls are a good place to shop and dine. And nearby provinces is perfect for holidays and long weekends. 
 But there are more to explore rather than malls.   
 There is some beauty left in Metro Manila. All we have to do is look. 
