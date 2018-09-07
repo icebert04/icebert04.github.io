@@ -11,7 +11,7 @@ You see, what these elderly people lack on health and innovation, they pay up wi
 One thing they are very good at is the art of **"Spoiling"**!  Almost all grandparents overindulge the kids of their children with an abundant of kindness.... up to a point when they had more than enough that they can muster. 
 These elderlies pamper their grandchildren with toys, candies, chocolates, treats, and anything that they can find on Amazon or eBay. 
 
-Back in their prime, they can't simply do it. They have to work. They have to bring food to the table. They have to bring their kids to school. And above all, they have to commit discipline.
+Back in their prime, they can't simply do it. They have to work. They have to bring food to the table. They have to bring their kids to school. And above all, they have to commit discipline.   
 And upon reaching their senior age. That's is the time they graduate from all of that and just concentrate on love and giving. 
 That love and giving are obviously spoon-fed to the offspring of the children that they raised for so many years. 
 
