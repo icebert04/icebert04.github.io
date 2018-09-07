@@ -23,10 +23,10 @@ It's ridiculously absurd, but they still do it. And the funny thing about it, my
 My cousins also have a similar story as to mine. Their parents are powerless when in front of our Lolo & Lola. Our grandparents are so powerful that they look like they own the kingdoms and monarchs of the world. 
 
 Which brings me to thinking, will I be like my grandparents when the time comes when I will also have my very own Apo (grandchild)?   
-Honestly, I'm excited to be one. Can I have a time machine please and jump to the period where I am with my granddaughter shopping for dresses and shoes. Then we will go for ice cream after, and a movie afterward.
+Honestly, I'm excited to be one. Can I have a time machine please and jump to the period where I am with my granddaughter shopping for dresses and shoes. Then we will go for ice cream after, and a movie afterward.   
 On the weekend, me and my granddaughter will go to the province and I will teach her to go fishing. 
 We will be very busy up to the point that I will tell my son not to bother us and just keep working. 
-That's how "Scary" I'm going to be.
+That's how **"Scary"** I'm going to be.
 
 So Happy Grandparents to all! Give value to this event. Grandparents Day is a day for celebrating the connections between generations.
 Treat your Lolo & Lola right. Spend quality time with them. They did not only earned it but they evidently deserved it. 
