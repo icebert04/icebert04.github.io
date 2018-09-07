@@ -17,7 +17,7 @@ That love and giving are obviously spoon-fed to the offspring of the children th
 
 I personally experience all of that "Spoiling" from my grandparents. As you could see in this picture (sandwich by my Lolo & Lola), I was very close to them. 
 My Lolo (A retired Airforce Colonel) always massage my back before I head out to school. I became so spoiled that I won't get up from bed until I had that massage.  
-My Lola is even worse. She gives me every food that I want. She has to cut her "Cat Nap" in the afternoon because she needs to cook the particular food that I want. 
+My Lola is even worse. She gives me every food that I want. She has to cut her **"Cat Nap"** in the afternoon because she needs to cook the particular food that I want. 
 It's ridiculously absurd, but they still do it. And the funny thing about it, my Dad (also a disciplinarian) can't do anything about it. 
 
 My cousins also have a similar story as to mine. Their parents are powerless when in front of our Lolo & Lola. Our grandparents are so powerful that they look like they own the kingdoms and monarchs of the world. 
