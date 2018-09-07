@@ -3,7 +3,7 @@ published: true
 ---
 ![Grandparents](/images/Leandro Isberto.jpg)
 
-This Sunday is Grandparents Day! Although this event is as not as celebrated compared to Mother's Day or Father's Day, still people give importance to the parents of the couple who gave birth to them. 
+This Sunday is Grandparents Day! Although this event is as not as celebrated compared to Mother's Day or Father's Day, still people give importance to the parents of the couple who gave birth to them.   
 Lolo and Lola as we commonly call them. They may be slow and weak. White or regressing hair. A little bit outdated in technology and the internet.
 Still, we call them as our very own heroes. 
 
