@@ -7,8 +7,8 @@ This Sunday is Grandparents Day! Although this event is as not as celebrated com
 Lolo and Lola as we commonly call them. They may be slow and weak. White or regressing hair. A little bit outdated in technology and the internet.
 Still, we call them as our very own heroes. 
 
-You see, what these elderly people lack on health and innovation, they pay up with knowledge, many years of experience, and lots of patience in loving and guiding not only their children but their priceless grandchildren. 
-One thing they are very good at is the art of "Spoiling"!  Almost all grandparents overindulge the kids of their children with an abundant of kindness.... up to a point when they had more than enough that they can muster. 
+You see, what these elderly people lack on health and innovation, they pay up with knowledge, many years of experience, and lots of patience in loving and guiding not only their children but their priceless grandchildren.   
+One thing they are very good at is the art of **"Spoiling"**!  Almost all grandparents overindulge the kids of their children with an abundant of kindness.... up to a point when they had more than enough that they can muster. 
 These elderlies pamper their grandchildren with toys, candies, chocolates, treats, and anything that they can find on Amazon or eBay. 
 
 Back in their prime, they can't simply do it. They have to work. They have to bring food to the table. They have to bring their kids to school. And above all, they have to commit discipline.
