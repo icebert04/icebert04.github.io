@@ -28,7 +28,7 @@ On the weekend, me and my granddaughter will go to the province and I will teach
 We will be very busy up to the point that I will tell my son not to bother us and just keep working. 
 That's how **"Scary"** I'm going to be.
 
-So Happy Grandparents to all! Give value to this event. Grandparents Day is a day for celebrating the connections between generations.
+So Happy Grandparents to all! Give value to this event. Grandparents Day is a day for celebrating the connections between generations.   
 Treat your Lolo & Lola right. Spend quality time with them. They did not only earned it but they evidently deserved it. 
 Let them spoil you and love you. Seeing your face is more than enough to make them smile for a lifetime. 
 
