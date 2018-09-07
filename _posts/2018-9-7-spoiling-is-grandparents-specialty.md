@@ -15,14 +15,14 @@ Back in their prime, they can't simply do it. They have to work. They have to br
 And upon reaching their senior age. That's is the time they graduate from all of that and just concentrate on love and giving. 
 That love and giving are obviously spoon-fed to the offspring of the children that they raised for so many years. 
 
-I personally experience all of that "Spoiling" from my grandparents. As you could see in this picture (sandwich by my Lolo & Lola), I was very close to them.   
+I personally experience all of that **"Spoiling"** from my grandparents. As you could see in this picture (sandwich by my Lolo & Lola), I was very close to them.   
 My Lolo (A retired Airforce Colonel) always massage my back before I head out to school. I became so spoiled that I won't get up from bed until I had that massage.  
 My Lola is even worse. She gives me every food that I want. She has to cut her **"Cat Nap"** in the afternoon because she needs to cook the particular food that I want. 
 It's ridiculously absurd, but they still do it. And the funny thing about it, my Dad (also a disciplinarian) can't do anything about it. 
 
 My cousins also have a similar story as to mine. Their parents are powerless when in front of our Lolo & Lola. Our grandparents are so powerful that they look like they own the kingdoms and monarchs of the world. 
 
-Which brings me to thinking, will I be like my grandparents when the time comes when I will also have my very own Apo (grandchild)? 
+Which brings me to thinking, will I be like my grandparents when the time comes when I will also have my very own Apo (grandchild)?   
 Honestly, I'm excited to be one. Can I have a time machine please and jump to the period where I am with my granddaughter shopping for dresses and shoes. Then we will go for ice cream after, and a movie afterward.
 On the weekend, me and my granddaughter will go to the province and I will teach her to go fishing. 
 We will be very busy up to the point that I will tell my son not to bother us and just keep working. 
