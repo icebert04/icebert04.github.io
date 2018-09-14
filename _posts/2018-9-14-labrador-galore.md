@@ -12,7 +12,7 @@ My pursuit ended when I found this vacation house which I personally call... **"
 
 That place is in San Jose Batangas (A province known for producing Paminta or Black Pepper). 
 In that territory, you can find a vacation house owned by my cousin Dinna and her husband Raul.   
-A serene farmhouse with numerous fruit-bearing trees, multiple Bali- themed nipa huts,  enveloped with assorted and varied pint-sized inground pool, and blessed with naturistic open space and green lush lawn.
+A serene farmhouse with numerous fruit-bearing trees, multiple Bali-themed nipa huts,  enveloped with assorted and varied pint-sized inground pool, and blessed with naturistic open space and green lush lawn.
 
 It's perfect to spend a lifetime in the couple's retreat house. But what it makes more unique is their furry companions who act as their **"Welcoming Party"** on their behalf. That furry companion is believably the kindest and friendliest animal... **The Labrador Retriever**.   
 The sweet-faced, lovable Labrador is one of the most popular dog breeds.   
