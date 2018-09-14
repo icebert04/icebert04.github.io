@@ -25,7 +25,8 @@ Back in the day, me and my friend Iko used to breed these so-called **"Water Dog
 Years went by and I shifted to other dog breeds but I'll tell you... I still keep on coming back to these lovable Retrievers. 
 
 I don't have a Labrador at the moment, but I try to get a hold of them every chance I get. 
-My cousin Nico has a Lab near our place. So whenever I have time, I take Ash (their dog's name) for a run in the village. Every day is a different adventure for both me and the dog. Labs are really what I call a "Perfect Companion" to humans. Even strangers are fond of them.
+My cousin Nico has a Lab near our place.   
+So whenever I have time, I take Ash (their dog's name) for a run in the village. Every day is a different adventure for both me and the dog. Labs are really what I call a "Perfect Companion" to humans. Even strangers are fond of them.
 
 So kudos to both Raul & Dinna for giving us a deep insight and "Bodhi Idea" for us people who desire a place surrounded with these friendly furry creatures.
 You choose the right breed for you and your family. These dogs will be the main attraction of your vacation house. But not only that, the Retrievers will give you overflowing love and affection. They will keep you in shape with plenty of running and catching. 
