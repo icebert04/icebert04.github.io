@@ -8,10 +8,10 @@ If you are going to build your own vacation house, what is the first thing that 
 Is it lots of fruit bearing trees? A large swimming pool? A Ferris wheel? 
 
 I've been searching, looking, and asking around on things that will be pleasing to any kind of vacation house. 
-My pursuit ended when I found this vacation house which I personally call... Labrador Galore.
+My pursuit ended when I found this vacation house which I personally call... **"Labrador Galore"**.
 
 That place is in San Jose Batangas (A province known for producing Paminta or Black Pepper). 
-In that territory, you can find a vacation house owned by my cousin Dinna and her husband Raul. 
+In that territory, you can find a vacation house owned by my cousin Dinna and her husband Raul.   
 A serene farmhouse with numerous fruit-bearing trees, multiple Bali- themed nipa huts,  enveloped with assorted and varied pint-sized inground pool, and blessed with naturistic open space and green lush lawn.
 
 It's perfect to spend a lifetime in the couple's retreat house. But what it makes more unique is their furry companions who act as their "Welcoming Party" on their behalf. That furry companion is believably the kindest and friendliest animal... The Labrador Retriever.
