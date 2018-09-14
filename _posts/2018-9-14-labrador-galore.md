@@ -29,7 +29,8 @@ My cousin Nico has a Lab near our place.
 So whenever I have time, I take Ash (their dog's name) for a run in the village. Every day is a different adventure for both me and the dog. Labs are really what I call a **"Perfect Companion"** to humans. Even strangers are fond of them.
 
 So kudos to both Raul & Dinna for giving us a deep insight and **"Bodhi Idea"** for us people who desire a place surrounded with these friendly furry creatures.   
-You choose the right breed for you and your family. These dogs will be the main attraction of your vacation house. But not only that, the Retrievers will give you overflowing love and affection. They will keep you in shape with plenty of running and catching. 
+You choose the right breed for you and your family. These dogs will be the main attraction of your vacation house.   
+But not only that, the Retrievers will give you overflowing love and affection. They will keep you in shape with plenty of running and catching. 
 And overall, they are Family who you will treasure forever.
 
 I takes one to know one. From one Labrador lover to another. I have nothing but love for these wonderful creatures. Our greatest friend forever... **The Labrador Retriever**! 
