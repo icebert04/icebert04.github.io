@@ -18,7 +18,7 @@ It's perfect to spend a lifetime in the couple's retreat house. But what it make
 The sweet-faced, lovable Labrador is one of the most popular dog breeds.   
 Labs are famously friendly. They are companionable housemates who like to bond with the whole family, and they socialize very well with neighbor dogs and humans alike.
 
-Historically known for earning their keep as a fisherman's helper... these dogs are fond of water, swimming, and retrieving anything you throw away from their sight. 
+Historically known for earning their keep as a fisherman's helper... these dogs are fond of water, swimming, and retrieving anything you throw away from their sight.   
 Throw them a ball, Labs will bring it back to you. Fling a frisbee, they will bring it back to you. Catapult your ex-boyfriend or ex-girlfriend, these dogs will still bring them back to you.
 
 Back in the day, me and my friend Iko used to breed these so-called "Water Dogs". We sell the puppies and all we got from our buyers are nothing but praises and appreciation. 
