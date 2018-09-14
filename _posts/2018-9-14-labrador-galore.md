@@ -15,7 +15,8 @@ In that territory, you can find a vacation house owned by my cousin Dinna and he
 A serene farmhouse with numerous fruit-bearing trees, multiple Bali- themed nipa huts,  enveloped with assorted and varied pint-sized inground pool, and blessed with naturistic open space and green lush lawn.
 
 It's perfect to spend a lifetime in the couple's retreat house. But what it makes more unique is their furry companions who act as their **"Welcoming Party"** on their behalf. That furry companion is believably the kindest and friendliest animal... **The Labrador Retriever**.
-The sweet-faced, lovable Labrador is one of the most popular dog breeds. Labs are famously friendly. They are companionable housemates who like to bond with the whole family, and they socialize very well with neighbor dogs and humans alike.
+The sweet-faced, lovable Labrador is one of the most popular dog breeds.   
+Labs are famously friendly. They are companionable housemates who like to bond with the whole family, and they socialize very well with neighbor dogs and humans alike.
 
 Historically known for earning their keep as a fisherman's helper... these dogs are fond of water, swimming, and retrieving anything you throw away from their sight. 
 Throw them a ball, Labs will bring it back to you. Fling a frisbee, they will bring it back to you. Catapult your ex-boyfriend or ex-girlfriend, these dogs will still bring them back to you.
