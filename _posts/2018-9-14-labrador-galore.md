@@ -21,7 +21,7 @@ Labs are famously friendly. They are companionable housemates who like to bond w
 Historically known for earning their keep as a fisherman's helper... these dogs are fond of water, swimming, and retrieving anything you throw away from their sight.   
 Throw them a ball, Labs will bring it back to you. Fling a frisbee, they will bring it back to you. Catapult your ex-boyfriend or ex-girlfriend, these dogs will still bring them back to you.
 
-Back in the day, me and my friend Iko used to breed these so-called **"Water Dogs"**. We sell the puppies and all we got from our buyers are nothing but praises and appreciation. 
+Back in the day, me and my friend Iko used to breed these so-called **"Water Dogs"**. We sell the puppies and all we got from our buyers are nothing but praises and appreciation.   
 Years went by and I shifted to other dog breeds but I'll tell you... I still keep on coming back to these lovable Retrievers. 
 
 I don't have a Labrador at the moment, but I try to get a hold of them every chance I get. 
