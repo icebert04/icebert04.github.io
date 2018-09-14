@@ -32,4 +32,4 @@ So kudos to both Raul & Dinna for giving us a deep insight and **"Bodhi Idea"** 
 You choose the right breed for you and your family. These dogs will be the main attraction of your vacation house. But not only that, the Retrievers will give you overflowing love and affection. They will keep you in shape with plenty of running and catching. 
 And overall, they are Family who you will treasure forever.
 
-I takes one to know one. From one Labrador lover to another. I have nothing but love for these wonderful creatures. Our greatest friend forever... The Labrador Retriever! 
+I takes one to know one. From one Labrador lover to another. I have nothing but love for these wonderful creatures. Our greatest friend forever... **The Labrador Retriever**! 
