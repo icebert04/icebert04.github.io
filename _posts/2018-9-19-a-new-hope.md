@@ -11,7 +11,7 @@ With a staggering 2.3 million OFW (Overseas Filipino Workers), who mostly leave 
 What happened? The Philippines used to be an Economic Powerhouse back in the day when the exchange rate was 2 pesos to a dollar.   
 Our country was once a model of development and 2nd only to Japan among East Asian economies.
 
-But there is still hope for our dwindling nation. Our Manufacturing, Tourism, and Agriculture are "Slowly but Surely" vastly improving. 
+But there is still hope for our dwindling nation. Our Manufacturing, Tourism, and Agriculture are **"Slowly but Surely"** vastly improving.   
 However, we can't fully rely on these sectors. And our government can only do so much. 
 
 Filipinos are talented in a lot of ways and if each one of us contributes to our country, we will see a massive change in our mother homeland.
