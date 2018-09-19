@@ -8,7 +8,7 @@ Poor infrastructure & Urban planning that lead to nightmarish traffic & countles
 I don't blame our fellow Filipinos who left our country (or planning to leave) for greener pastures. 
 With a staggering 2.3 million OFW (Overseas Filipino Workers), who mostly leave their dear loved ones in exchange for a better future, is one compelling proof of our country's economic incapacity. 
 
-What happened? The Philippines used to be an Economic Powerhouse back in the day when the exchange rate was 2 pesos to a dollar. 
+What happened? The Philippines used to be an Economic Powerhouse back in the day when the exchange rate was 2 pesos to a dollar.   
 Our country was once a model of development and 2nd only to Japan among East Asian economies.
 
 But there is still hope for our dwindling nation. Our Manufacturing, Tourism, and Agriculture are "Slowly but Surely" vastly improving. 
