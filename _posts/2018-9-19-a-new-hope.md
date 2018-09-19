@@ -24,7 +24,8 @@ We will get a revenue additional export of at least $ 150 million.
 50,000 of our local farmers will be getting additional incomes between Php 60,000 to Php 80,000 per hectare.   
 And we will have 25 million cacao trees not only producing 2 kg of dried beans per month, but also combat climate change, improve air quality, preserve our soil and support our endangered species. 
 
-Plus, we will be making our very own chocolate brand. Davao has started producing chocolate bars but we still need more local manufacturers to make our country be recognized globally. 
+Plus, we will be making our very own chocolate brand.   
+Davao has started producing chocolate bars but we still need more local manufacturers to make our country be recognized globally.   
 Our neighboring countries like Japan, China, & South Korea don't have cacao trees in their land. We can develop a specialty chocolate for them.
 
 How about an Amusement Park & Museum at our very own Chocolate Factory? It will create an awareness to our youth that we are blessed with cacao and learn to cultivate it.
