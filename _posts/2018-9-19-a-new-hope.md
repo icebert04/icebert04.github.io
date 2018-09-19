@@ -35,7 +35,8 @@ At the moment, I am...
 1.) Collecting small farmers & landowners for planting Cacao trees in the province of Batangas (1st District)   
 2.) Producing hand-made Dark chocolate bars primarily in the villages of Parañaque City 
 
-The operation is still small but slowly getting traction & attention. We will be needing a lot of you... farmers, landowners, drivers & deliveries, distributors, chocolate connoisseur, exporters, sellers of equipment & machinery, web designers, promoters, influencers, and partners, investors, & venture capitalists.
+The operation is still small but slowly getting traction & attention.   
+We will be needing a lot of you... farmers, landowners, drivers & deliveries, distributors, chocolate connoisseur, exporters, sellers of equipment & machinery, web designers, promoters, influencers, and partners, investors, & venture capitalists.
 
 I need dedicated people who will be of big help to this venture that will, in some way, contribute to our economy. 
 
