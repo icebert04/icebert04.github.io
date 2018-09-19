@@ -20,8 +20,8 @@ As for me, my way of contributing is through **"Cacao & Chocolates"**.
 For those who didn't know, most of the world's cocoa is grown in a narrow belt 10 degrees either side of the Equator. Thus making our country one of the producers.   
 With global sales for chocolates reaching to $ 147 Billion, our nation can grab a big chunk of that pie. 
 
-We will get a revenue additional export of at least $ 150 million. 
-50,000 of our local farmers will be getting additional incomes between Php 60,000 to Php 80,000 per hectare. 
+We will get a revenue additional export of at least $ 150 million.   
+50,000 of our local farmers will be getting additional incomes between Php 60,000 to Php 80,000 per hectare.   
 And we will have 25 million cacao trees not only producing 2 kg of dried beans per month, but also combat climate change, improve air quality, preserve our soil and support our endangered species. 
 
 Plus, we will be making our very own chocolate brand. Davao has started producing chocolate bars but we still need more local manufacturers to make our country be recognized globally. 
