@@ -40,7 +40,8 @@ We will be needing a lot of you... farmers, landowners, drivers & deliveries, di
 
 I need dedicated people who will be of big help to this venture that will, in some way, contribute to our economy. 
 
-I don't care how long this will take. As for now, I am overwhelmed by the fact that the "Believers" of this project outweighs the "Non-Believers".
+I don't care how long this will take.   
+As for now, I am overwhelmed by the fact that the **"Believers"** of this project outweighs the **"Non-Believers"**.
 This is not entirely for me only. It's for our country and for every Filpino. Creating a product that is 100% Philippine made.
 
 This is a New Hope! We've been in the dark for too long... it's now time to get out of that tunnel! 
