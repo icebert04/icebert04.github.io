@@ -44,4 +44,5 @@ I don't care how long this will take.
 As for now, I am overwhelmed by the fact that the **"Believers"** of this project outweighs the **"Non-Believers"**.   
 This is not entirely for me only. It's for our country and for every Filpino. Creating a product that is 100% Philippine made.
 
-This is a New Hope! We've been in the dark for too long... it's now time to get out of that tunnel! 
+This is a New Hope!   
+We've been in the dark for too long... it's now time to get out of that tunnel! 
