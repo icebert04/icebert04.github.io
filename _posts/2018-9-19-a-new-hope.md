@@ -3,7 +3,8 @@ published: true
 ---
 ![Cacao](/images/Chocolate 3.jpg)
 
-Our country is in crisis! Poor infrastructure & Urban planning that lead to nightmarish traffic & countless floods. Below par educational system, Low-quality healthcare, Overpopulation & Poverty, Corruption, and Lack of opportunities & Unemployment.
+Our country is in crisis!   
+Poor infrastructure & Urban planning that lead to nightmarish traffic & countless floods. Below par educational system, Low-quality healthcare, Overpopulation & Poverty, Corruption, and Lack of opportunities & Unemployment.   
 I don't blame our fellow Filipinos who left our country (or planning to leave) for greener pastures. 
 With a staggering 2.3 million OFW (Overseas Filipino Workers), who mostly leave their dear loved ones in exchange for a better future, is one compelling proof of our country's economic incapacity. 
 
