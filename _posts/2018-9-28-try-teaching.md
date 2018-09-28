@@ -12,7 +12,7 @@ Being a Teacher is conceivably the Hardest, Most Underrated Job today. They are 
 What makes it worse is Teachers experience high levels of daily stress (especially in public schools in the Philippines).   
 The Teacher-Student ratio is ridiculously absurd. And they carry this colossal obligation on graduating their students. 
 It's really a very tough job!   
-Come to think of it, why are we paying the Educators of our Future Generations less when they do "SO MUCH"? 
+Come to think of it, why are we paying the Educators of our Future Generations less when they do **"SO MUCH"**? 
 It's totally unfair!
 
 And with the rise of Smart Machines, New Media Literacy, and everything being Globally Connected. You'll see multiple new sets of skills that never existed in the past. Bums making "Big Bucks" just by uploading videos on YouTube. Single Mom's making a big splash in selling digital products across her country, and Senior Citizens still earning a few doughs through the "Sharing Economy". 
