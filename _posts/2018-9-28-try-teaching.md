@@ -3,7 +3,7 @@ published: true
 ---
 ![Teaching](/images/Jing 9.jpg)
 
-Do you wanna be a Doctor? A Lawyer? A Software Engineer? or even a Nurse? 
+Do you wanna be a Doctor? A Lawyer? A Software Engineer? or even a Nurse?   
 How about Teaching? May I see your hands...
 
 No takers? Why, Why, and more Why?
