@@ -19,9 +19,9 @@ And with the rise of Smart Machines, New Media Literacy, and everything being Gl
 Bums making **"Big Bucks"** just by uploading videos on YouTube. Single Mom's making a big splash in selling digital products across her country, and Senior Citizens still earning a few doughs through the **"Sharing Economy"**.   
 It makes you envision who in the right set of mind would even bother to go into teaching.
 
-Take Jing for instance. She's a cousin of my Mom but I treat her like my cousin because of our same age bracket. 
-Jing is supposed to be Lawyer but is now teaching and molding the minds of preschoolers.
-Jing can easily be an Entrepreneur of some sort knowing that our clan is blessed with lands and steady connections yet she would rather get her hands dirty on the Academy's chalk and blackboard.
+Take Jing for instance. She's a cousin of my Mom but I treat her like my cousin because of our same age bracket.   
+Jing is supposed to be Lawyer but is now teaching and molding the minds of preschoolers.   
+Jing can easily be an Entrepreneur of some sort knowing that our clan is blessed with lands and steady connections yet she would rather get her hands dirty on the Academy's chalk and blackboard.   
 Jing could travel the world, see different places and culture, still she stayed put in her hometown in Balayan Batangas and planted her roots in a school that has captured her heart for more than 10 years.
 
 My curiosity led me to Jing's house to precisely get accurate inputs.  In the end... Jing is not after the money, nor prestige, not even accelerate her career or put up her own school in the future. 
