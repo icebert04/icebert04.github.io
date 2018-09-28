@@ -33,7 +33,7 @@ And still have an abundant time to exercise (like Running), meet her friends, an
 Jing travels during the summer and surprisingly has ample time as an Educator.  
 
 I remembered asking her **"Aren't Teachers supposed to be Stressed"**? 
-"I never saw any tiny bit of it in you". 
+**"I never saw any tiny bit of it in you"**. 
 
 Jing is a Teacher. And she is loving every bit of it. She has ideal working hours. She creates her own Kingdom whenever she is in her classroom. And every day is like "Playing Day" for her and the kids. 
 
