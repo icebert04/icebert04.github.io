@@ -35,7 +35,8 @@ Jing travels during the summer and surprisingly has ample time as an Educator.
 I remembered asking her **"Aren't Teachers supposed to be Stressed"**? 
 **"I never saw any tiny bit of it in you"**. 
 
-Jing is a Teacher. And she is loving every bit of it. She has ideal working hours. She creates her own Kingdom whenever she is in her classroom. And every day is like "Playing Day" for her and the kids. 
+Jing is a Teacher. And she is loving every bit of it. She has ideal working hours. She creates her own Kingdom whenever she is in her classroom.   
+And every day is like **"Playing Day"** for her and the kids. 
 
 We drastically need a lot of Jing especially here in our country. So if you are thinking of a new career.... consider Teaching.
 It's the most rewarding job ever. You have the power and to a greater degree, the honor to shape the minds of the youth that will one day have the big ideas that can change the world.  
