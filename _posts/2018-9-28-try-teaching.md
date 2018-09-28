@@ -40,4 +40,5 @@ And every day is like **"Playing Day"** for her and the kids.
 
 We drastically need a lot of Jing especially here in our country.   
 So if you are thinking of a new career.... consider Teaching.   
-It's the most rewarding job ever. You have the power and to a greater degree, the honor to shape the minds of the youth that will one day have the big ideas that can change the world.  
+It's the most rewarding job ever.   
+You have the power and to a greater degree, the honor to shape the minds of the youth that will one day have the big ideas that can change the world.  
