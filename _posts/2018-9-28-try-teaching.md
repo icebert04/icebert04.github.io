@@ -8,7 +8,7 @@ How about Teaching? May I see your hands...
 
 No takers? Why, Why, and more Why?
 
-Being a Teacher is conceivably the Hardest, Most Underrated Job today. They are Underappreciated and Underpaid almost in every corner of the world. 
+Being a Teacher is conceivably the Hardest, Most Underrated Job today. They are Underappreciated and Underpaid almost in every corner of the world.   
 What makes it worse is Teachers experience high levels of daily stress (especially in public schools in the Philippines). 
 The Teacher-Student ratio is ridiculously absurd. And they carry this colossal obligation on graduating their students. 
 It's really a very tough job! 
