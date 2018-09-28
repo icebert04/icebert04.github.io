@@ -25,7 +25,7 @@ Jing can easily be an Entrepreneur of some sort knowing that our clan is blessed
 Jing could travel the world, see different places and culture, still she stayed put in her hometown in Balayan Batangas and planted her roots in a school that has captured her heart for more than 10 years.
 
 My curiosity led me to Jing's house to precisely get accurate inputs.   
-In the end... Jing is not after the money, nor prestige, not even accelerate her career or put up her own school in the future. 
+In the end... Jing is not after the money, nor prestige, not even accelerate her career or put up her own school in the future.   
 It's neither any of that. It just one thing.... her Passion. Her obsession with her students was the main point.  
 
 Jing's normal working day starts first with her kissing her lovely Mom goodbye. Then she rides on her Japanese Bike and transit roughly 50 meters from her house to her school. Teach her students from morning till afternoon. And still have an abundant time to exercise (like Running), meet her friends, and watch our local Tele-Novela prime time shows.
