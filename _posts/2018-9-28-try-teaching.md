@@ -16,7 +16,7 @@ Come to think of it, why are we paying the Educators of our Future Generations l
 It's totally unfair!
 
 And with the rise of Smart Machines, New Media Literacy, and everything being Globally Connected. You'll see multiple new sets of skills that never existed in the past.   
-Bums making **"Big Bucks"** just by uploading videos on YouTube. Single Mom's making a big splash in selling digital products across her country, and Senior Citizens still earning a few doughs through the **"Sharing Economy"**. 
+Bums making **"Big Bucks"** just by uploading videos on YouTube. Single Mom's making a big splash in selling digital products across her country, and Senior Citizens still earning a few doughs through the **"Sharing Economy"**.   
 It makes you envision who in the right set of mind would even bother to go into teaching.
 
 Take Jing for instance. She's a cousin of my Mom but I treat her like my cousin because of our same age bracket. 
