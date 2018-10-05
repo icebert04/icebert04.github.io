@@ -13,7 +13,7 @@ And when we die and go to Heaven, we will get our pass through the gates and be 
 Then we will be called... **"Ordinary Souls"**!
 
 My friends from France are completely different. They choose to be not Ordinary. 
-Her name is Pauline. And the guy's name is Johan. She is a Real Estate Broker while He is a Life Guard. 
+Her name is Pauline. And the guy's name is Johan. She is a Real Estate Broker while He is a Life Guard.   
 She lives in Mont-de-Marsan. And He works in Bayonne. 
 Every weekend, Pauline travels 105 km from her place to Johan's beach for them to be reunited. 
 They make the most of their time and sleep in Johan's camper. They walked on the beach waiting for the sunset and have dinner by the bay. It's very romantic.... like what you see in the movies. 
