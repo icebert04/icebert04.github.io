@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Mirror](/images/French Love.jpg)
