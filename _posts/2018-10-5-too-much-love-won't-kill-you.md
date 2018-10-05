@@ -32,7 +32,7 @@ They are not rich. They don't own any big enterprise in France. They don't have 
 What they have is an **"Enlarge Heart"**. A guaranteed proof that when they die and meet their maker, they will not just enter the Gates of Heaven.... they will have a special kind of group specifically arranged for them... **"The Extra-Ordinary Souls"**!
 They will have special access to the Angels and exclusivity to talk and be with whoever they want. It's a reward for them for their small act that they did back on Earth.
 
-I am very much aware that France produces the most beautiful people in the world (2nd to the Philippines of course). 
+I am very much aware that France produces the most beautiful people in the world (2nd to the Philippines of course).   
 But this two friends of mine are both beautiful inside & out. I was so impressed that I specifically told my eldest Luigi that these kinds of people should be in his "Circle Of Friends". Their kindness will rub off on him and soon he might be like them.
 My son marrying a French Girl.... sure, why not? He's in good hands!
 
