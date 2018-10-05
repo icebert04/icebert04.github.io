@@ -10,7 +10,7 @@ My hats off to all of you. You demonstrate and present love to your loved ones a
 But nobody gets credit loving those people who dearly loves us. That part is so easy. It's automatic with not quite a challenge.   
 So in theory, we are all just categorized as... **"Ordinary"**!
 And when we die and go to Heaven, we will get our pass through the gates and be reunited with those who went before us.
-Then we will be called... "Ordinary Souls"!
+Then we will be called... **"Ordinary Souls"**!
 
 My friends from France are completely different. They choose to be not Ordinary. 
 Her name is Pauline. And the guy's name is Johan. She is a Real Estate Broker while He is a Life Guard. 
