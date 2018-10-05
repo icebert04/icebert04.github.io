@@ -30,7 +30,7 @@ Which makes them accelerate to another level. They are not just common people an
 
 The couples are classified as such because they don't brag, show-off, and display their endeavors on social media. They just give their Love whenever, wherever. 
 They are not rich. They don't own any big enterprise in France. They don't have fancy cars, shoes & pieces of jewelry.   
-What they have is an **"Enlarge Heart"**. A guaranteed proof that when they die and meet their maker, they will not just enter the Gates of Heaven.... they will have a special kind of group specifically arranged for them... **"The Extra-Ordinary Souls"**!
+What they have is an **"Enlarge Heart"**. A guaranteed proof that when they die and meet their maker, they will not just enter the Gates of Heaven.... they will have a special kind of group specifically arranged for them... **"The Extra-Ordinary Souls"**!   
 They will have special access to the Angels and exclusivity to talk and be with whoever they want. It's a reward for them for their small act that they did back on Earth.
 
 I am very much aware that France produces the most beautiful people in the world (2nd to the Philippines of course).   
