@@ -25,7 +25,7 @@ Johan, on the other hand, went to visit me in The Philippines. Then headed to Si
 One year after, Johan (this time, together with Pauline), went back to Manila with a big luggage along with their backpacks.
 When they open their hefty suitcase, it was full of gifts intentionally for the poor kids of Siargao. 
 They gave us **"Pasalubongs"** as well, being friends and all.   
-But the thing that really mattered is their desire to give... especially to the needy. The people who are total strangers to them.  Which makes them accelerate to another level. They are not just common people anymore... they are "Extra-Ordinary".  
+But the thing that really mattered is their desire to give... especially to the needy. The people who are total strangers to them.  Which makes them accelerate to another level. They are not just common people anymore... they are **"Extra-Ordinary"**.  
 
 The couples are classified as such because they don't brag, show-off, and display their endeavors on social media. They just give their Love whenever, wherever. 
 They are not rich. They don't own any big enterprise in France. They don't have fancy cars, shoes & pieces of jewelry. 
