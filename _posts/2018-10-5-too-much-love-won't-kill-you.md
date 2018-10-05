@@ -20,7 +20,7 @@ They make the most of their time and sleep in Johan's camper. They walked on the
 It's very romantic.... like what you see in the movies. 
 
 Their story is what people desire and long-for. Intimate Passion and Deeply in Love. They can just stop from there, die and go to Heaven just like Ordinary people.   
-But no, Pauline went to Senegal. Sponsored a child to get his education until he gets a professional degree. 
+But no, Pauline went to Senegal. Sponsored a child to get his education until he gets a professional degree.   
 Johan, on the other hand, went to visit me in The Philippines. Then headed to Siargao islands purposely to surf. 
 One year after, Johan (this time, together with Pauline), went back to Manila with a big luggage along with their backpacks.
 When they open their hefty suitcase, it was full of gifts intentionally for the poor kids of Siargao. 
