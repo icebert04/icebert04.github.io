@@ -40,6 +40,6 @@ My son marrying a French Girl.... sure, why not? He's in good hands!
 Everybody is blessed with a choice. We can live and die as Ordinary people or... be someone, making a change, and be an **"Extra-Ordinary"**.   
 The choice will rest upon us. The rewards are just there waiting... and Heaven is watching!   
 Don't be afraid people. Try to look yourself in the mirror and see if you feel good.   
-Too Much Love Won't Kill You.....  In fact, it might even Save You! 
+Too Much Love Won't Kill You.....  In fact, it might even Save You! :)
 
 
