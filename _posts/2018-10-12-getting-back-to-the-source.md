@@ -17,7 +17,7 @@ Spend the night, then head to Boracay the next day. Go back after 5 days before 
 
 We are prepared to take the local public transport (Jeepneys or Tricycle) and stay in a 3-star hotel or inn. But when we landed in Kalibo Airport, Tito Allen was there together with his classy ride (The Volkswagen Beetle) eagerly waiting for us. Then we had a sumptuous lunch in Tita Christine home.   
 We rested a little, then our hosts took us for a tour of Kalibo. 
-The St. Jude Thaddeus Parish, where the property that is sitting on was donated by our family. We saw my grandfather's name (Col. Leandro R. Isberto) enshrined in the town's Plaza as a tribute to the Freedom Fighters who fought in the War. 
+The St. Jude Thaddeus Parish, where the property that is sitting on was donated by our family. We saw my grandfather's name (Col. Leandro R. Isberto) enshrined in the town's Plaza as a tribute to the Freedom Fighters who fought in the War.   
 Accommodation and Food were all arranged and being taken care of during our stay in my Lolo's ancestral home. I've never seen such hospitality in a blooming place like Kalibo.
 
 Security, Peace & Order was prodigious and shocking. You can basically stay out on the street at night without getting mugged. Any lady will be safe walking alone in the dark in this place.   
