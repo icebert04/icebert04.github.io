@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Source](/images/Kalibo.jpg)
