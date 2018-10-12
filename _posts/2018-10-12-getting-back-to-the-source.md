@@ -28,7 +28,8 @@ We didn't know that it was a **"Phenomenon"**. The place is jampacked with hungr
 Cars, Tricycle, Scooters were parked beside the joint basically for one purpose... those juicy Burgers.   
 Heck, even the manager of Jollibee was there ordering the patties that are better than their Burger Yum and Champ. 
 
-But the main thing is not the food, the booze, nor the places that we've been. It's getting to know our blood. My kids got to know first hand that their relatives in Kalibo have (in some way) the same characteristics as them. The Isberto's are very simple, humble, and down to earth kind of people. We came from a line of Educators, Teachers, Principals, and Writers. 
+But the main thing is not the food, the booze, nor the places that we've been. It's getting to know our blood. My kids got to know first hand that their relatives in Kalibo have (in some way) the same characteristics as them. The Isberto's are very simple, humble, and down to earth kind of people.   
+We came from a line of Educators, Teachers, Principals, and Writers. 
 Most of our relatives have a strong inclination for learning. They don't want to be stagnant and desired to be mentored by skilled individuals and share those skills mentoring others. 
 
 When we got back to Manila. My children have a deeper perception about who they are. And as they grow older, they will be carrying the torch handed over by one Isberto generation to another. 
