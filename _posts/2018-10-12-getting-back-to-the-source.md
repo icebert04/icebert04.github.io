@@ -32,8 +32,8 @@ But the main thing is not the food, the booze, nor the places that we've been. I
 We came from a line of Educators, Teachers, Principals, and Writers. 
 Most of our relatives have a strong inclination for learning. They don't want to be stagnant and desired to be mentored by skilled individuals and share those skills mentoring others. 
 
-When we got back to Manila. My children have a deeper perception about who they are. And as they grow older, they will be carrying the torch handed over by one Isberto generation to another. 
-They found out that their genes are so much greater than "Concerts & Instagram Stories"! 
+When we got back to Manila. My children have a deeper perception about who they are. And as they grow older, they will be carrying the torch handed over by one Isberto generation to another.   
+They found out that their genes are so much greater than **"Concerts & Instagram Stories"**! 
 
 30 years from now, my children and the surplus iGen of Isberto will be staying from different places both here and abroad. 
 Those who come to know Kalibo will surely go back to that small town and they will be next in line to educate and enlighten their kids. 
