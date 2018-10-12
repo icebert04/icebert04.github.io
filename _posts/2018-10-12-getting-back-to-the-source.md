@@ -5,7 +5,7 @@ published: true
 
 Kids of this day and age regular past time are going to concerts, uploading Instagram stories, and spending a lot of time on their phone like their life depends on it.   
 And as normal parents, we let our kids do some of those. We have to let them lose and allow them to join this so-called group that they adequately call the **"Z Generation"** or the **"iGen"**.
-But us Dinosaurs want to present our kids of things that are a little bit extinct to their "Millenial Vocabulary".   
+But us Dinosaurs want to present our kids of things that are a little bit extinct to their **"Millenial Vocabulary"**.   
 Things like playing the musical instrument, the outdoor Patintero, and spending time with nature. We the Prehistoric ones grew up playing in the sand & the mud while the iGen kids now play Candy Crush, Temple Run and other phone games.    
 
 So we implanted some of what we have to our children's everyday routine. We have to bring in more History, Moral Fiber, Integrity, and getting to know the Origin of where did they belong. That is why I decided to bring my kids back to the Source. The place of my Grandfather and his ancestors before him.... a place called Kalibo.
