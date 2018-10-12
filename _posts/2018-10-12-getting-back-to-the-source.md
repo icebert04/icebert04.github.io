@@ -38,7 +38,8 @@ They found out that their genes are so much greater than **"Concerts & Instagram
 30 years from now, my children and the surplus iGen of Isberto will be staying from different places both here and abroad.   
 Those who come to know Kalibo will surely go back to that small town and they will be next in line to educate and enlighten their kids. 
 
-There is no better gift than getting back to the Source. Me and my kids have been blessed with it. I do hope that you do too. And I promise you, you will definitely treasure it from your generation to the next. 
+There is no better gift than getting back to the Source. Me and my kids have been blessed with it.   
+I do hope that you do too. And I promise you, you will definitely treasure it from your generation to the next. 
 
 
  
