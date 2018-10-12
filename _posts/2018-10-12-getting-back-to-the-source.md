@@ -21,7 +21,7 @@ The St. Jude Thaddeus Parish, where the property that is sitting on was donated 
 Accommodation and Food were all arranged and being taken care of during our stay in my Lolo's ancestral home. I've never seen such hospitality in a blooming place like Kalibo.
 
 Security, Peace & Order was prodigious and shocking. You can basically stay out on the street at night without getting mugged. Any lady will be safe walking alone in the dark in this place.   
-One proof is that we had a few beers as a nightcap with Tito Allen and his brother-in-law (who happens to be the Mayor of Malinao) on the street. It was so quiet and peaceful out there. No wonder, Kalibo is known as one of the safest place in our country today.  
+One proof is that we had a few beers as a nightcap with Tito Allen and his brother-in-law Tito Ariel(who happens to be the Mayor of Malinao) on the street. It was so quiet and peaceful out there. No wonder, Kalibo is known as one of the safest place in our country today.  
 
 My eldest son won't forget Tito Allen's burger joint (Taft St.) When Tito Allen told us that they are selling burgers to the locals, we assumed that it was just a small grill on the street with an outdoor umbrella.   
 We didn't know that it was a **"Phenomenon"**. The place is jampacked with hungry people patiently waiting for their orders.
