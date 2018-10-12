@@ -8,7 +8,8 @@ And as normal parents, we let our kids do some of those. We have to let them los
 But us Dinosaurs want to present our kids of things that are a little bit extinct to their **"Millenial Vocabulary"**.   
 Things like playing the musical instrument, the outdoor Patintero, and spending time with nature. We the Prehistoric ones grew up playing in the sand & the mud while the iGen kids now play Candy Crush, Temple Run and other phone games.    
 
-So we implanted some of what we have to our children's everyday routine. We have to bring in more History, Moral Fiber, Integrity, and getting to know the Origin of where did they belong. That is why I decided to bring my kids back to the Source. The place of my Grandfather and his ancestors before him.... a place called Kalibo.
+So we implanted some of what we have to our children's everyday routine. We have to bring in more History, Moral Fiber, Integrity, and getting to know the Origin of where did they belong.   
+That is why I decided to bring my kids back to the Source. The place of my Grandfather and his ancestors before him.... a place called Kalibo.
 
 The idea was to tell my kids that we are going to the white sand beach of Boracay for a week. Little did they know that it was just the "Icing on the Cake". The real deal is to bring them to our roots. 
 Before the trip, I called my Tita Christine & Tito Allen (direct niece & nephew of my Grandfather). I told them that I want our kids to see them and get to know them. I mentioned that it was just a stopping point and I don't want to bother them. Spend the night, then head to Boracay the next day. Go back after 5 days before our next flight back to Manila.
