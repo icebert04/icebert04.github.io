@@ -25,7 +25,7 @@ One proof is that we had a few beers as a nightcap with Tito Allen and his broth
 
 My eldest son won't forget Tito Allen's burger joint (Taft St.) When Tito Allen told us that they are selling burgers to the locals, we assumed that it was just a small grill on the street with an outdoor umbrella.   
 We didn't know that it was a **"Phenomenon"**. The place is jampacked with hungry people patiently waiting for their orders.
-Cars, Tricycle, Scooters were parked beside the joint basically for one purpose... those juicy Burgers.
+Cars, Tricycle, Scooters were parked beside the joint basically for one purpose... those juicy Burgers.   
 Heck, even the manager of Jollibee was there ordering the patties that are better than their Burger Yum and Champ. 
 
 But the main thing is not the food, the booze, nor the places that we've been. It's getting to know our blood. My kids got to know first hand that their relatives in Kalibo have (in some way) the same characteristics as them. The Isberto's are very simple, humble, and down to earth kind of people. We came from a line of Educators, Teachers, Principals, and Writers. 
