@@ -12,7 +12,8 @@ So we implanted some of what we have to our children's everyday routine. We have
 That is why I decided to bring my kids back to the Source. The place of my Grandfather and his ancestors before him.... a place called Kalibo.
 
 The idea was to tell my kids that we are going to the white sand beach of Boracay for a week. Little did they know that it was just the "Icing on the Cake".   
-The real deal is to bring them to our roots.  Before the trip, I called my Tita Christine & Tito Allen (direct niece & nephew of my Grandfather). I told them that I want our kids to see them and get to know them. I mentioned that it was just a stopping point and I don't want to bother them. Spend the night, then head to Boracay the next day. Go back after 5 days before our next flight back to Manila.
+The real deal is to bring them to our roots.  Before the trip, I called my Tita Christine & Tito Allen (direct niece & nephew of my Grandfather). I told them that I want our kids to see them and get to know them. I mentioned that it was just a stopping point and I don't want to bother them.   
+Spend the night, then head to Boracay the next day. Go back after 5 days before our next flight back to Manila.
 
 We are prepared to take the local public transport (Jeepneys or Tricycle) and stay in a 3-star hotel or inn. But when we landed in Kalibo Airport, Tito Allen was there together with his classy ride (The Volkswagen Beetle) eagerly waiting for us. Then we had a sumptuous lunch in Tita Christine home. We rested a little, then our hosts took us for a tour of Kalibo. 
 The St. Jude Thaddeus Parish, where the property that is sitting on was donated by our family. We saw my grandfather's name (Col. Leandro R. Isberto) enshrined in the town's Plaza as a tribute to the Freedom Fighters who fought in the War. 
