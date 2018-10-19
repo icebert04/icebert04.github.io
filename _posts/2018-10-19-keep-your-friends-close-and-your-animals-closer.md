@@ -36,7 +36,7 @@ I don't know what's stopping me from buying a Horse. My kids will surely enjoy n
 If you don't have a place or your province is too far.... you may have the option to help the endangered animals like the Bohol's Tarsier, Davao's Philippine Eagle, or Palawan's Pangolin.
 
 
-So there, your family loves you and your friends are always there for you. But your life would even be happier if you let the animals (your or not) be a part of your life even just for a few minutes of your time. 
+So there, your family loves you and your friends are always there for you. But your life would even be happier if you let the animals (your or not) be a part of your life even just for a few minutes of your time.   
 If you let them in, you will be kinder and more understanding of everything that is front of you. 
 Stress won't penetrate you when you got your Furry pals to protect you. They are such adorable loving creatures that they are so hard to resist. A true friend that you can truly rely on.
 So keep your Friends close, but keep your Animals even closer.
