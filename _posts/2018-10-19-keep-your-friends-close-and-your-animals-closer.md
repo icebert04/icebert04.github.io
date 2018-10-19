@@ -31,7 +31,7 @@ These pets taught me not to be choosy and accept whoever... humans and animals a
 3.) **GET OUT OF THE BOX**   
 => Don't think that domesticated pets are limited to your house in the city. Don't limit yourself to dogs, cats, and goldfish only.   
 Everyone has a province to go to. You can have a farm animal in your province for you and your family. 
-I used to be a Hog Contract Grower with Monterey Foods Corp. Our pigs served their purpose but it's not the ideal thing that I want. 
+I used to be a Hog Contract Grower with Monterey Foods Corp. Our pigs served their purpose but it's not the ideal thing that I want.   
 I want a companion, a buddy, and a friend. And not just slaughtering animals.   
 I don't know what's stopping me from buying a Horse. My kids will surely enjoy not only riding but bonding with him. How about at Sulcata Tortoise... that seems cool!  
 If you don't have a place or your province is too far.... you may have the option to help the endangered animals like the Bohol's Tarsier, Davao's Philippine Eagle, or Palawan's Pangolin.
