@@ -19,7 +19,7 @@ Ash, my cousin's black Labrador, was once my Jogging partner last summer. Rainy 
 A few days ago, I came by my cousin's house and there was Ash barking, shouting, aggressively jumping like saying to me... "**Where have you been for a long time Pal... I've missed you!**" 
 They are the most affectionate creatures I've ever known.
 
-2.) DON'T BE CHOOSY
+2.) **DON'T BE CHOOSY**
 => I used to be a Dog breeder before. So when I need a new pet, I always buy the ones with a good breed with an exceptional pedigree from a reputable kennel.
 Now it's different. I accept whatever breed, whatever animals that comes my way. 
 My wife's aunt gave us a Siamese kitten. That kitten has been with us for more than 5 years now. She doesn't catch rats and mice but she is an excellent acrobat and gymnast who does her regular stunt on our railing. Our cat Nia impresses me and my guests whenever we go for a drink in her so-called sanctuary. 
