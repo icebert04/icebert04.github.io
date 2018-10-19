@@ -1,4 +1,6 @@
 ---
-published: true
+published: false
 ---
 ![Pets](/images/Animals Closer.jpg)
+
+Closer
