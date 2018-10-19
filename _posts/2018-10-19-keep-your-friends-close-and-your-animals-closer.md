@@ -13,7 +13,7 @@ God created them for a purpose. Let's make them worthwhile.
 Here's why we should give more value and time to our forgotten furry friends...
 
 1.) **THEY LOVE YOU MATTER WHAT** 
-=> Try not to attend to your friend's birthday party. What do you think the outcome would look like? Pretty bad, isn't it? Your friend would probably unfriend you on Facebook and you will be a total outcast.
+=> Try not to attend to your friend's birthday party. What do you think the outcome would look like? Pretty bad, isn't it? Your friend would probably unfriend you on Facebook and you will be a total outcast.   
 Now, leave your pet behind for a month... or maybe two. What do you think that outcome will be? Yes, you got it right. Your pets will come running towards you to give their hugs and kisses. Your crimes are forgiven the minute they laid their eyes on you. 
 Ash, my cousin's black Labrador, was once my Jogging partner last summer. Rainy days came and I never saw Ash.
 A few days ago, I came by my cousin's house and there was Ash barking, shouting, aggressively jumping like saying to me... "Where have you been for a long time Pal... I've missed you!" 
