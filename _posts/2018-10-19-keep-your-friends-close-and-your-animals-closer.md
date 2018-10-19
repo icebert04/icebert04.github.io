@@ -20,7 +20,7 @@ A few days ago, I came by my cousin's house and there was Ash barking, shouting,
 They are the most affectionate creatures I've ever known.
 
 2.) **DON'T BE CHOOSY**
-=> I used to be a Dog breeder before. So when I need a new pet, I always buy the ones with a good breed with an exceptional pedigree from a reputable kennel.
+=> I used to be a Dog breeder before. So when I need a new pet, I always buy the ones with a good breed with an exceptional pedigree from a reputable kennel.   
 Now it's different. I accept whatever breed, whatever animals that comes my way. 
 My wife's aunt gave us a Siamese kitten. That kitten has been with us for more than 5 years now. She doesn't catch rats and mice but she is an excellent acrobat and gymnast who does her regular stunt on our railing. Our cat Nia impresses me and my guests whenever we go for a drink in her so-called sanctuary. 
 Our dog was even more of a surprise. He came out of nowhere. We were planning to buy a Pug but got a mixed breed dog from San Pablo Laguna. My Tito Norman & Tita Josie's dog gave birth to 6 pups... one of them is "Pablo", our dog.
