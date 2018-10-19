@@ -28,7 +28,7 @@ Our dog was even more of a surprise. He came out of nowhere. We were planning to
 That dog immediately became our kid's best friend. My boys spent more time outdoors because of him. His energy inspires us to live our lives more to the fullest.   
 These pets taught me not to be choosy and accept whoever... humans and animals alike. It's a gift directly given to you from the one who created you.
 
-3.) **GET OUT OF THE BOX**
+3.) **GET OUT OF THE BOX**   
 => Don't think that domesticated pets are limited to your house in the city. Don't limit yourself to dogs, cats, and goldfish only.   
 Everyone has a province to go to. You can have a farm animal in your province for you and your family. 
 I used to be a Hog Contract Grower with Monterey Foods Corp. Our pigs served their purpose but it's not the ideal thing that I want. 
