@@ -3,7 +3,7 @@ published: true
 ---
 ![Pets](/images/Animals Closer.jpg)
 
-Our world is filled with love through our creator, our immediate family, our friends, and even our furry little creatures we consider as pets.
+Our world is filled with love through our creator, our immediate family, our friends, and even our furry little creatures we consider as pets.   
 Animals play an important role in many people's lives. They provide us companionship with emotional support. 
 Our pets reduce our stress levels, our anxieties, and help us with our self-esteem and create a positive emotional development.
 Humans and Animals have always been interdependent but somehow we tend to forget them. We put them in cages and chains. From a family member to an abandoned beast.
