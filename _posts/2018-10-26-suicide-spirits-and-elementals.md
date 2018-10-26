@@ -11,7 +11,7 @@ You then followed his request and make your way towards the tree.
 From there you will see a lady underneath the branch of the tree... hanged by the rope she tied that same night.
 Death by hanging... Creepy isn't it?
 
-Well, that exactly happened to me a few years back in my province in Batangas. Our staff, who were a couple, had a fight the night before the suicide, and the wife just gave up on life and hang herself.
+Well, that exactly happened to me a few years back in my province in Batangas. Our staff, who were a couple, had a fight the night before the suicide, and the wife just gave up on life and hang herself.   
 Trust me, with all the Scary Train rides and Horror Houses that I've been in... nothing came close to this one. A real human being, with her eyes wide like she is almost staring at you.
 
 Even if my Third Eye was acutely passive, I still hear, feel, and sense spirits and other unexplainable things. Whether I'm driving all alone at night, or me working in front of my computer in the wee hours of the morning... I felt them passing through. 
