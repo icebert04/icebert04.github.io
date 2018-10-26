@@ -20,8 +20,8 @@ I do my best not to entertain them because when I do... we all know that is not 
 
 Anybody encountered a **"Tikbalang"** or a creature that is demi-human, half horse and half man? Yeah, I had those too.   
 For those who don't believe me... I then dare you to go to that place, start cursing the creature that I've mentioned, and you will experience first hand what I am talking about.   
-Those **"Tabi-Tabi po"** or **"Pardon me for Passing through"** are just signs of gesture and permission specifically for the elemental creatures that were existing even before Christianity came along. 
-The "Nuno sa Punso" or "Old Man of the Mound" is a dwarf-like nature spirit that is believed to live in an anthill and other isolated areas. 
+Those **"Tabi-Tabi po"** or **"Pardon me for Passing through"** are just signs of gesture and permission specifically for the elemental creatures that were existing even before Christianity came along.   
+The **"Nuno sa Punso"** or **"Old Man of the Mound"** is a dwarf-like nature spirit that is believed to live in an anthill and other isolated areas. 
 They are a lot of them actually, we just ignore them or scared to know that they truly exist.
 
 I am writing this piece not because to scare you but to provide you "Awareness & Acceptance" that these spirits, ghost, and elementals were God's creation too.  We need to give them respect and give them space in a world that we don't entirely fully owned. 
