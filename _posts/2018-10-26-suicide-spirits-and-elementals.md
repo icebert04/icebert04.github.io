@@ -31,7 +31,8 @@ We need to give them respect and give them space in a world that we don't entire
 What I am giving to my 2 boys right now is the deeper understanding that we are not the only ones living in this one cosmos terrene.   
 And most of all, I am teaching them to Respect all God's creation... both the living and the dead. That loving nature does not end in the ocean, mountains and the trees.
 
-This Halloween and the upcoming Feast of All Souls, beyond the candies and treats, outside the limits of the family clan gathering and parties.... let's not forget the souls that we've loved during their time here on earth. We commemorate their life and contribution and we pray for their souls. 
+This Halloween and the upcoming Feast of All Souls, beyond the candies and treats, outside the limits of the family clan gathering and parties.... let's not forget the souls that we've loved during their time here on earth.   
+We commemorate their life and contribution and we pray for their souls. 
 
 But let's not stop from there. The Suicide, Spirits, and Elementals.... let's take away our fear for a moment. Let your curiosity intrigue your rapacious mind. 
 Why are there here? What is their purpose? Etcetera, etcetera...
