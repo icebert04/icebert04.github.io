@@ -4,8 +4,8 @@ published: true
 ![Spirits](/images/Suicide Hanging 2.jpg)
 
 
-Imagine yourself taking a vacation in a serene place where there are lots of trees, favorable weather, and all the organic food that you can eat.
-Later that evening, the forest insects will make the night chirping sounds that will be your lullaby to sleep.
+Imagine yourself taking a vacation in a serene place where there are lots of trees, favorable weather, and all the organic food that you can eat.   
+Later that evening, the forest insects will make the night chirping sounds that will be your lullaby to sleep.   
 Then suddenly, somebody will intrude your sleep and wake you at 2:30 am. Crying, mourning, and begging you to come out to the tree that he is pointing at. 
 You then followed his request and make your way towards the tree. From there you will see a lady underneath the branch of the tree... hanged by the rope she tied that same night.
 Death by hanging... Creepy isn't it?
