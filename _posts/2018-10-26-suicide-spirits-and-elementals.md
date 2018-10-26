@@ -37,4 +37,5 @@ We commemorate their life and contribution and we pray for their souls.
 But let's not stop from there. The Suicide, Spirits, and Elementals.... let's take away our fear for a moment. Let your curiosity intrigue your rapacious mind.   
 Why are there here? What is their purpose? Etcetera, etcetera...
 
-If you do, you will discover that not all of them are scary evil. There are beings that are good too. Those who protect our nature and Mother Earth. Those beings that could even enlighten you and show you the true meaning of life.
+If you do, you will discover that not all of them are scary evil. There are beings that are good too. Those who protect our nature and Mother Earth.   
+Those beings that could even enlighten you and show you the true meaning of life.
