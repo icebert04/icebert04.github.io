@@ -7,7 +7,8 @@ published: true
 Imagine yourself taking a vacation in a serene place where there are lots of trees, favorable weather, and all the organic food that you can eat.   
 Later that evening, the forest insects will make the night chirping sounds that will be your lullaby to sleep.   
 Then suddenly, somebody will intrude your sleep and wake you at 2:30 am. Crying, mourning, and begging you to come out to the tree that he is pointing at. 
-You then followed his request and make your way towards the tree. From there you will see a lady underneath the branch of the tree... hanged by the rope she tied that same night.
+You then followed his request and make your way towards the tree.   
+From there you will see a lady underneath the branch of the tree... hanged by the rope she tied that same night.
 Death by hanging... Creepy isn't it?
 
 Well, that exactly happened to me a few years back in my province in Batangas. Our staff, who were a couple, had a fight the night before the suicide, and the wife just gave up on life and hang herself.
