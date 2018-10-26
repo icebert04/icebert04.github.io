@@ -18,7 +18,7 @@ Even if my Third Eye was acutely passive, I still hear, feel, and sense spirits 
 Whether I'm driving all alone at night, or me working in front of my computer in the wee hours of the morning... I felt them passing through. 
 I do my best not to entertain them because when I do... we all know that is not the end of it. 
 
-Anybody encountered a "Tikbalang" or a creature that is demi-human, half horse and half man? Yeah, I had those too. 
+Anybody encountered a **"Tikbalang"** or a creature that is demi-human, half horse and half man? Yeah, I had those too.   
 For those who don't believe me... I then dare you to go to that place, start cursing the creature that I've mentioned, and you will experience first hand what I am talking about. 
 Those "Tabi-Tabi po" or "Pardon me for Passing through" are just signs of gesture and permission specifically for the elemental creatures that were existing even before Christianity came along. 
 The "Nuno sa Punso" or "Old Man of the Mound" is a dwarf-like nature spirit that is believed to live in an anthill and other isolated areas. 
