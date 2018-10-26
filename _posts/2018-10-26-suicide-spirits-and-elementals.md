@@ -14,7 +14,8 @@ Death by hanging... Creepy isn't it?
 Well, that exactly happened to me a few years back in my province in Batangas. Our staff, who were a couple, had a fight the night before the suicide, and the wife just gave up on life and hang herself.   
 Trust me, with all the Scary Train rides and Horror Houses that I've been in... nothing came close to this one. A real human being, with her eyes wide like she is almost staring at you.
 
-Even if my Third Eye was acutely passive, I still hear, feel, and sense spirits and other unexplainable things. Whether I'm driving all alone at night, or me working in front of my computer in the wee hours of the morning... I felt them passing through. 
+Even if my Third Eye was acutely passive, I still hear, feel, and sense spirits and other unexplainable things.   
+Whether I'm driving all alone at night, or me working in front of my computer in the wee hours of the morning... I felt them passing through. 
 I do my best not to entertain them because when I do... we all know that is not the end of it. 
 
 Anybody encountered a "Tikbalang" or a creature that is demi-human, half horse and half man? Yeah, I had those too. 
