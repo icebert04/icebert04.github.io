@@ -27,7 +27,7 @@ They are a lot of them actually, we just ignore them or scared to know that they
 I am writing this piece not because to scare you but to provide you **"Awareness & Acceptance"** that these spirits, ghost, and elementals were God's creation too.   
 We need to give them respect and give them space in a world that we don't entirely fully owned. 
 
-**"Trick Or Treat"** was nice! Getting the chocolates & candies and all that. But my two children are way beyond that. 
+**"Trick Or Treat"** was nice! Getting the chocolates & candies and all that. But my two children are way beyond that.   
 What I am giving to my 2 boys right now is the deeper understanding that we are not the only ones living in this one cosmos terrene.   
 And most of all, I am teaching them to Respect all God's creation... both the living and the dead. That loving nature does not end in the ocean, mountains and the trees.
 
