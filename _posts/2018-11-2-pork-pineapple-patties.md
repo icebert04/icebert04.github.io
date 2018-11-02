@@ -3,7 +3,7 @@ published: true
 ---
 ![Grill](/images/PPP 10.jpg)
 
-The long Semestral break vacation is almost over. My two boys are starting to feel the end of it. Petrified of getting back to reality.... the act of going back to school.
+The long Semestral break vacation is almost over. My two boys are starting to feel the end of it. Petrified of getting back to reality.... the act of going back to school.   
 No matter how hard I tried to persuade my kids that school is satisfying and commendable, their desire for a long vacation often beats my persuasion. 
 They are like the rest of the normal kids.... dreading for homework, assignments, projects, and exams. I don't want them to grow up afraid of Mondays and so eager to get to Payday Friday.
 So I need to do the unthinkable and do something unique and different but at the same time effective.
