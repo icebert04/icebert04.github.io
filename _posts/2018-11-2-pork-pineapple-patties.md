@@ -24,8 +24,8 @@ You may think that using ground pork instead of ground beef would be verboten in
 The pineapples were the **"Kicker"**! The pork and the pineapple complement each other that you don't need to apply other seasonings such as catsup and mayonnaise. 
 It's amazing to think that we mixed it up and did something that doesn't really fit in the traditional, classic burger spectrum. 
 
-After eating 2 whole burgers, my children begged and exactly asked this phrase... "Can we do this again Daddy"?
-I said...  "Sure, we can add this to your regular BORING school day". "I just like to remind you that school time is not as bad as vacation time as long as we have activities such as this".
+After eating 2 whole burgers, my children begged and exactly asked this phrase... **"Can we do this again Daddy"**?   
+I said...  **"Sure, we can add this to your regular BORING school day"**. **"I just like to remind you that school time is not as bad as vacation time as long as we have activities such as this"**.
 My boys nodded with a smile and concurred all the things that I said. 
 
 The Pork Pineapple Patties and The Grilling Bonding time did the trick! Now, my kids are not afraid of school anymore. 
