@@ -9,7 +9,8 @@ They are like the rest of the normal kids.... dreading for homework, assignments
 So I need to do the unthinkable and do something unique and different but at the same time effective.
 
 People often say that a way through a man's heart is through his stomach. Maybe that could do the trick.   
-My wife always does the cooking and my kids often love her dishes. But this time, it's my turn to put on my magic sleeves. I want them to be not afraid of school, Mondays, and make every weekday as happy as their beloved long vacation.
+My wife always does the cooking and my kids often love her dishes. But this time, it's my turn to put on my magic sleeves.   
+I want them to be not afraid of school, Mondays, and make every weekday as happy as their beloved long vacation.
 
 So I went to market early in the morning to buy pork, pineapple, and other stuff that I will be needing for my **"Convincing Action program"**. Then I told them this... **"Boys, today we'll go outdoors and we will GRILL"**!   
 They were not that excited at first. But when they started smelling the charcoal, the juice of the patties that we were grilling, and the role that they were playing... they became active and energetic.   
