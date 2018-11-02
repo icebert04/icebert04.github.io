@@ -13,7 +13,7 @@ My wife always does the cooking and my kids often love her dishes. But this time
 
 So I went to market early in the morning to buy pork, pineapple, and other stuff that I will be needing for my **"Convincing Action program"**. Then I told them this... **"Boys, today we'll go outdoors and we will GRILL"**!   
 They were not that excited at first. But when they started smelling the charcoal, the juice of the patties that we were grilling, and the role that they were playing... they became active and energetic.   
-Everyone had a role in this... I made the patties that are mixed with garlic, salt, pepper, cumin, and some oyster mushroom leftover. 
+Everyone had a role in this... I made the patties that are mixed with garlic, salt, pepper, cumin, and some oyster mushroom leftover.   
 My wife did the caramelized sauce and the mandarin juice. 
 My eldest Luigi took care of the base cooking. He made sure that the charcoal is well lit up and maintained consistent heat for the duration of the grilling. 
 Lorenzo, my youngest, was in charge of buttering the pineapples.   
