@@ -28,6 +28,6 @@ After eating 2 whole burgers, my children begged and exactly asked this phrase..
 I said...  **"Sure, we can add this to your regular BORING school day"**. **"I just like to remind you that school time is not as bad as vacation time as long as we have activities such as this"**.
 My boys nodded with a smile and concurred all the things that I said. 
 
-The Pork Pineapple Patties and The Grilling Bonding time did the trick! Now, my kids are not afraid of school anymore. 
+The Pork Pineapple Patties and The Grilling Bonding time did the trick! Now, my kids are not afraid of school anymore.   
 And when they have their own families sometime in the future, and their wives got the flu, and their children are like newborn nests birds opening their beak as a sign of hunger..... my 2 boys will only have to refresh their memory that they can easily go outdoors and just GRILL!  
 
