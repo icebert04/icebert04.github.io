@@ -21,7 +21,7 @@ It was a complete family activity.  We got to talk a lot more when we are out. T
 
 Then came the best part... time to eat our end product. Everyone was delighted with the **"Pork Pineapple Patties"** that we all made.   
 You may think that using ground pork instead of ground beef would be verboten in burgerland, but it's just as flavorful and juicy as beef. 
-The pineapples were the "Kicker"! The pork and the pineapple complement each other that you don't need to apply other seasonings such as catsup and mayonnaise. 
+The pineapples were the **"Kicker"**! The pork and the pineapple complement each other that you don't need to apply other seasonings such as catsup and mayonnaise. 
 It's amazing to think that we mixed it up and did something that doesn't really fit in the traditional, classic burger spectrum. 
 
 After eating 2 whole burgers, my children begged and exactly asked this phrase... "Can we do this again Daddy"?
