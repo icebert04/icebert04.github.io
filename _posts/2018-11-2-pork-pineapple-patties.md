@@ -19,7 +19,8 @@ My eldest Luigi took care of the base cooking. He made sure that the charcoal is
 Lorenzo, my youngest, was in charge of buttering the pineapples.   
 It was a complete family activity.  We got to talk a lot more when we are out. Their phones, tablets, and gaming devices were all out of sight. It was just us and the patties that we were cooking.
 
-Then came the best part... time to eat our end product. Everyone was delighted with the "Pork Pineapple Patties" that we all made. You may think that using ground pork instead of ground beef would be verboten in burgerland, but it's just as flavorful and juicy as beef. 
+Then came the best part... time to eat our end product. Everyone was delighted with the **"Pork Pineapple Patties"** that we all made.   
+You may think that using ground pork instead of ground beef would be verboten in burgerland, but it's just as flavorful and juicy as beef. 
 The pineapples were the "Kicker"! The pork and the pineapple complement each other that you don't need to apply other seasonings such as catsup and mayonnaise. 
 It's amazing to think that we mixed it up and did something that doesn't really fit in the traditional, classic burger spectrum. 
 
