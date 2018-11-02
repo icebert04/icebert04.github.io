@@ -8,7 +8,7 @@ No matter how hard I tried to persuade my kids that school is satisfying and com
 They are like the rest of the normal kids.... dreading for homework, assignments, projects, and exams. I don't want them to grow up afraid of Mondays and so eager to get to Payday Friday.
 So I need to do the unthinkable and do something unique and different but at the same time effective.
 
-People often say that a way through a man's heart is through his stomach. Maybe that could do the trick.
+People often say that a way through a man's heart is through his stomach. Maybe that could do the trick.   
 My wife always does the cooking and my kids often love her dishes. But this time, it's my turn to put on my magic sleeves. I want them to be not afraid of school, Mondays, and make every weekday as happy as their beloved long vacation.
 
 So I went to market early in the morning to buy pork, pineapple, and other stuff that I will be needing for my "Convincing Action program". Then I told them this... "Boys, today we'll go outdoors and we will GRILL"! 
