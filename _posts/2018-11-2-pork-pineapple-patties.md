@@ -17,7 +17,7 @@ So I went to market early in the morning to buy pork, pineapple, and other stuff
 They were not that excited at first. But when they started smelling the charcoal, the juice of the patties that we were grilling, and the role that they were playing... they became active and energetic.   
 Everyone had a role in this... I made the patties that are mixed with garlic, salt, pepper, cumin, and some oyster mushroom leftover.   
 My wife did the caramelized sauce and the mandarin juice. 
-My eldest Luigi took care of the base cooking. He made sure that the charcoal is well lit up and maintained consistent heat for the duration of the grilling. 
+My eldest Luigi took care of the base cooking. He made sure that the charcoal is well lit up and maintained consistent heat for the duration of the grilling.   
 Lorenzo, my youngest, was in charge of buttering the pineapples.   
 It was a complete family activity.  We got to talk a lot more when we are out. Their phones, tablets, and gaming devices were all out of sight. It was just us and the patties that we were cooking.
 
