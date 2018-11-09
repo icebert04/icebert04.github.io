@@ -24,7 +24,7 @@ Sure, the influence of their parents made a huge impact on their enthusiasm in f
 In fact, these new generations have the potential to be greater than their predecessors. They won't just be farmers taking care of their land.   
 They will be considered entrepreneurs and businessmen, eliminating the **"Greedy Middlemen"** that used to kill and sabotage the small farms of the locals in the most province. 
 
-The new generation will innovate sustainable agriculture and food security. Make their crops and livestock more disaster resilient and better cross-border collaboration. 
+The new generation will innovate sustainable agriculture and food security. Make their crops and livestock more disaster resilient and better cross-border collaboration.   
 Armed with social media marketing skills and useful mobile application, the new batch of farmers will handle everything from the source, the end product, marketing, innovating, packaging, and even exporting to other countries. 
 
 I'm glad I'm able to know these family. They help me get a good source of cacao trees seedlings for my tree planting project. We share the same vision and passion for developing agri-business aggressively. 
