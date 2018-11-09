@@ -31,5 +31,5 @@ I'm glad I'm able to know these family. They help me get a good source of cacao 
 We share the same vision and passion for developing agri-business aggressively. 
 We are in the same vicinity of sharing light and wisdom to our children that even though some of them won't be fully pledged farmers... the desire will always be there. 
 
-I don't mind me being deprived of having a daughter. Whenever I visit Rosario Batangas to get my cacao seedlings, these 2 little beautiful farmers will be more than enough to fill that hole.   
+I don't mind me being deprived of not having a daughter. Whenever I visit Rosario Batangas to get my cacao seedlings, these 2 little beautiful farmers will be more than enough to fill that hole.   
 From one old farmer to the new.... a better and more improved agriculturalist that will someday feed the whole country.
