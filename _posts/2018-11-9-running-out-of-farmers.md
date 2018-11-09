@@ -16,7 +16,8 @@ These twins go roving around their property doing all kinds of farm activity. Th
 A lot of activities for these 3-year olds munchkins. And on top of that, they are enjoying every piece of it. 
 
 The sisters, even with their very young age, balance their time and their farm activity with other interest and pursuit such as swimming, artwork projects and pre-school. 
-The twins travel when they need to... back to the city or outside the country.  But their heart obviously belongs to the farm. Getting their hands dirty, seeing different kinds of birds & insects, and walking barefoot makes them feel more connected to the earth.
+The twins travel when they need to... back to the city or outside the country.   
+But their heart obviously belongs to the farm. Getting their hands dirty, seeing different kinds of birds & insects, and walking barefoot makes them feel more connected to the earth.
 
 Sure, the influence of their parents made a huge impact on their enthusiasm in farming but these are exactly what we need to our economy and our country.... lots of little farmers just like them. 
 
