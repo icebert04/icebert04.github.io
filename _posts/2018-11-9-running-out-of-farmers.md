@@ -11,7 +11,8 @@ The younger generation, who saw their parents grow old and poor in farming, do n
 
 When a new generation refuses to farm, who will feed the people? 
 
-In comes the new batch! In a small municipality in the province of Batangas lived these cute little girls. They stay most of their time on their farm. These twins go roving around their property doing all kinds of farm activity. The girls water most the plants and tree seedlings. Cut and trim leaves & grasses. Do a few farm chores and also play and get accustomed to their farm animals. 
+In comes the new batch! In a small municipality in the province of Batangas lived these cute little girls. They stay most of their time on their farm.   
+These twins go roving around their property doing all kinds of farm activity. The girls water most the plants and tree seedlings. Cut and trim leaves & grasses. Do a few farm chores and also play and get accustomed to their farm animals. 
 A lot of activities for these 3-year olds munchkins. And on top of that, they are enjoying every piece of it. 
 
 The sisters, even with their very young age, balance their time and their farm activity with other interest and pursuit such as swimming, artwork projects and pre-school. 
