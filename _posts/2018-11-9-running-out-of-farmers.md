@@ -27,7 +27,8 @@ They will be considered entrepreneurs and businessmen, eliminating the **"Greedy
 The new generation will innovate sustainable agriculture and food security. Make their crops and livestock more disaster resilient and better cross-border collaboration.   
 Armed with social media marketing skills and useful mobile application, the new batch of farmers will handle everything from the source, the end product, marketing, innovating, packaging, and even exporting to other countries. 
 
-I'm glad I'm able to know these family. They help me get a good source of cacao trees seedlings for my tree planting project. We share the same vision and passion for developing agri-business aggressively. 
+I'm glad I'm able to know these family. They help me get a good source of cacao trees seedlings for my tree planting project.   
+We share the same vision and passion for developing agri-business aggressively. 
 We are in the same vicinity of sharing light and wisdom to our children that even though some of them won't be fully pledged farmers... the desire will always be there. 
 
 I don't mind me being deprived of having a daughter. Whenever I visit Rosario Batangas to get my cacao seedlings, these 2 little beautiful farmers will be more than enough to fill that hole. 
