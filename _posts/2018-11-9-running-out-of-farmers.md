@@ -3,7 +3,7 @@ published: true
 ---
 ![Young Farmers](/images/Kadrina 3.jpg)
 
-The Philippines is running out of farmers. It doesn't matter if we are blessed with different kinds of bodies of water, lands that are lush and fertile, and a climate that is favorable in growing various valued crops, livestock and farm animals.   
+The Philippines is running out of farmers. It doesn't matter if we are blessed with different kinds of bodies of water, lands that are lush and fertile, and a climate that is favorable in growing various valued crops, livestock, and farm animals.   
 All of that is worthless... without farmers, all of us will be dead soon.... in a matter of speaking!
 
 The country’s food security is at risk as millions of farmers and fishermen are getting too old (average age of 57) for what is back-breaking work and their children are not keen on taking over.   
