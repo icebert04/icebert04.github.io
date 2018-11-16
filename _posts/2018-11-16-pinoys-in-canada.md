@@ -9,7 +9,7 @@ and the country that I am highlighting today... The Great White North or also kn
 Still, we haven't lost touch to all of our friends and families who are now living in a place full of **"Skis and Snowboards"**.   
 Toronto, Brussels, Edmonton, Vancouver, Winnipeg, Montreal, Barrie, and even Whitehorse. I talked and communicated to each one of them and asked for advice about their place, work environment, the weather, cost of living, and even their most popular cuisine. 
 
-Canada has been the top destination for our fellow Filipinos to work and migrate in. On average, Canada received about more than 20,000 Filipino immigrants every year... making their country the 3rd most popular destination spot next to the United States and Saudi Arabia. 
+Canada has been the top destination for our fellow Filipinos to work and migrate in. On average, Canada received about more than 20,000 Filipino immigrants every year... making their country the 3rd most popular destination spot next to the United States and Saudi Arabia.   
 In just a few short decades, Canada’s Filipino community has grown from less than a thousand residents to become one of the country’s largest immigrant demographics. At present, more than 850,000 Filipinos call Canada home, and this number is increasing rapidly. 
 
 Like me, Filipinos see that there are endless reasons why someone would want to immigrate to Canada. For obvious reasons our "Kababayan" main targets are...
