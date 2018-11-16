@@ -13,15 +13,15 @@ Canada has been the top destination for our fellow Filipinos to work and migrate
 In just a few short decades, Canada’s Filipino community has grown from less than a thousand residents to become one of the country’s largest immigrant demographics.   
 At present, more than 850,000 Filipinos call Canada home, and this number is increasing rapidly. 
 
-Like me, Filipinos see that there are endless reasons why someone would want to immigrate to Canada. For obvious reasons our "Kababayan" main targets are...
+Like me, Filipinos see that there are endless reasons why someone would want to immigrate to Canada.   For obvious reasons our "Kababayan" main targets are...
 
-1.) Successful Migration with Full Family
-2.) Superior Education and Childcare system
-3.) Dual Citizen Allowed
-4.) Better Healthcare
-5.) Lesser Corruption
-6.) Low Crime Rates
-7.) Clean Natural Resources
+1.) Successful Migration with Full Family   
+2.) Superior Education and Childcare system   
+3.) Dual Citizen Allowed   
+4.) Better Healthcare   
+5.) Lesser Corruption   
+6.) Low Crime Rates   
+7.) Clean Natural Resources   
 8.) Ease of Internation Travel (Strong Passport)
 
 and most important of all...
