@@ -34,7 +34,8 @@ Most of the people that I know there are not only contented but totally happy an
 They say that Canada is likely the only place in the world where you can crash into someone, and they will apologize to you.   
 They are actually the **"Politest People"** ever existing on earth because they are all happy folks.
 
-These Filipino-Canadians are surprisingly still connected to our roots and our mother country. Even with better professional careers in Canada, they are still humbled and knows to "Lumingon sa Pinanggalingan" or Look back home. 
+These Filipino-Canadians are surprisingly still connected to our roots and our mother country.   
+Even with better professional careers in Canada, they are still humbled and knows to **"Lumingon sa Pinanggalingan"** or Look back home.   
 They also liked to be in touch and connected with their fellow Filipinos in the Philippines. 
 I know that for a fact because they do maintain communication with me and share an inspiring story or two. 
 
