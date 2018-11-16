@@ -5,8 +5,8 @@ published: true
 
 There are 2 countries that me and my family almost considered migrating in... Australia,   
 and the country that I am highlighting today... The Great White North or also known as the country of Canada!   Yes, we almost did. In fact, we picked the place that we want.... in Sudbury Ontario.   
-3 years after, we remained here in the Philippines and the thought of migrating has turned from a concrete decisive plan to just a past reflection. 
-Still, we haven't lost touch to all of our friends and families who are now living in a place full of "Skis and Snowboards".
+3 years after, we remained here in the Philippines and the thought of migrating has turned from a concrete decisive plan to just a past reflection.   
+Still, we haven't lost touch to all of our friends and families who are now living in a place full of **"Skis and Snowboards"**.   
 Toronto, Brussels, Edmonton, Vancouver, Winnipeg, Montreal, Barrie, and even Whitehorse. I talked and communicated to each one of them and asked for advice about their place, work environment, the weather, cost of living, and even their most popular cuisine. 
 
 Canada has been the top destination for our fellow Filipinos to work and migrate in. On average, Canada received about more than 20,000 Filipino immigrants every year... making their country the 3rd most popular destination spot next to the United States and Saudi Arabia. 
