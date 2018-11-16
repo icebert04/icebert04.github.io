@@ -28,10 +28,11 @@ and most important of all...
 
 9.) Numerous countless job opportunities for qualified and skilled immigrants. 
 
-I assumed before that these people (living in Canada) would be happy at first because of the better employment and business opportunities in the first few years, then be depressed 4-5 years after when the yearly "Brutally Cold Winters" takes in. I was wrong! 
-Most of the people that I know there are not only contented but totally happy and made their new country as their permanent home. 
-They say that Canada is likely the only place in the world where you can crash into someone, and they will apologize to you. 
-They are actually the "Politest People" ever existing on earth because they are all happy folks.
+I assumed before that these people (living in Canada) would be happy at first because of the better employment and business opportunities in the first few years, then be depressed 4-5 years after when the yearly **"Brutally Cold Winters"** takes in.   
+I was wrong!   
+Most of the people that I know there are not only contented but totally happy and made their new country as their permanent home.   
+They say that Canada is likely the only place in the world where you can crash into someone, and they will apologize to you.   
+They are actually the **"Politest People"** ever existing on earth because they are all happy folks.
 
 These Filipino-Canadians are surprisingly still connected to our roots and our mother country. Even with better professional careers in Canada, they are still humbled and knows to "Lumingon sa Pinanggalingan" or Look back home. 
 They also liked to be in touch and connected with their fellow Filipinos in the Philippines. 
