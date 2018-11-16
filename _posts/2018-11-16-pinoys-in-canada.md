@@ -39,10 +39,10 @@ Even with better professional careers in Canada, they are still humbled and know
 They also liked to be in touch and connected with their fellow Filipinos in the Philippines. 
 I know that for a fact because they do maintain communication with me and share an inspiring story or two. 
 
-Canada is considered one of the coldest countries in the whole world. They are known for its artic weather. The average monthly winter temperature can drop to -15°C even in the southern part of the country.
-It really gets so cold in the winter because it is also farther north than most countries. 
-But for some reason, I don't know why I continue to feel their warmth and sincerity even from a thousand miles from here.
-Whatever it is, all of them deserved our gratification and admiration. After all, we all share the same blood... Dugong Filipino!
-Bilib ako sa inyo mga kababayan kong Filipino naninirahan sa bansang Canada! 
+Canada is considered one of the coldest countries in the whole world. They are known for its artic weather. The average monthly winter temperature can drop to -15°C even in the southern part of the country.   
+It really gets so cold in the winter because it is also farther north than most countries.   
+But for some reason, I don't know why I continue to feel their warmth and sincerity even from a thousand miles from here.   
+Whatever it is, all of them deserved our gratification and admiration. After all, we all share the same blood... Dugong Filipino!   
+Bilib ako sa inyo mga kababayan kong Filipino naninirahan sa bansang Canada!   
 Para sa inyo po ito! 
 
