@@ -36,7 +36,7 @@ They are actually the **"Politest People"** ever existing on earth because they 
 
 These Filipino-Canadians are surprisingly still connected to our roots and our mother country.   
 Even with better professional careers in Canada, they are still humbled and knows to **"Lumingon sa Pinanggalingan"** or Look back home.   
-They also liked to be in touch and connected with their fellow Filipinos in the Philippines. 
+They also liked to be in touch and connected with their fellow Filipinos in the Philippines.   
 I know that for a fact because they do maintain communication with me and share an inspiring story or two. 
 
 Canada is considered one of the coldest countries in the whole world. They are known for its artic weather. The average monthly winter temperature can drop to -15°C even in the southern part of the country.   
