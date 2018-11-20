@@ -37,7 +37,7 @@ It gets them to talk to their friends and recommending them to their homey estab
 When customers go out to a restaurant for a meal, they go for the full experience, not just for the food itself.   
 They want to be treated and feel special, and the ambiance of an establishment most certainly contributes to these feelings. The right ambiance will allow customers to look around and enjoy themselves, and maybe even stay longer than they planned, simply because they want to soak in the atmosphere of the place. 
 
-Philane heard their wishes and did exactly that. She knows how people feel. She can anticipate their concerns way ahead of time. And she will give the best customer experience in any way she can. 
+Philane heard their wishes and did exactly that. She knows how people feel. She can anticipate their concerns way ahead of time. And she will give the best customer experience in any way she can.   
 In a world where most restaurants are like insects that die in a year or two... there stands Philane heavenly place that has been in existence for going for 4 years now. 
 
 "The restaurant is my baby", the humble owner quoted. 
