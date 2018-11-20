@@ -11,7 +11,7 @@ published: true
 
 It's a different world out there. Our ever-changing and chaotic world has made people always on the go and in a rush. They basically don't have time to savor the beauty of what we call life.   
 That also applies when they go out and dine. Customers just go to a restaurant, eat and leave.   
-I mean, what's the point of going out anyway if you're just there to munch your order like a vacuum machine sucking up all the food in a matter of minutes. 
+I mean, what's the point of going out anyway if you're just there to munch your order like a vacuum machine sucking up all the food in a matter of minutes.   
 Why don't we be like the French or the Spaniards? When they go out, they want to get the best quality of life by slowing it down. And when they slow down, they enjoy each and every experience they encounter.
 
 Sadly, the restaurants here in the Philippines are jampacked with hungry and noisy customers and that is the main reason why some people prefer to call food delivery or eat at home.   
