@@ -31,7 +31,7 @@ It's a perfect getaway and an incredible experience all bundled in one place.
 
 I got the chance to talk to Philane, the owner. I can see why the place is top-notch.   
 From the owner down to her 4 staff, you can feel that you are treated like a **"VIP client"** and not just one of the customers.   
-They take their time not only to provide an answer to their customer's needs and demands but also chat with them whenever possible. 
+They take their time not only to provide an answer to their customer's needs and demands but also chat with them whenever possible.   
 They see to it that all their customers get the best experience convincing the 1st timers to go back the 2nd, 3rd, and 4th time around. 
 It gets them to talk to their friends and recommending them to their homey establishment.
 
