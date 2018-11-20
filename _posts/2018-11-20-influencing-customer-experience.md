@@ -19,7 +19,7 @@ They are not simply getting the satisfaction that they crave for... The **"Ideal
 
 In a place somewhere in Parañaque lies a kind of restaurant that **"Listens"** to the outcry of every living customer.   
 The name of the place is Spoon eat + drink. The spot is perfect for the customers who are deeply craving for some peace and quiet. The ambiance will definitely take away the stress and will give a lasting serenity.   
-The diversified and contrasting exhibit material light bulbs, the lively ornamental plants, the wall design donated by the loyal customers, the bright lanterns, and their eye-catching antique fan will make you feel at ease and relax.
+The diversified and contrasting exhibit material light bulbs, the lively ornamental plants, the wall design donated by the loyal customers, the bright lanterns, and their eye-catching antique fan will make you feel at ease and relax.   
 Their classical and jazz music will even tranquilize you more. The owner and the staff main intention is for you to slow it down and enjoy that particular moment. 
 
 Then in comes the food. The Osso Buco bountiful marrow for merely Php 355 is more than reasonable. Be ready using the small spoons to get the full scoop out that luscious marrow. 
