@@ -40,5 +40,5 @@ They want to be treated and feel special, and the ambiance of an establishment m
 Philane heard their wishes and did exactly that. She knows how people feel. She can anticipate their concerns way ahead of time. And she will give the best customer experience in any way she can.   
 In a world where most restaurants are like insects that die in a year or two... there stands Philane heavenly place that has been in existence for going for 4 years now. 
 
-"The restaurant is my baby", the humble owner quoted. 
+**"The restaurant is my baby"**, the humble owner quoted.   
 It certainly is, Philane acted like the kindhearted mother to her restaurant, her staff, and most especially to her customers... who finally found the one thing that they are looking for.
