@@ -3,10 +3,10 @@ published: true
 ---
 ![Restaurant](/images/Spoon 2.jpg)
 
-"EAT OUT TUESDAY"
-Name of Restaurant: Spoon eat + drink
-Location: 319 Aguirre Avenue, BF Homes Parañaque City
-Best Seller: Osso Buco, Roast Chicken w/ smoked paprika grapes
+**"EAT OUT TUESDAY"**   
+Name of Restaurant: Spoon eat + drink   
+Location: 319 Aguirre Avenue, BF Homes Parañaque City   
+Best Seller: Osso Buco, Roast Chicken w/ smoked paprika grapes   
 What makes them unique: One of a kind ambiance
 
 It's a different world out there. Our ever-changing and chaotic world has made people always on the go and in a rush. They basically don't have time to savor the beauty of what we call life. 
