@@ -14,7 +14,8 @@ That also applies when they go out and dine. Customers just go to a restaurant, 
 I mean, what's the point of going out anyway if you're just there to munch your order like a vacuum machine sucking up all the food in a matter of minutes. 
 Why don't we be like the French or the Spaniards? When they go out, they want to get the best quality of life by slowing it down. And when they slow down, they enjoy each and every experience they encounter.
 
-Sadly, the restaurants here in the Philippines are jampacked with hungry and noisy customers and that is the main reason why some people prefer to call food delivery or eat at home. They are not simply getting the satisfaction that they crave for... The "Ideal Customer Experience"!
+Sadly, the restaurants here in the Philippines are jampacked with hungry and noisy customers and that is the main reason why some people prefer to call food delivery or eat at home.   
+They are not simply getting the satisfaction that they crave for... The **"Ideal Customer Experience"**!
 
 In a place somewhere in Parañaque lies a kind of restaurant that "Listens" to the outcry of every living customer. The name of the place is Spoon eat + drink. The spot is perfect for the customers who are deeply craving for some peace and quiet. The ambiance will definitely take away the stress and will give a lasting serenity.
 The diversified and contrasting exhibit material light bulbs, the lively ornamental plants, the wall design donated by the loyal customers, the bright lanterns, and their eye-catching antique fan will make you feel at ease and relax.
