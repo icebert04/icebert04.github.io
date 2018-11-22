@@ -3,7 +3,8 @@ published: true
 ---
 ![Homeschool](/images/Frannie Homeschool 9.jpg)
 
-Steve Jobs ($10.2 billion), Bill Gates ($96.4 billion), Mark Zuckerberg ($3.9 billion). What to do they have in common aside from being ridiculously rich?
+Steve Jobs ($10.2 billion), Bill Gates ($96.4 billion), Mark Zuckerberg ($3.9 billion).   
+What to do they have in common aside from being ridiculously rich?
 All of them are College dropouts.
 
 And they are not the only ones who became financially successful in life. 
