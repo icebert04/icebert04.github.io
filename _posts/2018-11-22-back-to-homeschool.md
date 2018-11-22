@@ -55,9 +55,10 @@ and my top 2 reasons...
 
 -----------------------------------------------------
 
+
 As of today, my cousin Frannie's elder children are now in college and just a few of them whom she homeschools. And seeing Frannie's elder children, I can see that they are right on track and on the proper course of their professional career or business. 
 
-My boys too are on the right pace. My eldest is into Web Development. Did a Family Tree website and is now preparing to build a business App for the SME. 
+My boys too are on the right pace. My eldest is into Web Development. Did a Family Tree website and is now preparing to build a business App for the SME.   
 He does laps 3 times a week, plays the Ukulele, and goes Aikido 2 times a week.
 With more free time, He wants to add more activities for next year.
 
