@@ -49,8 +49,9 @@ Before I continue, this how why we decided to go back to Homeschooling...
 
 and my top 2 reasons...
 
-9.) Focus on their skills & expertise
+9.) Focus on their skills & expertise   
 10.) Preparing for entrepreneurship
+
 
 -----------------------------------------------------
 
