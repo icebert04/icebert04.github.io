@@ -31,7 +31,7 @@ That's not only that, my cousin did have time to publish her own book in the pas
 "This is too good to be true" is what I said subconsciously. 
 "I have to go and check it out"! So I did, I went to Frannie during one of their soccer games in Ayala Alabang.
 
-It was like 3 in the afternoon, where her boys where playing out in the field while my sons are home buried with homework. 
+It was like 3 in the afternoon, where her boys where playing out in the field while my sons are home buried with homework.   
 That immediate occurrence was the final nail in the coffin. I went back to my wife and said... "Hon, let's homeschool our kids"! 
 
 Before I continue, this how why we decided to go back to Homeschooling...
