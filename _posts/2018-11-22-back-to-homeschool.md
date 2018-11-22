@@ -27,7 +27,7 @@ The elder kids have their own assigned chores and duties before they start their
 In the afternoon, they have a great amount of playtime and bonding with the family. Either it's soccer practice, cooking a new recipe with her daughters, or playing board games.   
 Their ordinary weekdays are like special weekends for you and me.
 
-That's not only that, my cousin did have time to publish her own book in the past that teaches her readers to manage their time and delegating tasks (Kind of like ME AND KATE PLUS 8). 
+That's not only that, my cousin did have time to publish her own book in the past that teaches her readers to manage their time and delegating tasks (Kind of like ME AND KATE PLUS 8).   
 "This is too good to be true" is what I said subconsciously. 
 "I have to go and check it out"! So I did, I went to Frannie during one of their soccer games in Ayala Alabang.
 
