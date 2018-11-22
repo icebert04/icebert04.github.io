@@ -64,7 +64,7 @@ With more free time, He wants to add more activities for next year.
 
 My youngest with Autism has dramatically improved because of our ways of educating him. He is now more sociable and is now engage in music and arts.  
 
-Homeschool is obviously not for everyone. But it's clearly indisputable that is something to really think about. 
+Homeschool is obviously not for everyone. But it's clearly indisputable that is something to really think about.   
 During the primitive era, young children were only taught at home to become good members of their tribe or band. 
 Education is designed to guide them in learning a culture, molding their behavior in the ways of adulthood, and directing them toward their eventual role in society.
 
