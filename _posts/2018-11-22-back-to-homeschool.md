@@ -36,15 +36,15 @@ That immediate occurrence was the final nail in the coffin. I went back to my wi
 
 Before I continue, this how why we decided to go back to Homeschooling...
 
-Benefits:
+**BENEFITS:**	
 
-1.) Dedicated teachers with an excellent teacher-to-student ratio. "Premium" Parenting more engaged.
-2.) More Family Time, Enjoy close family relationships
-3.) More time to pursue their hobbies and interest
-4.) Homeschooled kids have an easier time socializing to people of all ages
-5.) Get more sleep, no homework
-6.) Major concerns about the environment of traditional schools (drugs, bullies, & early pregnancies)
-7.) Getting into college with a great transcript with less stress and burnout
+1.) Dedicated teachers with an excellent teacher-to-student ratio. "Premium" Parenting more engaged.   
+2.) More Family Time, Enjoy close family relationships   
+3.) More time to pursue their hobbies and interest   
+4.) Homeschooled kids have an easier time socializing to people of all ages   
+5.) Get more sleep, no homework   
+6.) Major concerns about the environment of traditional schools (drugs, bullies, & early pregnancies)   
+7.) Getting into college with a great transcript with less stress and burnout   
 8.) Emphasize community involvement
 
 and my top 2 reasons...
