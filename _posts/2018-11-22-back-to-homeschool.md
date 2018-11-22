@@ -18,7 +18,7 @@ After knowing that our traditional school graduates are not getting the jobs tha
 Is there any other option???
 
 Then I saw my cousin Frannie...
-She's a housewife with 8 children. Wow! right? 
+She's a housewife with 8 children. Wow! right?   
 How was she able to manage 8 kids in one house?
 What is more amazing is she homeschools all of them. 
 
