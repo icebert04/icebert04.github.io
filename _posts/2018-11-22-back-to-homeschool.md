@@ -22,7 +22,8 @@ She's a housewife with 8 children. Wow! right?
 How was she able to manage 8 kids in one house?
 What is more amazing is she homeschools all of them. 
 
-Frannie starts her day making sure her husband is all suited up for work then prepares breakfast. The elder kids have their own assigned chores and duties before they start their school in the comforts of their home.
+Frannie starts her day making sure her husband is all suited up for work then prepares breakfast.   
+The elder kids have their own assigned chores and duties before they start their school in the comforts of their home.   
 In the afternoon, they have a great amount of playtime and bonding with the family. Either it's soccer practice, cooking a new recipe with her daughters, or playing board games. 
 Their ordinary weekdays are like special weekends for you and me.
 
