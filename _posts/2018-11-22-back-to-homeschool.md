@@ -68,7 +68,7 @@ Homeschool is obviously not for everyone. But it's clearly indisputable that is 
 During the primitive era, young children were only taught at home to become good members of their tribe or band. 
 Education is designed to guide them in learning a culture, molding their behavior in the ways of adulthood, and directing them toward their eventual role in society.
 
-As society becomes ever more complex and schools become ever more institutionalized, the educational experience becomes less directly related to daily life, less a matter of showing and learning in the context of the workaday world, and more abstracted from practice, more a matter of distilling, telling, and learning things out of context.
+As society becomes ever more complex and schools become ever more institutionalized, the educational experience becomes less directly related to daily life, less a matter of showing and learning in the context of the workaday world, and more abstracted from practice, more a matter of distilling, telling, and learning things out of context.   
 They produce more workers and employees rather than owners and businessmen. I know exactly know why the Finns developed their educational system and are probably one of the best education in the world.
 
 More parents are going back to homeschool. They know what value it can bring to their child. 
