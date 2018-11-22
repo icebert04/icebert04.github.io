@@ -14,7 +14,7 @@ It's either these people are great or our traditional school is lagging behind i
 So in order to get an analysis on this, I asked a few of my classmates in La Salle on how far did they go after school. Some did okay, while some are struggling. But only a few of them really made it big time. 
 
 It really got me into thinking... where should I enroll my children? 
-After knowing that our traditional school graduates are not getting the jobs that they want. It bears down on us with a lot of uncertainty.
+After knowing that our traditional school graduates are not getting the jobs that they want. It bears down on us with a lot of uncertainty.   
 Is there any other option???
 
 Then I saw my cousin Frannie...
