@@ -24,7 +24,7 @@ What is more amazing is she homeschools all of them.
 
 Frannie starts her day making sure her husband is all suited up for work then prepares breakfast.   
 The elder kids have their own assigned chores and duties before they start their school in the comforts of their home.   
-In the afternoon, they have a great amount of playtime and bonding with the family. Either it's soccer practice, cooking a new recipe with her daughters, or playing board games. 
+In the afternoon, they have a great amount of playtime and bonding with the family. Either it's soccer practice, cooking a new recipe with her daughters, or playing board games.   
 Their ordinary weekdays are like special weekends for you and me.
 
 That's not only that, my cousin did have time to publish her own book in the past that teaches her readers to manage their time and delegating tasks (Kind of like ME AND KATE PLUS 8). 
