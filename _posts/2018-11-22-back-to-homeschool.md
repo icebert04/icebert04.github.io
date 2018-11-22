@@ -38,7 +38,8 @@ Before I continue, this how why we decided to go back to Homeschooling...
 
 **BENEFITS:**	
 
-1.) Dedicated teachers with an excellent teacher-to-student ratio. **"Premium Parenting"** more engaged.   
+1.) Dedicated teachers with an excellent teacher-to-student ratio.   
+**"Premium Parenting"** more engaged.   
 2.) More Family Time, Enjoy close family relationships   
 3.) More time to pursue their hobbies and interest   
 4.) Homeschooled kids have an easier time socializing to people of all ages   
