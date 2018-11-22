@@ -71,5 +71,5 @@ Education is designed to guide them in learning a culture, molding their behavio
 As society becomes ever more complex and schools become ever more institutionalized, the educational experience becomes less directly related to daily life, less a matter of showing and learning in the context of the workaday world, and more abstracted from practice, more a matter of distilling, telling, and learning things out of context.   
 They produce more workers and employees rather than owners and businessmen. I know exactly know why the Finns developed their educational system and are probably one of the best education in the world.
 
-More parents are going back to homeschool. They know what value it can bring to their child. 
+More parents are going back to homeschool. They know what value it can bring to their child.   
 If you want to know more about the beauty of Homeschool, go and talk to my cousin Frannie. She is just there playing soccer in the field with her kids.
