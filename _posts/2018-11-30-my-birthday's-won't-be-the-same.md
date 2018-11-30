@@ -25,10 +25,10 @@ Buying her Bratz dolls collecter's edition and obeying her request to fill our a
 Roberta was loved by everybody in the family. And she loved each and every one of us. 
 My sister's influence was greatly felt by everyone. But what is more impressive later in her lifetime was how she became close to a bunch of different groups which to most is impossible to overcome. 
 
-Roberta is very important in my life... and her life was cut short drastically. People say that we have to move on with our lives but how can you proceed when you lose somebody that is so dear to you?
-You can keep going... I'm aware of that. But the "Pain will always Remain".
+Roberta is very important in my life... and her life was cut short drastically. People say that we have to move on with our lives but how can you proceed when you lose somebody that is so dear to you? 
+You can keep going... I'm aware of that. But the **"Pain will always Remain"**.   
 It's like a deep hole in your heart that stays with you forever. 
-I think everybody from all parts of the world will never get used to it... the dreaded "Death and Loss"!
+I think everybody from all parts of the world will never get used to it... the dreaded **"Death and Loss"**!
 
 Tomorrow, I will be receiving birthday greetings. And I will celebrate it with them. After all, a birthday signifies your beginning and the joy of life. It is an important and momentous occasion not to be understated. It is a time to celebrate, reflect and give thanks.
 
