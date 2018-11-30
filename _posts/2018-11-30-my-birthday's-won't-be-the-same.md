@@ -14,7 +14,7 @@ She died at an early age of 26.
 We never got the chance to see her full potential using her skills and talents. 
 Her angelic singing voice, her baking skills, and the **"Cheeky Bone"** smile that melts everybody's heart. 
 
-To those who are not aware, my sister Roberta Marie Martinez, was an accident. She is not planned to be born in this world. 
+To those who are not aware, my sister Roberta Marie Martinez, was an accident. She is not planned to be born in this world.   
 My Mom was past her prime and to her to get pregnant again will be critically dangerous. But somehow, Roberta managed to sneak into our arms. 
 For the past 26 years, she was our "Singing Doll", amusing and delighting our guests whenever we have occasions at home which is unusually frequent.
 
