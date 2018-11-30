@@ -47,7 +47,7 @@ That changed when my sister showed up in my dreams and advised me this...
 
 I will always love you, my Dearest Sister! You will always be my Inspiration! 
 
-P.S. => I will never be as good as you but lately I've been practicing the Ukulele hoping to inspire people with our charming music!
+P.S. => I will never be as good as you, but lately I've been practicing the Ukulele hoping to inspire people with our charming music!
 
 
 
