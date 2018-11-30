@@ -39,9 +39,9 @@ That is exactly how I am going to treat my birthday tomorrow until the day I die
 Commemorating the life of my sister and putting in action on what can I do significantly in my lifetime. 
 I have to use more of my skills and talents. I should voluntarily contribute more to this world. And learn to be selfish for a change and enjoy life every minute and every hour. 
 
-My Life and Birthdays won't ever be the same again. My outlook is totally different.
+My Life and Birthdays won't ever be the same again. My outlook is totally different.   
 That changed when my sister showed up in my dreams and advised me this... 
-"One Life, No Regrets"!
+**"One Life, No Regrets"**!
 
 I will always love you, my Dearest Sister! You will always be my Inspiration! 
 
