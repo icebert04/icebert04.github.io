@@ -9,7 +9,7 @@ But tomorrow, I'll be giving more attention to another more special occasion... 
 
 When I was young, it was all about receiving gifts and goodies. As I grew older, it turned to parties, booze, and yes more parties.   
 But since last year, I had a different perspective on celebrating my birthday.  
-Although, I will be celebrating my birthday with my loved ones, close relatives and friends... deep inside, I'll be reminiscing the life of my sister. 
+Although, I will be celebrating my birthday with my loved ones, close relatives and friends... deep inside, I'll be reminiscing the life of my sister.   
 She died at an early age of 26. 
 We never got the chance to see her full potential using her skills and talents. 
 Her angelic singing voice, her baking skills, and the **"Cheeky Bone"** smile that melts everybody's heart. 
