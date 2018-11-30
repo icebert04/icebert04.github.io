@@ -3,8 +3,8 @@ published: true
 ---
 ![Birthday](/images/TMsKitchen.jpg)
 
-Tomorrow is my birthday! 
-December 1 to some people is about "World AIDS Day". Some are feeling excited because it's the first day of Christmas month.
+Tomorrow is my birthday!   
+**December 1** to some people is about **"World AIDS Day"**. Some are feeling excited because it's the first day of Christmas month.   
 But tomorrow, I'll be giving more attention to another more special occasion... the day my Youngest Sister passed away. 
 
 When I was young, it was all about receiving gifts and goodies. As I grew older, it turned to parties, booze, and yes more parties.
