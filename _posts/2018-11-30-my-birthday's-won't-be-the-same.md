@@ -18,8 +18,9 @@ To those who are not aware, my sister Roberta Marie Martinez, was an accident. S
 My Mom was past her prime and to her to get pregnant again will be critically dangerous. But somehow, Roberta managed to sneak into our arms. 
 For the past 26 years, she was our **"Singing Doll"**, amusing and delighting our guests whenever we have occasions at home which is unusually frequent.
 
-Being the **"Bunso"** or youngest of the siblings, my sister always gets the biggest share of the pie.
-I don't mind! In fact, I was one of them who spoils her enormously. 
+Being the **"Bunso"** or youngest of the siblings, my sister always gets the biggest share of the pie.   
+I don't mind!   
+In fact, I was one of them who spoils her enormously. 
 Bringing her to Enchanted Kingdom and Louie's THX Cinema most of the time.  
 Buying her Bratz dolls collecter's edition and obeying her request to fill our aquarium with Goldfish 2 to 3 times a week (she kills them by some unknown reason).   
 Roberta was loved by everybody in the family. And she loved each and every one of us. 
