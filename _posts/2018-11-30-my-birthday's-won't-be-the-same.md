@@ -7,12 +7,12 @@ Tomorrow is my birthday!
 **December 1** to some people is about **"World AIDS Day"**. Some are feeling excited because it's the first day of Christmas month.   
 But tomorrow, I'll be giving more attention to another more special occasion... the day my Youngest Sister passed away. 
 
-When I was young, it was all about receiving gifts and goodies. As I grew older, it turned to parties, booze, and yes more parties.
+When I was young, it was all about receiving gifts and goodies. As I grew older, it turned to parties, booze, and yes more parties.   
 But since last year, I had a different perspective on celebrating my birthday.  
 Although, I will be celebrating my birthday with my loved ones, close relatives and friends... deep inside, I'll be reminiscing the life of my sister. 
 She died at an early age of 26. 
 We never got the chance to see her full potential using her skills and talents. 
-Her angelic singing voice, her baking skills, and the "Cheeky Bone" smile that melts everybody's heart. 
+Her angelic singing voice, her baking skills, and the **"Cheeky Bone"** smile that melts everybody's heart. 
 
 To those who are not aware, my sister Roberta Marie Martinez, was an accident. She is not planned to be born in this world. 
 My Mom was past her prime and to her to get pregnant again will be critically dangerous. But somehow, Roberta managed to sneak into our arms. 
