@@ -38,7 +38,7 @@ It is an important and momentous occasion not to be understated. It is a time to
 But the bigger question for me is **"What contribution do I have in my birth"**?   
 My sister Roberta, without a doubt, made a big contribution to her lifetime. 
 That is exactly how I am going to treat my birthday tomorrow until the day I die.   
-Commemorating the life of my sister and putting in action on what can I do significantly in my lifetime. 
+Commemorating the life of my sister and putting in action on what can I do significantly in my lifetime.   
 I have to use more of my skills and talents. I should voluntarily contribute more to this world. And learn to be selfish for a change and enjoy life every minute and every hour. 
 
 My Life and Birthdays won't ever be the same again. My outlook is totally different.   
