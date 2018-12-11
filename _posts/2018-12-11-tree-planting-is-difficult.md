@@ -11,7 +11,7 @@ The plan is to sell these products and the proceeds of those would go to the tre
 Our assumption was if one was to buy 1 box then they get to adopt 1 cacao seedling named after them. 
 It was a great plan!
 
-So our first aim was to go to Facebook. With me having more than 1,400 friends in FB, we assumed that we can get 1,000 trees at the very least. 
+So our first aim was to go to Facebook. With me having more than 1,400 friends in FB, we assumed that we can get 1,000 trees at the very least.   
 I was confident that they will support this project because after all, it is for our environment. Self-assured and upbeat, I'm convinced enough nothing could ever go wrong. 
 So I started sending out my invites to each one of them through FB Messenger.
 And to my dismay, for every 1 supporter that I got, there are like 20 of them that is a No.  They didn't even bother to respond to my message like I am one stranger selling vacuum cleaners at their front door.
