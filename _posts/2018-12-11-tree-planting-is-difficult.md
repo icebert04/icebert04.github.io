@@ -30,9 +30,9 @@ Could anyone define Irony to me, please...
 That is life ladies and gents! Life is cruel! And what it makes more cruel is that you don't get love from the people you are supposed to get it from. You get more of it from strangers.  
 We do have our small closely knit circle of family & friends who we can totally depend on. But you also got to rely on the strangers. They can be your extended family that you can now depend on nowadays.
 
-Today, I am armed with a great number of strangers who have helped me in a lot of ways (Does Friendillion ring a bell?).
+Today, I am armed with a great number of strangers who have helped me in a lot of ways (Does Friendillion ring a bell?).   
 My Facebook is starting to become interesting because of that. Gaining new friends and getting inspiration from most of them. 
-The more strangers I get to know, the stronger I get to become. It is like the "Crusades" or building "Noah's Ark". You gather them and let them in your circle of trust.
+The more strangers I get to know, the stronger I get to become. It is like the **"Crusades"** or building **"Noah's Ark"**. You gather them and let them in your circle of trust.
 My Tree Planting project is just one of them. I'm sure, I will build a good and lasting relationship with these strangers whom we will both benefit reciprocally. 
 
 Every now and then, I get to see my strangers contribution whenever I check on the tree seedlings whom we both planted. There are only a few trees planted so far but it is slowly gaining ground. 
