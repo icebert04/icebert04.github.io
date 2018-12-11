@@ -16,7 +16,7 @@ So our first aim was to go to Facebook. With me having more than 1,400 friends i
 I was confident that they will support this project because after all, it is for our environment. Self-assured and upbeat, I'm convinced enough nothing could ever go wrong.   
 So I started sending out my invites to each one of them through FB Messenger.
 And to my dismay, for every 1 supporter that I got, there are like 20 of them that is a No.  They didn't even bother to respond to my message like I am one stranger selling vacuum cleaners at their front door.   
-It was devastating! It could not acknowledge these so-called families, relatives, and friends would suddenly be aloof and detached.
+It was devastating! It could not acknowledge these so-called families, relatives, and friends would suddenly be aloof and detached.   
 I was thinking of giving up on the project. It is not a money making project, therefore, making it a waste of time. I could just move on with other things.
 
 But then, messages came pouring in. Order of boxes was given to us little by little. And to our surprise, these came from an unexpected source... From the Strangers!   
