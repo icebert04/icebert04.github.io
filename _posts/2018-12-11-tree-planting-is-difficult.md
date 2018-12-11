@@ -39,7 +39,7 @@ Every now and then, I get to see my strangers contribution whenever I check on t
 I like to take this opportunity to say thank you to those who supported me in this cause. Your mark will not only stay with me forever but you also gave something back to our dwindling nature.
 You gave me inspiration to not only continue but to influence others to do projects like these.   
  
-I have nothing against those people who did not support the project. I'm sure they have their reason. But once in a while, I'll try to ring their doorbell through writing articles like this that hopefully might change their mind today, tomorrow, next week, next month, next year or in the next lifetime.
+I have nothing against those people who did not support the project. I'm sure they have their reason. But once in a while, I'll try to ring their doorbell through writing articles like this that hopefully might change their mind today, tomorrow, next week, next month, next year or in the next lifetime.   
 Whatever it takes! I'll be relentless as hell!
 
 Like life, Tree Planting is really difficult! People hearts now are made of stone (rough around the edges). It takes a lifetime to make them see it through.
