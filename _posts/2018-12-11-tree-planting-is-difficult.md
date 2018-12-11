@@ -18,7 +18,7 @@ And to my dismay, for every 1 supporter that I got, there are like 20 of them th
 It was devastating! It could not acknowledge these so-called families, relatives, and friends would suddenly be aloof and detached.
 I was thinking of giving up on the project. It is not a money making project, therefore, making it a waste of time. I could just move on with other things.
 
-But then, messages came pouring in. Order of boxes was given to us little by little. And to our surprise, these came from an unexpected source... From the Strangers! 
+But then, messages came pouring in. Order of boxes was given to us little by little. And to our surprise, these came from an unexpected source... From the Strangers!   
 Yes, we got orders and support from strangers, new acquaintances, and the unexpected ones.  Like Jennelyn, the unemployed housewife from Balayan who got 3 boxes. Or from Allan, my former neighbor in Pasig, who ordered 4 boxes who until now haven't got the boxes from us.  
 My newly acquainted neighbors Myrna and Maritizi in Merville, whom I recently delivered fruits from Davao, got 4 boxes each.
 The list goes on and on. 
