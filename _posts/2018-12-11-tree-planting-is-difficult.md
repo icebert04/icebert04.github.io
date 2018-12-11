@@ -3,9 +3,8 @@ published: true
 ---
 ![Tree](/images/New FB Proposal 2.jpg)
 
-I want to do something good to give back into this world. I want to be humanitarian to our Mother Nature who has been genuine to us from generations to generations. 
-So I decided to go Tree Planting. Hoping that in this way I'll be able to "Boost Climate Adaptation". 
-I choose Cacao Tree above the rest because according to study, most experts fear there will be a cacao shortage by 2050. And it is more than mandatory to do engage in this battle to save the world's favorite treat... Our beloved Chocolate!
+I want to do something good to give back into this world. I want to be humanitarian to our Mother Nature who has been genuine to us from generations to generations.   
+So I decided to go Tree Planting. Hoping that in this way I'll be able to **"Boost Climate Adaptation"**. I choose Cacao Tree above the rest because according to study, most experts fear there will be a cacao shortage by 2050. And it is more than mandatory to do engage in this battle to save the world's favorite treat... Our beloved Chocolate!
 
 So me and my wife got some cacao beans. Made products made from the said beans and did Dark Chocolate bars, Protein Balls, and Vegan Brownies. Some were borderline satisfactory edible and some were pretty amazing. 
 The plan is to sell these products and the proceeds of those would go to the tree planting project in my province in Balayan Batangas. 
