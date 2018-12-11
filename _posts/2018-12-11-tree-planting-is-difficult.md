@@ -23,8 +23,8 @@ Yes, we got orders and support from strangers, new acquaintances, and the unexpe
 My newly acquainted neighbors Myrna and Maritizi in Merville, whom I recently delivered fruits from Davao, got 4 boxes each.
 The list goes on and on. 
 
-It came to my senses that the reason why most people didn't even bother to respond to my invite, was because of me entirely.  For some unexplainable reason, they simply don't have faith in me.
-While these strangers and new acquaintance don't really know me. They just ordered the boxes because they believe in the project.
+It came to my senses that the reason why most people didn't even bother to respond to my invite, was because of me entirely.  For some unexplainable reason, they simply don't have faith in me.   
+While these strangers and new acquaintance don't really know me. They just ordered the boxes because they believe in the project.   
 Could anyone define Irony to me, please...
 
 That is life ladies and gents! Life is cruel! And what it makes more cruel is that you don't get love from the people you are supposed to get it from. You get more of it from strangers.  
