@@ -42,6 +42,6 @@ You gave me inspiration to not only continue but to influence others to do proje
 I have nothing against those people who did not support the project. I'm sure they have their reason. But once in a while, I'll try to ring their doorbell through writing articles like this that hopefully might change their mind today, tomorrow, next week, next month, next year or in the next lifetime.   
 Whatever it takes! I'll be relentless as hell!
 
-Like life, Tree Planting is really difficult! People hearts now are made of stone (rough around the edges). It takes a lifetime to make them see it through.
-But that won't stop me. Someday, somewhere, somehow... I'll make their No into a YES!  
+Like life, Tree Planting is really difficult! People hearts now are made of stone (rough around the edges). It takes a lifetime to make them see it through.   
+But that won't stop me. Someday, somewhere, somehow... I'll make their No into a **YES**!  
 
