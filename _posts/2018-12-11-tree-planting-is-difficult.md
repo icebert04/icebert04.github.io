@@ -35,7 +35,7 @@ My Facebook is starting to become interesting because of that. Gaining new frien
 The more strangers I get to know, the stronger I get to become. It is like the **"Crusades"** or building **"Noah's Ark"**. You gather them and let them in your circle of trust.
 My Tree Planting project is just one of them. I'm sure, I will build a good and lasting relationship with these strangers whom we will both benefit reciprocally. 
 
-Every now and then, I get to see my strangers contribution whenever I check on the tree seedlings whom we both planted. There are only a few trees planted so far but it is slowly gaining ground. 
+Every now and then, I get to see my strangers contribution whenever I check on the tree seedlings whom we both planted. There are only a few trees planted so far but it is slowly gaining ground.   
 I like to take this opportunity to say thank you to those who supported me in this cause. Your mark will not only stay with me forever but you also gave something back to our dwindling nature.
 You gave me inspiration to not only continue but to influence others to do projects like these.   
  
