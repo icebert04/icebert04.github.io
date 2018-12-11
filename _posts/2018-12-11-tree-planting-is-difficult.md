@@ -21,7 +21,7 @@ I was thinking of giving up on the project. It is not a money making project, th
 
 But then, messages came pouring in. Order of boxes was given to us little by little. And to our surprise, these came from an unexpected source... From the Strangers!   
 Yes, we got orders and support from strangers, new acquaintances, and the unexpected ones.  Like Jennelyn, the unemployed housewife from Balayan who got 3 boxes. Or from Allan, my former neighbor in Pasig, who ordered 4 boxes who until now haven't got the boxes from us.  
-My newly acquainted neighbors Myrna and Maritizi in Merville, whom I recently delivered fruits from Davao, got 4 boxes each.
+My newly acquainted neighbors Myrna and Maritizi in Merville, whom I recently delivered fruits from Davao, got 4 boxes each.   
 The list goes on and on. 
 
 It came to my senses that the reason why most people didn't even bother to respond to my invite, was because of me entirely.  For some unexplainable reason, they simply don't have faith in me.   
