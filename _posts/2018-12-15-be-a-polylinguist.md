@@ -27,7 +27,7 @@ Así que me inscribí en el Instituto Cervantes de Manila para aprender el idiom
 日本（本質的）でそれが約1億3000万人の住民により話されるだけであるので、Nihongoは、分離された言語である。
 それは本当にレコードの多少である。しかし、それらの国がそんなに興味をそそるので、私達が話すと私がそれらの方法を学んでいる理由である。
 
-TAGALOG:
+**TAGALOG:**   
 Eto na yata ang pinaka-napabayaang salita nating mga Filipino. Nakakalungkot isipin na karamihan na ating mga kababayan na naninirahan sa ibang bansa ay hindi na nagsasalita ng ating wika. 
 Ako ay Filipino! Mahal ko ang aking bansa at aking mga kababayan. Kaya tungkulin ko na turuan ang aking mga anak na hindi lang mahalin ang ating wika pero gamitin din ito sa araw araw.
 Ang wikang Tagalog ang pinaka-mahalagang wika sa akin kahit na matuto pa ako ng ibang dayuhang salita.
