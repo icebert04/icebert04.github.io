@@ -3,11 +3,12 @@ published: true
 ---
 ![Language](/images/Polylinguist 2.png)
 
-How many languages do you speak? 1 or 2?
+How many languages do you speak? 1 or 2?   
 I, on the other hand, would want to learn a new language as much as possible. 
-To me, studying a foreign language feeds my brain. It helps me develop strong cognitive skills and improves my social interaction between peers (locals or foreign alike). International travel is made easier and more pleasant through knowing their country's language.
+To me, studying a foreign language feeds my brain.   
+It helps me develop strong cognitive skills and improves my social interaction between peers (locals or foreign alike). International travel is made easier and more pleasant through knowing their country's language.
 
-Instead of doing some dull things like posting selfies on social media, I spend more time acquiring new knowledge such as the potential of being a "Polylinguist"!
+Instead of doing some dull things like posting selfies on social media, I spend more time acquiring new knowledge such as the potential of being a **"Polylinguist"**!
 
 So, without further ado, here are my spoken languages...
 
