@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-![Language](/images/Polylinguist 2.jpg)
+![Language](/images/Polylinguist 2.png)
 
 
 Kamusta
