@@ -16,7 +16,7 @@ So, without further ado, here are my spoken languages...
 With the Philippines being colonized by the United States for almost 50 years (1898-1946), English has become a natural 2nd language to most Filipinos. 
 In fact, me and my kids speak more English fluently than our local dialect. I have to say that we are in some way fortunate since we don't have to study English that is the actual **"Universal Language"**. It is one of the most influential languages in the world right now. Because apart from being spoken as an official language by millions of people, it is also the first 2nd language chosen by many people around the globe.
 
-SPANISH:
+**SPANISH:**   
 Las Filipinas estuvo bajo el dominio Español por más de 300 años (1521-1898). Pero sorprendentemente, Los Filipinos de hoy no hablan Español en absoluto. Creo que somos el único país que fue colonizado por España que se olvidó totalmente de hablar el bello idioma. 
 Para aquellos que no lo sabían, Español es el tercera idioma más popular en todo el mundo. La gente habla español en 31 países, en su mayoría alrededor de Latinoamérica (y España, por supuesto!). Tienen de 400 millones hablantes nativos. ¡Y casi tantos hablantes no nativos!
 Así que me inscribí en el Instituto Cervantes de Manila para aprender el idioma. ¡Estoy tan feliz de haberlo hecho!
