@@ -34,6 +34,8 @@ Ang wikang Tagalog ang pinaka-mahalagang wika sa akin kahit na matuto pa ako ng 
 
 -------------------------------------------------------------------------
 
-So there you go. So far, I have 4 languages under my belt. I advise you to do so and learn a new language. There is no such as thing as too old to learn as long as you have the desire.
-I am now thinking of a new language to acquire. Tell me, should it be Dothraki or High Valyrian?
+So there you go. So far, I have 4 languages under my belt. I advise you to do so and learn a new language.   
+There is no such as thing as too old to learn as long as you have the desire.
+I am now thinking of a new language to acquire.   
+Tell me, should it be **Dothraki** or **High Valyrian**?
 
