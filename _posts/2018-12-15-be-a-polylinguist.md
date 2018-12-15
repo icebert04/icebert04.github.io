@@ -21,7 +21,7 @@ Las Filipinas estuvo bajo el dominio Español por más de 300 años (1521-1898).
 Para aquellos que no lo sabían, Español es el tercera idioma más popular en todo el mundo. La gente habla español en 31 países, en su mayoría alrededor de Latinoamérica (y España, por supuesto!). Tienen de 400 millones hablantes nativos. ¡Y casi tantos hablantes no nativos!
 Así que me inscribí en el Instituto Cervantes de Manila para aprender el idioma. ¡Estoy tan feliz de haberlo hecho!
 
-JAPANESE:
+**JAPANESE:**  
 私の最も年上の息子行い合気道, 私の、最も若い、見ているアニメ, そして、ディナーのためにスシを準備している私の妻 日本語のための私達の崇拝の証拠である。
 私はいつもそれ以来の日本が好きである。それらは最も丁寧なおよび最もクリーンな人々である.  私はそれらの文化およびそれらの生活様式が好きである。
 日本（本質的）でそれが約1億3000万人の住民により話されるだけであるので、Nihongoは、分離された言語である。
