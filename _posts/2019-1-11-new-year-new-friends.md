@@ -26,7 +26,7 @@ Believe me, regardless of your status, your profession, your beliefs, and your g
 With our lives getting cruel year after year and old friends transforming into entirely different beasts. Some people believe it is best to replenish their departed friends (both the living and the dead) with fresh faces.  
 
 Do you want to learn to play the Piano?   
-Get out and meet someone who can teach you. Befriend that tutor and spend the time to learn to be like Beethoven, Chopin, and Mozart.
+Get out and meet someone who can teach you. Befriend that tutor and spend the time to learn to be like Beethoven, Chopin, and Mozart.   
 You wanna go surfing in Siargao?   
 Get somebody to surf with you. I'm sure there is someone out there who is willing to hit the waves and get tanned on that beautiful island.
 How about a movie companion?   
