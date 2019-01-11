@@ -25,9 +25,12 @@ And let's not forget my existing friends before them and my immediate family mem
 Believe me, regardless of your status, your profession, your beliefs, and your goals in life... meeting new friends (though not everybody's objective), is something they won't mind having.   
 With our lives getting cruel year after year and old friends transforming into entirely different beasts. Some people believe it is best to replenish their departed friends (both the living and the dead) with fresh faces.  
 
-Do you want to learn to play the Piano? Get out and meet someone who can teach you. Befriend that tutor and spend the time to learn to be like Beethoven, Chopin, and Mozart.
-You wanna go surfing in Siargao? Get somebody to surf with you. I'm sure there is someone out there who is willing to hit the waves and get tanned on that beautiful island.
-How about a movie companion? Invite that someone you're dying to date for almost your entire life. It's just a movie date. Dinner is not even included. Who knows, he or she might decide to go out with you even for a lousy movie.
+Do you want to learn to play the Piano?   
+Get out and meet someone who can teach you. Befriend that tutor and spend the time to learn to be like Beethoven, Chopin, and Mozart.
+You wanna go surfing in Siargao?   
+Get somebody to surf with you. I'm sure there is someone out there who is willing to hit the waves and get tanned on that beautiful island.
+How about a movie companion?   
+Invite that someone you're dying to date for almost your entire life. It's just a movie date. Dinner is not even included. Who knows, he or she might decide to go out with you even for a lousy movie.
 
 This is not the time to be shy or be doubtful. We only had one life to live... what are you waiting for? Life is out there for the taking. We should enjoy every moment of it. 
 
