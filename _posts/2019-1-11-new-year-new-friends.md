@@ -37,7 +37,8 @@ This is not the time to be shy or be doubtful. We only had one life to live... w
 I'm glad I accidentally created Friendillion. I met new friends from countries I never taught I will get to meet. I have a friend girl who loves to surf from France. 2 Web Developers from Japan. Several drinking buddies from Spain. Animal lovers from Australia,  Aspiring Entrepreneurs from Germany, and clients who became friends from Canada and the United States.   
 I got to meet a lot of fellow Filipinos too and we still managed to stay in touch through social media.
 
-Some say that I became a known authority in regards to relationships and human behavior. I don't know about that. I'm just here to "Scratch my itch" for writing and somehow managed to meet new friends along the way.
+Some say that I became a known authority in regards to relationships and human behavior.   
+I don't know about that. I'm just here to "Scratch my itch" for writing and somehow managed to meet new friends along the way.
 
 As I walk this path to gaining new friends and adventures, I invite you to join me on this journey and together we will unravel about people and learn from them. 
 We will make our lives even more exciting. We will gain networking opportunities, have a greater sense of empathy for the world, make that cultural exchange, and we will feel our lives better with a purpose. 
