@@ -11,7 +11,7 @@ During that process, I happened to get Free accommodation, Free Lunch and Dinner
 During that long Christmas break, I did some soul searching if I was still to proceed with the program. Make no mistake, it was more than beneficial but I feel that I haven't really given inspiration to my readers and followers.
 I feel I have more to give. More stories, more inspiration, that hopefully could change or uplift the lives of the people.
 
-So starting this 2019, I decided to make a change. Instead of making stories of my existing friends and family, I am now on the lookout for strangers.
+So starting this 2019, I decided to make a change. Instead of making stories of my existing friends and family, I am now on the lookout for strangers.   
 The objective is to interview strangers and showcase their lives through Friendillion.com
 I will get a deeper insight into their lives, their livelihood, their biggest challenges, their happiness gauge, and their goals. 
 I will know them personally and share their inspiring stories to each and every one of you. 
