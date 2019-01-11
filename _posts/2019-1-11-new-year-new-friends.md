@@ -1,4 +1,4 @@
 ---
 published: true
 ---
-![Grandparents](/images/Leandro Isberto.jpg)
+![New Friends](/images/Friendillion Cover.png)
