@@ -14,7 +14,7 @@ I feel I have more to give. More stories, more inspiration, that hopefully could
 So starting this 2019, I decided to make a change. Instead of making stories of my existing friends and family, I am now on the lookout for strangers.   
 The objective is to interview strangers and showcase their lives through Friendillion.com   
 I will get a deeper insight into their lives, their livelihood, their biggest challenges, their happiness gauge, and their goals. 
-I will know them personally and share their inspiring stories to each and every one of you. 
+I will know them personally and share their inspiring stories to each and every one of you.   
 Together, we will learn from these strangers and together we will try to adapt something from them and integrate it into our everyday lives.
 
 If I interview strangers every week and become friends with them on Facebook. I'll basically be acquiring 4 new friends every month.   
