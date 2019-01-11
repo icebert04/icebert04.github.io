@@ -28,7 +28,7 @@ With our lives getting cruel year after year and old friends transforming into e
 Do you want to learn to play the Piano?   
 Get out and meet someone who can teach you. Befriend that tutor and spend the time to learn to be like Beethoven, Chopin, and Mozart.   
 You wanna go surfing in Siargao?   
-Get somebody to surf with you. I'm sure there is someone out there who is willing to hit the waves and get tanned on that beautiful island.
+Get somebody to surf with you. I'm sure there is someone out there who is willing to hit the waves and get tanned on that beautiful island.   
 How about a movie companion?   
 Invite that someone you're dying to date for almost your entire life. It's just a movie date. Dinner is not even included. Who knows, he or she might decide to go out with you even for a lousy movie.
 
