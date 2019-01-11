@@ -43,7 +43,7 @@ I don't know about that. I'm just here to **"Scratch my itch"** for writing and 
 As I walk this path to gaining new friends and adventures, I invite you to join me on this journey and together we will unravel about people and learn from them.   
 We will make our lives even more exciting. We will gain networking opportunities, have a greater sense of empathy for the world, make that cultural exchange, and we will feel our lives better with a purpose. 
 
-Watch for my next article, interviewing my 1st ever acquaintance for the year. 
+Watch for my next article, interviewing my 1st ever acquaintance for the year.   
 Let this year be the year for Acquiring! 
 
 
