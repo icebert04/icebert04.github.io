@@ -17,7 +17,7 @@ I will get a deeper insight into their lives, their livelihood, their biggest ch
 I will know them personally and share their inspiring stories to each and every one of you. 
 Together, we will learn from these strangers and together we will try to adapt something from them and integrate it into our everyday lives.
 
-If I interview strangers every week and become friends with them on Facebook. I'll basically be acquiring 4 new friends every month. 
+If I interview strangers every week and become friends with them on Facebook. I'll basically be acquiring 4 new friends every month.   
 If I do it every Friday, I'll be having 52 new friends before the end of the year.
 And I continue doing this habit, I'll be receiving 520 friends in 1 decade... Wow!
 And let's not forget my existing friends before them and my immediate family members. That's a strong positive network!
