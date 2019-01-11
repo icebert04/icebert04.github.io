@@ -23,7 +23,7 @@ And I continue doing this habit, I'll be receiving 520 friends in 1 decade... Wo
 And let's not forget my existing friends before them and my immediate family members.   
 That's a strong positive network!
 
-Believe me, regardless of your status, your profession, your beliefs, and your goals in life... meeting new friends (though not everybody's objective), is something they won't mind having.   
+Believe me, regardless of your status, your profession, your beliefs, and your goals in life... meeting new friends (though not everybody's objective), is something you won't mind having.   
 With our lives getting cruel year after year and old friends transforming into entirely different beasts. Some people believe it is best to replenish their departed friends (both the living and the dead) with fresh faces.  
 
 Do you want to learn to play the Piano?   
