@@ -38,7 +38,7 @@ I'm glad I accidentally created Friendillion. I met new friends from countries I
 I got to meet a lot of fellow Filipinos too and we still managed to stay in touch through social media.
 
 Some say that I became a known authority in regards to relationships and human behavior.   
-I don't know about that. I'm just here to "Scratch my itch" for writing and somehow managed to meet new friends along the way.
+I don't know about that. I'm just here to **"Scratch my itch"** for writing and somehow managed to meet new friends along the way.
 
 As I walk this path to gaining new friends and adventures, I invite you to join me on this journey and together we will unravel about people and learn from them. 
 We will make our lives even more exciting. We will gain networking opportunities, have a greater sense of empathy for the world, make that cultural exchange, and we will feel our lives better with a purpose. 
