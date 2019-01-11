@@ -7,7 +7,7 @@ Happy New Year everyone! How did your holiday go? I hope that you all had a wond
 During the break, I took the time to pause, reflect, and give thanks on the thing that was good to me. My project... my Friendillion.   
 What started as an itch for writing, ended up as gaining more than what I expected. 
 I gained new friends during my 1st year with Friendillion. Learning from these individuals and picking a slice of inspiration on their success stories. 
-During that process, I happened to get Free accommodation, Free Lunch and Dinner, Free Chocolate cakes, Free Tour, and yes... some of that micro influencer earnings.
+During that process, I happened to get Free accommodation, Free Lunch and Dinner, Free Chocolate cakes, Free Tour, and yes... some of that micro influencer earnings.   
 During that long Christmas break, I did some soul searching if I was still to proceed with the program. Make no mistake, it was more than beneficial but I feel that I haven't really given inspiration to my readers and followers.
 I feel I have more to give. More stories, more inspiration, that hopefully could change or uplift the lives of the people.
 
