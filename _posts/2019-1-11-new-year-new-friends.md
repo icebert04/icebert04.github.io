@@ -20,7 +20,8 @@ Together, we will learn from these strangers and together we will try to adapt s
 If I interview strangers every week and become friends with them on Facebook. I'll basically be acquiring 4 new friends every month.   
 If I do it every Friday, I'll be having 52 new friends before the end of the year.
 And I continue doing this habit, I'll be receiving 520 friends in 1 decade... Wow!
-And let's not forget my existing friends before them and my immediate family members. That's a strong positive network!
+And let's not forget my existing friends before them and my immediate family members.   
+That's a strong positive network!
 
 Believe me, regardless of your status, your profession, your beliefs, and your goals in life... meeting new friends (though not everybody's objective), is something they won't mind having.   
 With our lives getting cruel year after year and old friends transforming into entirely different beasts. Some people believe it is best to replenish their departed friends (both the living and the dead) with fresh faces.  
