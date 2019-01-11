@@ -34,7 +34,7 @@ Invite that someone you're dying to date for almost your entire life. It's just 
 
 This is not the time to be shy or be doubtful. We only had one life to live... what are you waiting for? Life is out there for the taking. We should enjoy every moment of it. 
 
-I'm glad I accidentally created Friendillion. I met new friends from countries I never taught I will get to meet. I have a friend girl who loves to surf from France. 2 Web Developers from Japan. Several drinking buddies from Spain. Animal lovers from Australia,  Aspiring Entrepreneurs from Germany, and clients who became friends from Canada and the United States.
+I'm glad I accidentally created Friendillion. I met new friends from countries I never taught I will get to meet. I have a friend girl who loves to surf from France. 2 Web Developers from Japan. Several drinking buddies from Spain. Animal lovers from Australia,  Aspiring Entrepreneurs from Germany, and clients who became friends from Canada and the United States.   
 I got to meet a lot of fellow Filipinos too and we still managed to stay in touch through social media.
 
 Some say that I became a known authority in regards to relationships and human behavior. I don't know about that. I'm just here to "Scratch my itch" for writing and somehow managed to meet new friends along the way.
