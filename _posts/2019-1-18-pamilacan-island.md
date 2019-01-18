@@ -43,5 +43,6 @@ Sure, he went and toured other provinces in the Philippines but it became obviou
 Pamilacan is just one of the Philippines hidden gems. There are other islands and places that we, the locals, should visit.   
 We must also protect and preserve these beauties and wonders or else there won't be any places that tourist can go to.
 
-Without Damien, I could have not properly known the island of Pamilacan. And now that I am fully aware of it and heard wonderful stories from a guy who've been there twice... I am now adding that island as one of my next target trips in the future. 
+Without Damien, I could have not properly known the island of Pamilacan.   
+And now that I am fully aware of it and heard wonderful stories from a guy who've been there twice... I am now adding that island as one of my next target trips in the future. 
 And based on the pictures that Damien showed me, I'm definitely sure that I will have a "Grand Time" from the islands of the beautiful creatures...... both sea and land! 
