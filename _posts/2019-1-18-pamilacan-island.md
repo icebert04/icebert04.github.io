@@ -9,7 +9,7 @@ I happen to meet some of them (mostly from Europe) and they immediately ask me f
 Tourist always like the famous touristic places but I always give them another option if they want a memorable experience from my country.   
 Instead of them going to El Nido, I tell them to stay in Port Barton instead.   
 If they want Boracay, I give them an alternative itinerary that is outside the norm of the regular tourist.   
-Up north, I advised them to take Batad rather than Banaue.
+Up north, I advised them to take Batad rather than Banaue.   
 Having traveled to most of these places, I make it a point that these tourists will enjoy what I encountered during my past trips. 
 
 Then came another tourist from Belgium. He visited me in Manila for a few days and said that he will go to Pampanga to see the local tribes. Then go up to the mountains of Batad after. 
