@@ -24,7 +24,7 @@ Damien showed me the island of Pamilacan through Google Maps and that is when th
 Situated 12 kilometers south of Bohol is the island of Pamilican that has the moniker of the **"Resting Place of the Mantas"**.   
 Its rich waters supporting marine megafauna including whales and dolphins, manta rays and sharks.
 In 1993 Sulliman University recorded 30 whale sharks landing in Pamilacan in just 44 days.   
-If you visited the island in the mid-1990s, lanes would be full of shark and manta meat drying in the sun. 
+If you visited the island in the mid-1990s, lanes would be full of shark and manta meat drying in the sun.   
 Finally, in 1998, whale shark and manta hunting were officially banned.
 Up to this day, you will see bleached whale bones decorating some houses in Pamilican.
 
