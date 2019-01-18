@@ -17,7 +17,7 @@ I was impressed that this guy did his research. He is one of the few tourists th
 After a few weeks, Damien (whom I call the Baloon guy since he loves to makes air toy balloons for the kids) went back to my place.   
 I asked him then **"What's next"**? and he said that he is going to Pamilacan.
 
-Pamilacan? Where the hell is that? 
+Pamilacan? Where the hell is that?   
 This was the first time that I was ashamed of myself. Being a Filipino but being humbled and overpowered by a foreigner who lives 10,000 kilometers away. 
 Damien showed me the island of Pamilacan through Google Maps and that is when the foreigner started educating the local. 
 
