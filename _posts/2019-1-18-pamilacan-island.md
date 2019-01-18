@@ -12,7 +12,7 @@ If they want Boracay, I give them an alternative itinerary that is outside the n
 Up north, I advised them to take Batad rather than Banaue.   
 Having traveled to most of these places, I make it a point that these tourists will enjoy what I encountered during my past trips. 
 
-Then came another tourist from Belgium. He visited me in Manila for a few days and said that he will go to Pampanga to see the local tribes. Then go up to the mountains of Batad after. 
+Then came another tourist from Belgium. He visited me in Manila for a few days and said that he will go to Pampanga to see the local tribes. Then go up to the mountains of Batad after.   
 I was impressed that this guy did his research. He is one of the few tourists that didn't really need my advice. 
 After a few weeks, Damien (whom I call the Baloon guy since he loves to makes air toy balloons for the kids) went back to my place.
 I asked him then "What's next"? and he said that he is going to Pamilacan.
