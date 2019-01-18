@@ -4,7 +4,8 @@ published: true
 ![New Island](/images/Pamilacan 6.jpg)
 
 
-Foreigners from different countries visit the Philippines to witness the beauty of our country. I happen to meet some of them (mostly from Europe) and they immediately ask me for what places to visit. 
+Foreigners from different countries visit the Philippines to witness the beauty of our country.   
+I happen to meet some of them (mostly from Europe) and they immediately ask me for what places to visit. 
 Tourist always like the famous touristic places but I always give them another option if they want a memorable experience from my country.
 Instead of them going to El Nido, I tell them to stay in Port Barton instead. 
 If they want Boracay, I give them an alternative itinerary that is outside the norm of the regular tourist. 
