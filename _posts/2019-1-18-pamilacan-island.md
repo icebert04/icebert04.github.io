@@ -31,7 +31,7 @@ Up to this day, you will see bleached whale bones decorating some houses in Pami
 What I like about this island is that it is not well known by both foreign and local tourists. Therefore making you one of the few tourists on the island. 
 There are no banks or ATMs and no cars as well making it the right location for your vacation. 
 
-With only a population of 1,400 locals, the place is probably what you can call your "Next Sanctuary".  
+With only a population of 1,400 locals, the place is probably what you can call your **"Next Sanctuary"**.  
 About 240 families whose main livelihoods now concentrate on dolphin and whale watching tours. Fishermen still fully rely primarily on fishing but every now and then they get to show tourists like Damien other sea creatures like the black-white banded sea snakes, sea turtles, moray eels, nudibranchs, and bucket sponges.
 
 My friend from Belgium went to that island 2 years ago. 
