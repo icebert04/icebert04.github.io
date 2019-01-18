@@ -35,7 +35,7 @@ With only a population of 1,400 locals, the place is probably what you can call 
 About 240 families whose main livelihoods now concentrate on dolphin and whale watching tours. Fishermen still fully rely primarily on fishing but every now and then they get to show tourists like Damien other sea creatures like the black-white banded sea snakes, sea turtles, moray eels, nudibranchs, and bucket sponges.
 
 My friend from Belgium went to that island 2 years ago.   
-And just recently, he went back to the Philippines again. This time he spent both his Christmas and New Year in the quiet and serene Pamilacan island.
+And just recently, he went back to the Philippines again. This time he spent both his Christmas and New Year in the quiet and serene Pamilacan island.   
 According to this guy who is an expert in making air balloons and also happens to be a firefighter back in his country, that the thing he like the most in the island of Pamilacan is not the whale shark nor the white sand beaches.
 It's the people from the island is what Damien treasured the most. According to the foreigner, the locals there has no stress. There, people live simply day by day and are happy. 
 Sure, he went and toured other provinces in the Philippines but it became obvious that Pamilacan island has become his 2nd home.
