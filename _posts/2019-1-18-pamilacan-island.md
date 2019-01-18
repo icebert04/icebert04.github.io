@@ -14,8 +14,8 @@ Having traveled to most of these places, I make it a point that these tourists w
 
 Then came another tourist from Belgium. He visited me in Manila for a few days and said that he will go to Pampanga to see the local tribes. Then go up to the mountains of Batad after.   
 I was impressed that this guy did his research. He is one of the few tourists that didn't really need my advice. 
-After a few weeks, Damien (whom I call the Baloon guy since he loves to makes air toy balloons for the kids) went back to my place.
-I asked him then "What's next"? and he said that he is going to Pamilacan.
+After a few weeks, Damien (whom I call the Baloon guy since he loves to makes air toy balloons for the kids) went back to my place.   
+I asked him then **"What's next"**? and he said that he is going to Pamilacan.
 
 Pamilacan? Where the hell is that? 
 This was the first time that I was ashamed of myself. Being a Filipino but being humbled and overpowered by a foreigner who lives 10,000 kilometers away. 
