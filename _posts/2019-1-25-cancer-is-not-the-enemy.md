@@ -8,10 +8,10 @@ Monica now has a family with 2 loving daughters. I get to see her whenever I get
 So I called Monx (her nickname) and told her that we are selling our chocolate products and the proceeds will go to planting Cacao trees in the province.
 She immediately said Yes and ordered multiple boxes. 
 
-Then Monx asked me the one thing I won't ever forget... "Do your products have sugar on it"?
-Monica has gone berzerk and has completely become "Sugar-Free"! 
-If you go visit her place, you won't find any type of sugar in her house. Open their refrigerator and you won't find any Coca-Cola in sight.
-"Damay-Damay na" (Everyone will be affected) is what Monica said to me. Even her kids are not permitted to take any sugarly products. 
+Then Monx asked me the one thing I won't ever forget... **"Do your products have sugar on it"**?  Monica has gone berzerk and has completely become **"Sugar-Free"**!   
+If you go visit her place, you won't find any type of sugar in her house. Open their refrigerator and you won't find any Coca-Cola in sight.   
+**"Damay-Damay na"** (Everyone will be affected) is what Monica said to me.   
+Even her kids are not permitted to take any sugarly products. 
 It took her daughters and a great amount of time to adjust to their new diet but now has completely adapted to it knowing the health benefits that they will be getting. 
 
 Why the change? I asked Monx. 
