@@ -42,11 +42,12 @@ Cases like smokers who consume 1 pack a day are known to increase the risk of Lu
 Those who expose themselves to the sun can increase the risk of Skin Cancer.   
 Sugar is known to add a lot of calories and can cause weight gain which is linked to Cancer.
 
-There are many forms of "Triggers" that can cause us to accumulate the disease. 
+There are many forms of **"Triggers"** that can cause us to accumulate the disease.   
 But it's the Triggers that we should be cautious about and not the disease.
 Triggers such as Tobacco use, Obesity, Sun Exposure, Alcohol, Lead & Asbestos, etc.
 
-It is true that you can do everything right and still get Cancer. But.. you can lower the risk with your lifestyle choices. 
+It is true that you can do everything right and still get Cancer.   
+But.. you can lower the risk with your lifestyle choices.   
 Taking care of our body is what really matters and not giving in to stress are two important factors that we need to imply. 
 
 ------------------------------------------------------------------------------
