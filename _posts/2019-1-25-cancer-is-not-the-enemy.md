@@ -14,9 +14,9 @@ If you go visit her place, you won't find any type of sugar in her house. Open t
 Even her kids are not permitted to take any sugarly products. 
 It took her daughters and a great amount of time to adjust to their new diet but now has completely adapted to it knowing the health benefits that they will be getting. 
 
-Why the change? I asked Monx. 
-After her "Ate" (elder sister) passed away due to Cancer that made her change her diet and lifestyle. 
-Not only she is not taking sugar but now eats a healthy diet and goes out regularly to the gym to exercise. 
+Why the change? I asked Monx.   
+After her **"Ate"** (elder sister) passed away due to Cancer that made her change her diet and lifestyle.   
+Not only she is not taking sugar but now eats a healthy diet and goes out regularly to the gym to exercise.   
 A complete turnaround from a lady who used to be fond of sweets and cakes.
 
 ------------------------------------------------------------------------
