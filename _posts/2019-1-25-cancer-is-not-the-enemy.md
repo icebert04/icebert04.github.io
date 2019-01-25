@@ -21,8 +21,8 @@ A complete turnaround from a lady who used to be fond of sweets and cakes.
 
 ------------------------------------------------------------------------
 
-I also lost a sister (our youngest) not to Cancer but to a different disease (Aneurysm) last December 2017.
-During that same month, my other sister (Meryl) and my brother (John) was both rushed to the hospital for Appendectomy surgery and Congestive Heart Failure respectively. 
+I also lost a sister (our youngest) not to Cancer but to a different disease (Aneurysm) last December 2017.   
+During that same month, my other sister (Meryl) and my brother (John) was both rushed to the hospital for Appendectomy surgery and Congestive Heart Failure respectively.   
 I could not imagine a world losing half of my family in the most celebrated month of the year.
 
 It's totally unbearable to lose someone you love. Both my mother and grandmother succumbed to Liver Cirrhosis (which sometimes lead to Liver Cancer).
