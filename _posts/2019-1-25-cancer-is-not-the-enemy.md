@@ -36,10 +36,10 @@ In a manner of speaking, Cancer (or any form of disease) is really the enemy!...
 
 We need to have an open perspective. Cancer is not the enemy....  it is Us!
 
-Cancer is just the end result of what we people are doing. 
-It's the consequence that we get from doing these bad vices and habits during our youth. 
-Cases like smokers who consume 1 pack a day are known to increase the risk of Lung Cancer. 
-Those who expose themselves to the sun can increase the risk of Skin Cancer.
+Cancer is just the end result of what we people are doing.   
+It's the consequence that we get from doing these bad vices and habits during our youth.   
+Cases like smokers who consume 1 pack a day are known to increase the risk of Lung Cancer.   
+Those who expose themselves to the sun can increase the risk of Skin Cancer.   
 Sugar is known to add a lot of calories and can cause weight gain which is linked to Cancer.
 
 There are many forms of "Triggers" that can cause us to accumulate the disease. 
