@@ -52,13 +52,14 @@ Taking care of our body is what really matters and not giving in to stress are t
 
 ------------------------------------------------------------------------------
 
-But here's what I have to say... "Fuck Cancer"! 
-I lost loved ones due to sickness in the past. And I will lose more of them in the future. And one day, Kamatayan (Mr. Death) will come and visit me. 
+But here's what I have to say... **"Fuck Cancer"**!   
+I lost loved ones due to sickness in the past. And I will lose more of them in the future. And one day, Kamatayan (Mr. Death) will come and visit me.   
 You too. You have lost some and will definitely lose some more of them. Your day will come soon too as well.
 
 Death, whether we like it or not, is certain. There is no escaping from it.
 
-So why dread and be afraid? Live the life that you want. Take care of your body, love some more and have more adventures as much as possible. 
+So why dread and be afraid?   
+Live the life that you want. Take care of your body, love some more and have more adventures as much as possible. 
 
 It's not how we die that matters... it is how we lived through those years. How we touch people's lives and getting love in return.
 
