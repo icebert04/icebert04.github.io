@@ -3,8 +3,8 @@ published: true
 ---
 ![Cancer](/images/Monx 2.jpg)
 
-Two months ago, I called up my former neighbor in Cityland Pasig to offer my Chocolate products for my Tree Planting project. 
-Monica now has a family with 2 loving daughters. I get to see her whenever I get around her area in Taguig.
+Two months ago, I called up my former neighbor in Cityland Pasig to offer my Chocolate products for my Tree Planting project.   
+Monica now has a family with 2 loving daughters. I get to see her whenever I get around her area in Taguig.   
 So I called Monx (her nickname) and told her that we are selling our chocolate products and the proceeds will go to planting Cacao trees in the province.
 She immediately said Yes and ordered multiple boxes. 
 
