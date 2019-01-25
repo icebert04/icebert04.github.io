@@ -25,8 +25,9 @@ I also lost a sister (our youngest) not to Cancer but to a different disease (An
 During that same month, my other sister (Meryl) and my brother (John) was both rushed to the hospital for Appendectomy surgery and Congestive Heart Failure respectively.   
 I could not imagine a world losing half of my family in the most celebrated month of the year.
 
-It's totally unbearable to lose someone you love. Both my mother and grandmother succumbed to Liver Cirrhosis (which sometimes lead to Liver Cancer).
-It's difficult to see them go through extreme pain then lose them still in the end.  
+It's totally unbearable to lose someone you love.   
+Both my mother and grandmother succumbed to Liver Cirrhosis (which sometimes lead to Liver Cancer).
+It's difficult to see them go through extreme pain then lose them still in the end.   
 Why does this disease have to take away our family members? A lot of people that I know lost someone that they love with Cancer. Some are fighting the dreaded disease as we speak and soon other people will get hit by it. 
 
 In a manner of speaking, Cancer (or any form of disease) is really the enemy!... Or is it?
