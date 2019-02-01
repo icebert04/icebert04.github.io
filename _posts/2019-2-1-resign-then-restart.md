@@ -3,8 +3,8 @@ published: true
 ---
 ![Side Projects](/images/Mentors.jpeg)
 
-Step 1: Quit your job 👋 
-Step 2: Launch side projects 🚀 
+Step 1: Quit your job 👋   
+Step 2: Launch side projects 🚀   
 Step 3: Become profitable in 1 year 💸
 
 In this picture is Justin. A Full Stack Developer based in San Francisco. 
