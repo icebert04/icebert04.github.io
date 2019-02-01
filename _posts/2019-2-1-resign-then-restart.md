@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ![Side Projects](/images/Mentors.jpeg)
 
