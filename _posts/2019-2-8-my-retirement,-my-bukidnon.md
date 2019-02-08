@@ -25,7 +25,8 @@ No need to buy tomato, sweet pepper, broccoli, celery, carrots, and white potato
 3.) **OPEN LANDSCAPE** = Baguio is nice and so are the places with beautiful beaches. But those places are now crowded with settlers where most of them pollute the surroundings. Not to mention, the multiple housing structures which damage the main beauty of it.   
 Bukidnon is not like that. The place is blessed with wide and open landscapes.   
 Everything you see there is **"Green"**. And there are so many outdoor activities that you can do for you and your family.   
-If I get to live there, my ideal habitual activity will be to take my horse for an afternoon ride and just explore the green valleys and lush lands. Just me and the horse reuniting with nature.
+If I get to live there, my ideal habitual activity will be to take my horse for an afternoon ride and just explore the green valleys and lush lands.   
+Just me and the horse reuniting with nature.
 
 4.) **STORM FREE PROPERTY** = The province is outside the typhoon belt. It is also surrounded by huge and tall mountains that will protect you from strong winds.   
 Since it is a landlocked province, there is no need to worry about tsunamis either. 
