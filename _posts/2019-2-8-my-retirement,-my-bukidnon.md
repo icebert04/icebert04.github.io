@@ -27,13 +27,13 @@ Bukidnon is not like that. The place is blessed with wide and open landscapes.
 Everything you see there is **"Green"**. And there are so many outdoor activities that you can do for you and your family.   
 If I get to live there, my ideal habitual activity will be to take my horse for an afternoon ride and just explore the green valleys and lush lands. Just me and the horse reuniting with nature.
 
-4.) **STORM FREE PROPERTY** = The province is outside the typhoon belt. It is also surrounded by huge and tall mountains that will protect you from strong winds. 
+4.) **STORM FREE PROPERTY** = The province is outside the typhoon belt. It is also surrounded by huge and tall mountains that will protect you from strong winds.   
 Since it is a landlocked province, there is no need to worry about tsunamis either. 
 
-5. HAVEN FOR ANIMAL LOVERS = I have friends who are exactly from Bukidnon. And according to them, if you have a land there, it will be perfect for your animals (both farm and pets). 
-Love cheese? Stack up your cows and start milking. 
-You want "Tapang Usa"? Get the best breed of deer.
-Do you want a "Bukidnon Woodcock"? Not familiar with it? Just Google it and you might see a few of them in your land. 
+5.) **HAVEN FOR ANIMAL LOVERS** = I have friends who are exactly from Bukidnon. And according to them, if you have a land there, it will be perfect for your animals (both farm and pets).   
+Love cheese? Stack up your cows and start milking.   
+You want **"Tapang Usa"**? Get the best breed of deer.   
+Do you want a **"Bukidnon Woodcock"**? Not familiar with it? Just Google it and you might see a few of them in your land. 
 
 ----------------------------------------------------------------------
 
