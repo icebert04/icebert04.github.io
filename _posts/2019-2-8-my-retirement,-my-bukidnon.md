@@ -37,9 +37,11 @@ Do you want a **"Bukidnon Woodcock"**? Not familiar with it? Just Google it and 
 
 ----------------------------------------------------------------------
 
-Now, everything depends on where my children will work and live in the future. I always want to be with them and probably get a place nearby to spend quality time with them.
-But if they choose to stay put in the Philippines. I suggest that they can move to Cagayan de Oro with improved infrastructure and fast internet. 
-After all, CDO is only a few hours drive away. 
-But for me and my wife. We love to stay in this serene place. 
-My Retirement, My Bukidnon! 
+Now, everything depends on where my children will work and live in the future.   
+I always want to be with them and probably get a place nearby to spend quality time with them.   
+But if they choose to stay put in the Philippines.   
+I suggest that they can move to Cagayan de Oro with improved infrastructure and fast internet. 
+After all, CDO is only a few hours drive away.   
+But for me and my wife. We love to stay in this serene place.   
+**My Retirement**, **My Bukidnon**! 
 
