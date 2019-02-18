@@ -3,10 +3,10 @@ published: true
 ---
 ![Robinhood](/images/Meryl 5.jpg)
 
-The world we lived in is composed of people who are fixated primarily on one thing... "Their Own Benefit"! 
-It's all about "Me" or "I" or "Us" rather than "We or "You" or "Them". 
-We, people, have evolved into "Selfish Beings" with self-centeredness, egocentricity, and egoism all attached to our belt. 
-The "Me Always First" attitude had made everyone more lonely as ever. Putting up a wall between others and oneself, thus creating disharmony, separation, and anxiety.
+The world we lived in is composed of people who are fixated primarily on one thing... **"Their Own Benefit"**!   
+It's all about "Me" or "I" or "Us" rather than "We or "You" or "Them".   
+We, people, have evolved into **"Selfish Beings"** with self-centeredness, egocentricity, and egoism all attached to our belt.   
+The **"Me Always First"** attitude had made everyone more lonely as ever. Putting up a wall between others and oneself, thus creating disharmony, separation, and anxiety.
 
 Why can't we be like most influential people (fictitious or not) like Santa Claus, who brings joy to kids and child at heart who made a big impact even to this day and age. 
 Or Ludwig van Beethoven, who probably was the most predominant figure in the Classical and Romantic eras, making people learn to love music rather than hate & war. 
