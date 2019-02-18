@@ -32,15 +32,14 @@ Meryl has the most list of Christmas gifts making our Family Christmas tree surr
 She gives, gives, and give without asking anything in return. Never posted her kindness act on Facebook or other social media sites.   
 She just keeps quiet and does here thing... looking for the next victim. Victim of receiving gifts and grants from her.
 
-If you think I am exaggerating, you can "Friend Request" my little sister on Facebook. Then ask help from her by saying your sad story and the next thing you know she is on her way following your request.
+If you think I am exaggerating, you can **"Friend Request"** my little sister on Facebook. Then ask help from her by saying your sad story and the next thing you know she is on her way following your request.
 
-Whether we admit it or not, most of us are culprit of being self- centered creeps. We may not notice it at first but it is who we are.
+Whether we admit it or not, most of us are culprit of being self- centered creeps. We may not notice it at first but it is who we are.   
 In modern society, being self-centered protects lonely people in the short term. But in the long term, the harmful effects of loneliness build up over time. 
 
-I am not suggesting that we should be like my little sister doing "Robinhood Acts" all year long. All I am advising is we open up a little bit. Show a little bit of heart. Give more and receive less. Try talking to strangers (they don't bite).
+I am not suggesting that we should be like my little sister doing **"Robinhood Acts"** all year long. All I am advising is we open up a little bit. Show a little bit of heart. Give more and receive less. Try talking to strangers (they don't bite).
 
-Show and demonstrate a little bit of this and a little bit of that. 
-It will not only make a contribution to our society but it will also make a big impact on your life. 
-A deeper purpose and endless rewards for a lifetime. 
+Show and demonstrate a little bit of this and a little bit of that.   
+It will not only make a contribution to our society but it will also make a big impact on your life. A deeper purpose and endless rewards for a lifetime. 
 
 Meryl has been living that Happy Life. She is a hero that won everybody's hearts.  
