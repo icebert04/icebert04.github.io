@@ -16,7 +16,7 @@ Now, all of these individuals that I've mentioned have extremely philanthropic c
 Never in my wildest dreams that I imagine myself meeting someone like them.... not in my lifetime, at least.
 
 If I do meet someone like Santa Claus or Robinhood in this day and age... that person should probably be the heir to the King of some country or a Monk who took a vacation from Nepal.   
-I never envision seeing a legendary person like that underneath our very own roof. 
+I never envision seeing a legendary person like that underneath our very own roof.   
 Yes, I found the **"Modern Day Robinhood"**... and she is my little sister.
 
 My little sister "Meryl" was born unhesitatingly taking the crown away from me. After being the Prince in the family for 12 years, my sister took away my royalty headband and became everybody's favorite.   
