@@ -19,17 +19,18 @@ If I do meet someone like Santa Claus or Robinhood in this day and age... that p
 I never envision seeing a legendary person like that underneath our very own roof. 
 Yes, I found the **"Modern Day Robinhood"**... and she is my little sister.
 
-My little sister "Meryl" was born unhesitatingly taking the crown away from me. After being the Prince in the family for 12 years, my sister took away my royalty headband and became everybody's favorite. 
+My little sister "Meryl" was born unhesitatingly taking the crown away from me. After being the Prince in the family for 12 years, my sister took away my royalty headband and became everybody's favorite.   
 And since my sister was an adorable little creature... I had to hide my desolation and pass the crown (not to mention privilege) to her.
 
 As Meryl grew older, I'd noticed some unique traits that nobody has. 
-The kind of characteristics that the folklore outlaw turned to hero had. 
+The kind of characteristics that the folklore outlaw turned to hero had.   
 Meryl is the type of person who makes sacrifices not only to the people that she loves but also to strangers... making her The Modern Day Robinhood.  
 
-My little sister has helped the security guards that she never met before. Gave food to the Barangay street cleaners. And even supported a child (who has no relation whatsoever) for his educational needs. 
+My little sister has helped the security guards that she never met before. Gave food to the Barangay street cleaners. And even supported a child (who has no relation whatsoever) for his educational needs.   
 Meryl has the most list of Christmas gifts making our Family Christmas tree surrounded with small item gifts (where the item's monetary value is below 100 pesos). We have to get a big box just to put all her gifts in there.
 
-She gives, gives, and give without asking anything in return. Never posted her kindness act on Facebook or other social media sites. She just keeps quiet and does here thing... looking for the next victim. Victim of receiving gifts and grants from her.
+She gives, gives, and give without asking anything in return. Never posted her kindness act on Facebook or other social media sites.   
+She just keeps quiet and does here thing... looking for the next victim. Victim of receiving gifts and grants from her.
 
 If you think I am exaggerating, you can "Friend Request" my little sister on Facebook. Then ask help from her by saying your sad story and the next thing you know she is on her way following your request.
 
