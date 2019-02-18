@@ -8,16 +8,16 @@ It's all about "Me" or "I" or "Us" rather than "We or "You" or "Them".
 We, people, have evolved into **"Selfish Beings"** with self-centeredness, egocentricity, and egoism all attached to our belt.   
 The **"Me Always First"** attitude had made everyone more lonely as ever. Putting up a wall between others and oneself, thus creating disharmony, separation, and anxiety.
 
-Why can't we be like most influential people (fictitious or not) like Santa Claus, who brings joy to kids and child at heart who made a big impact even to this day and age. 
-Or Ludwig van Beethoven, who probably was the most predominant figure in the Classical and Romantic eras, making people learn to love music rather than hate & war. 
+Why can't we be like most influential people (fictitious or not) like Santa Claus, who brings joy to kids and child at heart who made a big impact even to this day and age.   
+Or Ludwig van Beethoven, who probably was the most predominant figure in the Classical and Romantic eras, making people learn to love music rather than hate & war.   
 Or Robinhood, who risks his own life every day to give alms and food to the poor and the needy. 
 
 Now, all of these individuals that I've mentioned have extremely philanthropic characteristics. 
 Never in my wildest dreams that I imagine myself meeting someone like them.... not in my lifetime, at least.
 
-If I do meet someone like Santa Claus or Robinhood in this day and age... that person should probably be the heir to the King of some country or a Monk who took a vacation from Nepal. 
+If I do meet someone like Santa Claus or Robinhood in this day and age... that person should probably be the heir to the King of some country or a Monk who took a vacation from Nepal.   
 I never envision seeing a legendary person like that underneath our very own roof. 
-Yes, I found the "Modern Day Robinhood"... and she is my little sister.
+Yes, I found the **"Modern Day Robinhood"**... and she is my little sister.
 
 My little sister "Meryl" was born unhesitatingly taking the crown away from me. After being the Prince in the family for 12 years, my sister took away my royalty headband and became everybody's favorite. 
 And since my sister was an adorable little creature... I had to hide my desolation and pass the crown (not to mention privilege) to her.
