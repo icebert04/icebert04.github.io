@@ -60,7 +60,7 @@ You should too. It's our responsibility as Godparents to check them out from tim
 We may not be as great as Oskar Schindler who saved more than 1,000 jews during the Holocaust.... but we can give a small contribution to our small group of Inaanak.   
 Our mere presence will be significant for them.
 
-Our Inaanak are precious gemstones.
+Our Inaanak are genuinely precious gemstones.
 After all, they are also our children. 
  
   
