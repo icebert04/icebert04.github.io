@@ -25,7 +25,7 @@ I know that I should forgive myself for it.... after all, I am just a back-up to
 If my **"Abandoned Inaanak"** saw me today and doesn't notice me anymore... I will totally understand.   
 It's all my fault and the blame is all on me.   
 But to my surprise, they still recognize and honor me as their Ninong. The respect is still there. 
-Maybe I am just lucky or maybe it's their parents good upbringing but whatever it is... I will take it. 
+Maybe I am just lucky or maybe it's their parents good upbringing, but whatever it is... I will take it. 
 
 So while I am writing this article, I am simultaneously looking at their Facebook profiles.   
 All of them turned out to be handsome and pretty young adults.   
