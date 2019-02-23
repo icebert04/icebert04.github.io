@@ -13,7 +13,7 @@ Not all of them are my friends on social media.
 My Godchildren are the ones that remind me and make me remember.   
 It's an embarrassing feeling. 
 
-That is why today, I got some of their names on Facebook and checked each one them on how they are doing.   
+That is why today, I got some of their names on Facebook and checked each one of them on how they are doing.   
 Some of them are now working & earning and have a family of their own.   
 Back in the day, I made sure that I give Spider-Man action toys for the boys. And Barbie dolls for the girls.   
 Time flies so fast that I realized that I am getting old when some of these kids are now as big and tall as me.
