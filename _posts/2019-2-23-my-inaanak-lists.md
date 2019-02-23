@@ -41,7 +41,8 @@ And while I am still at it... I like to take this opportunity to send a shout-ou
 
 But hopefully, we can see each other and talk in person. I would really love that. 
 
-And for those who are still not my friend on Facebook... please Friend request me. Or reach me here in Friendillion.
+And for those who are still not my friend on Facebook... please Friend request me.   
+Or reach me here in Friendillion.
 
 Bear in mind, that I am your secondary Father... next to your biological one. 
 There is a link between us.
@@ -55,7 +56,8 @@ So that is my list of my Inaanak. I'm proud of each and every one of them.
 
 You should too. It's our responsibility as Godparents to check them out from time to time. 
 
-We may not be as great as Oskar Schindler who saved more than 1,000 jews during the Holocaust.... but we can give a small contribution to our small group of Inaanak. Our mere presence will be significant for them.
+We may not be as great as Oskar Schindler who saved more than 1,000 jews during the Holocaust.... but we can give a small contribution to our small group of Inaanak.   
+Our mere presence will be significant for them.
 
 Our Inaanak are precious gemstones.
 After all, they are also our children. 
