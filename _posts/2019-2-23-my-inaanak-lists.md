@@ -28,7 +28,8 @@ But to my surprise, they still recognize and honor me as their Ninong. The respe
 Maybe I am just lucky or maybe it's their parents good upbringing but whatever it is... I will take it. 
 
 So while I am writing this article, I am simultaneously looking at their Facebook profiles.   
-All of them turned out to be handsome and pretty young adults. They all followed their dreams and use their God-given talents perfectly. 
+All of them turned out to be handsome and pretty young adults.   
+They all followed their dreams and use their God-given talents perfectly. 
 
 My goal for this year is to maybe go and invite them for a cup of coffee or go out for dinner and get to know them more.   
 They are all interesting individuals. Each one unique and living their life how they wanted it to be.
