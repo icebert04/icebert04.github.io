@@ -37,7 +37,7 @@ I have my MacBook for my Web Development. My eldest buy the latest games for his
 The only thing that we are not is we are not here to **"Dress to Impress"**.
 
 I face people from different walks of life, and believe me, I can sense those people who are **"Materialistic"** a mile away. It's a shame to see them living that way. Some of them are close friends and relatives of mine.   
-To them, they achieved this **"Temporary Happiness"** by buying these new things. Then 3-4 months after they need to replace the thing that they bought to a newer version that just came out. It's insane.   
+To them, they achieved this **"Temporary Happiness"** by buying these new things. Then 3-4 months after, they need to replace the thing that they bought to a newer version that just came out. It's insane.   
 They are succumbing to the power of technology's persuasive power to be updated all the time. To them, they think that is necessary. 
 
 To them, their mountain is so high that it is endless. They climb and climb and climb. They sacrifice things like their health, family time, and other precious things that are completely FREE.   
