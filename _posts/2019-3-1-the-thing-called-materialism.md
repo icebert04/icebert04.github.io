@@ -4,15 +4,15 @@ published: true
 ![Materiaism](/images/Got Honda.jpg)
 
 
-A year ago, a casual friend of mine asked me this...
-"Francis, how come you're still driving that old car"?
-I responded by saying this...
+A year ago, a casual friend of mine asked me this...   
+"Francis, how come you're still driving that old car"?   
+I responded by saying this...   
 "Why not, it still runs"!
 
 My friend's face suddenly went into a fog. He can't simply understand what I am saying.
-Here are two guys with two different perceptions. 
-My friend purchased his car for the gain of his status symbol. To him, his car is meant to signify its owners' high social and economic standing. 
-For me, my car is an object to bring me from point A to point B. 
+Here are two guys with two different perceptions.   
+My friend purchased his car for the gain of his status symbol. To him, his car is meant to signify its owners' high social and economic standing.   
+For me, my car is an object to bring me from point A to point B.   
 My friend is still paying his brand new SUV's monthly amortization while mine is all paid for. 
 
 I have nothing against people buying and purchasing watches, shoes, cars, Rolex, and iPhones. After all, they have every right to use their hard earned money. 
