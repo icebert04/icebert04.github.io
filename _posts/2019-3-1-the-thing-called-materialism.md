@@ -27,13 +27,14 @@ I used to be like one of them. Having been schooled in La Salle Greenhills, a pr
 When 80% of the students there are the sons of the affluent and known people. You will be left out hanging dry out in the field if you don't have what these kids have.   
 So I had to convince my hard-working father to buy those Reeboks and Girbauds just to belong to the group. It did work... for a while. 
 
-Clearly, that is a thing of the past. And now I cultivate and nurture my children (who are homeschooled in the U.S.) to refrain or stay away from material things as much as possible. 
-They have iPhones sure, but it is the older version (to the point of being obsolete). 
+Clearly, that is a thing of the past. And now I cultivate and nurture my children (who are homeschooled in the U.S.) to refrain or stay away from material things as much as possible.   
+They have iPhones sure, but it is the older version (to the point of being obsolete).   
 They have Kevin Durant shoes from Nike but that too is old and hand downed over by their cousin Andre. 
 
-All of these cases might give you a presumption that we are cheap and killjoys but we are not like that. We buy things too... but only the things that we need.
-I have my MacBook for my Web Development. My eldest buy the latest games for his PS4. We travel, we eat out, and we go for leisurely things once in while. We spend to buy things because we need them. We do what we desire.
-The only thing that we are not is we are not here to "Dress to Impress".
+All of these cases might give you a presumption that we are cheap and killjoys but we are not like that.   
+We buy things too... but only the things that we need.   
+I have my MacBook for my Web Development. My eldest buy the latest games for his PS4. We travel, we eat out, and we go for leisurely things once in while. We spend to buy things because we need them. We do what we desire.   
+The only thing that we are not is we are not here to **"Dress to Impress"**.
 
 I face people from different walks of life, and believe me, I can sense those people who are "Materialistic" a mile away. It's a shame to see them living that way. Some of them are close friends and relatives of mine. 
 To them, they achieved this "Temporary Happiness" by buying these new things. Then 3-4 months after they need to replace the thing that they bought to a newer version that just came out. It's insane. 
