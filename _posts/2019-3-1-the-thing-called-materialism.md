@@ -15,15 +15,16 @@ My friend purchased his car for the gain of his status symbol. To him, his car i
 For me, my car is an object to bring me from point A to point B.   
 My friend is still paying his brand new SUV's monthly amortization while mine is all paid for. 
 
-I have nothing against people buying and purchasing watches, shoes, cars, Rolex, and iPhones. After all, they have every right to use their hard earned money. 
+I have nothing against people buying and purchasing watches, shoes, cars, Rolex, and iPhones. After all, they have every right to use their hard earned money.   
 But sometimes, it is too much. 
 
 People are so hooked up with material things, working long hours to attain that, and still end up being miserable. 
-They didn't know that Materialism is a system that eats them from the inside out. 
-These people define their value in terms of the objects that they own. They get stuck in a never-ending comparison. They crave external appreciation and wait to be noticed by others. And losing their true identity in the end.
+They didn't know that Materialism is a system that eats them from the inside out.   
+These people define their value in terms of the objects that they own. They get stuck in a never-ending comparison. They crave external appreciation and wait to be noticed by others.   
+And losing their true identity in the end.
 
-I used to be like one of them. Having been schooled in La Salle Greenhills, a private Catholic school exclusively for boys, I had no choice but to blend in with the crowd. 
-When 80% of the students there are the sons of the affluent and known people. You will be left out hanging dry out in the field if you don't have what these kids have. 
+I used to be like one of them. Having been schooled in La Salle Greenhills, a private Catholic school exclusively for boys, I had no choice but to blend in with the crowd.   
+When 80% of the students there are the sons of the affluent and known people. You will be left out hanging dry out in the field if you don't have what these kids have.   
 So I had to convince my hard-working father to buy those Reeboks and Girbauds just to belong to the group. It did work... for a while. 
 
 Clearly, that is a thing of the past. And now I cultivate and nurture my children (who are homeschooled in the U.S.) to refrain or stay away from material things as much as possible. 
