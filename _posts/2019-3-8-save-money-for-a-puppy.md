@@ -34,12 +34,13 @@ Chihuahua is the smallest dog in the whole world so they are A+ travel companion
 My wife sometimes places our pup in her sling bag whenever she cooks just to keep her company.   
 They can be your "Guardians of the Galaxy" and protect you from intruders. These breeds are tough as they come even with their diminutive size.
 
-Now that we come up with the breed, it is now time to look for the right breeder. 
-Now, a lot of things changed. There are a lot of scammers and crooked people that pretend they are a dog breeder. You are not even sure if you are getting the right and healthy dog.
+Now that we come up with the breed, it is now time to look for the right breeder.   
+Now, a lot of things changed. There are a lot of scammers and crooked people that pretend they are a dog breeder. You are not even sure if you are getting the right and healthy dog.   
 You'll spend Php 20,000 for a puppy and they die a few days after. There are a lot of untrusty sellers out there whose main objective is to fool you just to make a buck or two.
 
-Good thing that I know Michael Ong. He managed different breeds and continuously operates his Mirthland Kennel. Armed with a mountain of experience in dog handling and breeding, Michael has become an authority in keeping dogs. 
-He is one of the few breeders that can make a Chihuahua have a litter size of more than 5 pups.
+Good thing that I know Michael Ong.   
+He managed different breeds and continuously operates his Mirthland Kennel. Armed with a mountain of experience in dog handling and breeding, Michael has become an authority in keeping dogs.   
+He is one of the few breeders that can make a Chihuahua have a litter size of more than 5 pups.   
 He also prices his dogs reasonable enough for his loyal customers. And he has a deep devotion on learning new things that could help him improve his dog kennel.
 
 I went to Micheal, reserved one pup, and now have this wonderful long-haired Chihuahua sleeping in our bed today.
