@@ -6,11 +6,12 @@ published: true
 Dogs are so adorable! And we all love them, but let's be honest... they can be really expensive. Some of the popular breeds have a heavy price tag ranging from Php 50,000 - Php 80,000. 
 It's a figure that most people back away from.
 
-We are one of those people. We shield away from the expensive ones. 
-After all, we do have pets like our Siamese cat and Hedgehog in our home... But why do we feel that something is lacking? A dog is a dog. The reason why they are Man's Best Friend.
+We are one of those people. We shield away from the expensive ones.   
+After all, we do have pets like our Siamese cat and Hedgehog in our home... But why do we feel that something is lacking? A dog is a dog. The reason why they are Man's Best Friend.   
 So we formulated a plan to do something about it. To finally get a dog of our own. 
 
-We started off with a 10 peso coin and a "Tibuyo" or "Alkansya" (Piggy Bank). Whenever we see a 10 peso coin, we drop it off in our large Bamboo Piggy Bank. 
+We started off with a 10 peso coin and a **"Tibuyo"** or **"Alkansya"** (Piggy Bank).   
+Whenever we see a 10 peso coin, we drop it off in our large Bamboo Piggy Bank. 
 When we have too many 1 peso or 5 peso coins, we exchange that for our targeted currency value. I sometimes have a lot of 20 peso bills on my wallet and I have that changed too.
 
 We decided to do this so that there will be thrill and excitement. 
