@@ -45,8 +45,9 @@ He also prices his dogs reasonable enough for his loyal customers. And he has a 
 
 I went to Micheal, reserved one pup, and now have this wonderful long-haired Chihuahua sleeping in our bed today.
 
-Dogs are adorable and they can be ridiculously expensive. But all it takes is a 10 peso coin and a bamboo piggy bank. 
-And when you have that mindset... everything is possible. 
+Dogs are adorable and they can be ridiculously expensive.   
+But all it takes is a 10 peso coin and a bamboo piggy bank.   
+And when you have that mindset... everything is possible.   
 Who knows... You might even get a good pedigreed equestrian horse sometime in the future.
 
 
