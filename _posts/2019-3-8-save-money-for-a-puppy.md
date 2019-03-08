@@ -32,7 +32,7 @@ It took us weeks before we came up with a breed that is perfect not only for one
 We got the breed because it is the type of dog that fits each of our own personality. Their long coat makes them pretty and charming for the ladies, while them being fierce and relentless make it ideal for us boys.   
 Chihuahua is the smallest dog in the whole world so they are A+ travel companions.   
 My wife sometimes places our pup in her sling bag whenever she cooks just to keep her company.   
-They can be your "Guardians of the Galaxy" and protect you from intruders. These breeds are tough as they come even with their diminutive size.
+They can be your **"Guardians of the Galaxy"** and protect you from intruders. These breeds are tough as they come even with their diminutive size.
 
 Now that we come up with the breed, it is now time to look for the right breeder.   
 Now, a lot of things changed. There are a lot of scammers and crooked people that pretend they are a dog breeder. You are not even sure if you are getting the right and healthy dog.   
