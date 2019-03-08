@@ -12,13 +12,14 @@ So we formulated a plan to do something about it. To finally get a dog of our ow
 
 We started off with a 10 peso coin and a **"Tibuyo"** or **"Alkansya"** (Piggy Bank).   
 Whenever we see a 10 peso coin, we drop it off in our large Bamboo Piggy Bank. 
-When we have too many 1 peso or 5 peso coins, we exchange that for our targeted currency value. I sometimes have a lot of 20 peso bills on my wallet and I have that changed too.
+When we have too many 1 peso or 5 peso coins, we exchange that for our targeted currency value.   
+I sometimes have a lot of 20 peso bills on my wallet and I have that changed too.
 
-We decided to do this so that there will be thrill and excitement. 
-It's teaching my kids the value of patience and educating them that in life, everything takes a process. 
+We decided to do this so that there will be thrill and excitement.   
+It's teaching my kids the value of patience and educating them that in life, everything takes a process.   
 Days passed to weeks and weeks passed to months, and we noticed that our piggy bank is getting heavier by the days.
 
-Last Christmas we opened our "Alkansya" and got surprised with the amount that we saved... we accumulated a total amount of Php 12,367.75 (not bad for that bamboo twig).
+Last Christmas we opened our **"Alkansya"** and got surprised with the amount that we saved... we accumulated a total amount of Php 12,367.75 (not bad for that bamboo twig).
 
 Now, we have to choose what breed is right for our family. 
 Should we get the Rottweiler that I always wanted? Nope! that breed is too large for our home... maybe next time.
