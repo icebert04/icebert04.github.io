@@ -21,10 +21,11 @@ Days passed to weeks and weeks passed to months, and we noticed that our piggy b
 
 Last Christmas we opened our **"Alkansya"** and got surprised with the amount that we saved... we accumulated a total amount of Php 12,367.75 (not bad for that bamboo twig).
 
-Now, we have to choose what breed is right for our family. 
+Now, we have to choose what breed is right for our family.   
 Should we get the Rottweiler that I always wanted? Nope! that breed is too large for our home... maybe next time.
 
-How about a Shih Tzu? Yeah sure, my wife certainly likes them but it is too "Girlish" for me and people might have a wrong impression of me when I walk that dog out in the street. Nah, I'll have to take a raincheck on that.
+How about a Shih Tzu? Yeah sure, my wife certainly likes them but it is too **"Girlish"** for me and people might have a wrong impression of me when I walk that dog out in the street.   
+Nah, I'll have to take a raincheck on that.
 
 It took us weeks before we came up with a breed that is perfect not only for one individual but for the entire family. And that is where we decided to get a Chihuahua. 
 
