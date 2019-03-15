@@ -45,8 +45,9 @@ Take multiple pictures of the island of Palawan then send it to your photographe
 Repeat the process again and again. And the next thing you know, you are living the life of Dave.   
 Enjoying the travel and meeting new friends along the way.
 
-Business or Pleasure? I don't know why they have to take out one from it when each one is equally important to the other. 
-Our motto should be "Business AND Pleasure"! That is how we want it!  
+Business or Pleasure?   
+I don't know why they have to take out one from it when each one is equally important to the other.   
+Our motto should be **"Business AND Pleasure"**! That is how we want it!  
 
   
 
