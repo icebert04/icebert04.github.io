@@ -39,8 +39,11 @@ Then he came to the Philippines. He got our Cloth Pillows, Vine Baskets. and Aba
 Here is a guy who can afford to travel to a lot of countries, bring good stuff home, sells it and make a good profit, then he goes repeat the process again and again.
 He also accumulates new friends from the places that he went. Whether they became his suppliers, business partners, or just simply a buddy that he can talk with... Dave has become fully integrated into the lives of each and every one of them. 
 
-We can be like Dave even here in our own country. Travel to Batad then buy organic rice. Give the organic rice as a token of appreciation to your friend in Manila who owns a resort in Busuanga island. Take multiple pictures of the island of Palawan then send it to your photographer/rancher friend in Masbate. Bring home quality beef from her farm and give it as a gift to anybody that you like.
-Repeat the process again and again. And the next thing you know, you are living the life of Dave. Enjoying the travel and meeting new friends along the way.
+We can be like Dave even here in our own country.   
+Travel to Batad then buy organic rice. Give the organic rice as a token of appreciation to your friend in Manila who owns a resort in Busuanga island.   
+Take multiple pictures of the island of Palawan then send it to your photographer/rancher friend in Masbate. Bring home quality beef from her farm and give it as a gift to anybody that you like.   
+Repeat the process again and again. And the next thing you know, you are living the life of Dave.   
+Enjoying the travel and meeting new friends along the way.
 
 Business or Pleasure? I don't know why they have to take out one from it when each one is equally important to the other. 
 Our motto should be "Business AND Pleasure"! That is how we want it!  
