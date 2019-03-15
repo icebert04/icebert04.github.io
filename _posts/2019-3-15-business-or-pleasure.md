@@ -9,7 +9,7 @@ Are you here for... **"Business or Pleasure"**?
 
 Almost all countries differentiate between a Business/Work Visa and a Travel/Pleasure Visa. When the Customs guy asks you for your statement of purpose, they cross check your passport for Business or Visa Travel.
 
-My friend Dave is different. When asked if he is in the country for Business or Pleasure... he answers by saying: "I'm here for both"!
+My friend Dave is different. When asked if he is in the country for Business or Pleasure... he answers by saying: **"I'm here for both"**!
 
 I met Dave a few years back and did help him with his online store site and social media marketing. This guy from New York earns a living by selling high-quality handmade decor products and imported crafts and artifacts.
 
