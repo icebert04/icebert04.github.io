@@ -26,11 +26,12 @@ He began his travel in Africa. He spent 20 years going from one country to anoth
 I personally liked some of his precious items like the Malian Painted Wood Fish (Mali), the Sahara authoritative bracelet (Western Sahara), Rwanda bizarre arts (Rwanda), and the Koulango Water Pot (Côte d’Ivoire).   
 Each of this piece will be a fine addition to every home.
 
-In the early 2000s, Dave decided to expand his traveling to Southeast Asia. First was Vietnam, then our beautiful country... The Philippines.
-His top of the line products from Vietnam is his 2000-year-old Dong Son Basin and the Contemporary Soapstone Boxes. 
-I remember Dave telling me a story where he collected, bought, begged, and even scavenged for antique hands that are cut off from the dissipated Saints figurines.  
-I asked him... "What are you gonna do with those"? 
-He said... "I don't know, but they look really nice"!  
+In the early 2000s, Dave decided to expand his traveling to Southeast Asia.   
+First was Vietnam, then our beautiful country... The Philippines.   
+His top of the line products from Vietnam is his 2000-year-old Dong Son Basin and the Contemporary Soapstone Boxes.   
+I remember Dave telling me a story where he collected, bought, begged, and even scavenged for antique hands that are cut off from the dissipated Saints figurines.   
+I asked him... **"What are you gonna do with those"**?   
+He said... **"I don't know, but they look really nice"**!   
 I have to agree... it does look nice!
 
 Then he came to the Philippines. He got our Cloth Pillows, Vine Baskets. and Abaca Rug just in time for the #NYNOW2018 event where most rich people go to buy their stuff to add to their collection.
