@@ -13,7 +13,8 @@ My friend Dave is different. When asked if he is in the country for Business or 
 
 I met Dave a few years back and did help him with his online store site and social media marketing. This guy from New York earns a living by selling high-quality handmade decor products and imported crafts and artifacts.
 
-Dave is not the typical trader where they buy an item for $ 1 dollar and sell it for $ 2 dollars. He rigidly abided by the Fair Trade principles and worked closely with local producers in many countries to obtain the best products and craftsmanship to promote the well-being of their country's culture. 
+Dave is not the typical trader where they buy an item for $ 1 dollar and sell it for $ 2 dollars.   
+He rigidly abided by the Fair Trade principles and worked closely with local producers in many countries to obtain the best products and craftsmanship to promote the well-being of their country's culture.   
 Dave educates his customers in the United States on the tradition of his products. He ensures that his items will enhance their homes, provoke long discussion, and accentuate appreciation.
 
 He never knew that this will be his profession in life. He initially started just like you and me... travel to one country, take casual pictures, then go back home. 
