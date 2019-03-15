@@ -3,8 +3,9 @@ published: true
 ---
 ![Travel](/images/Spetka 2.jpg)
 
-In most airports, travelers normally go through customs where they are ask for the reason of their trip.  Immigration officers often ask this universal question: 
-Are you here for... "Business or Pleasure"?  
+In most airports, travelers normally go through customs where they are ask for the reason of their trip.   
+Immigration officers often ask this universal question:   
+Are you here for... **"Business or Pleasure"**?  
 
 Almost all countries differentiate between a Business/Work Visa and a Travel/Pleasure Visa. When the Customs guy asks you for your statement of purpose, they cross check your passport for Business or Visa Travel.
 
