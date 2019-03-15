@@ -36,7 +36,7 @@ I have to agree... it does look nice!
 
 Then he came to the Philippines. He got our Cloth Pillows, Vine Baskets. and Abaca Rug just in time for the #NYNOW2018 event where most rich people go to buy their stuff to add to their collection.
 
-Here is a guy who can afford to travel to a lot of countries, bring good stuff home, sells it and make a good profit, then he goes repeat the process again and again.
+Here is a guy who can afford to travel to a lot of countries, bring good stuff home, sells it and make a good profit, then he goes repeat the process again and again.   
 He also accumulates new friends from the places that he went. Whether they became his suppliers, business partners, or just simply a buddy that he can talk with... Dave has become fully integrated into the lives of each and every one of them. 
 
 We can be like Dave even here in our own country.   
