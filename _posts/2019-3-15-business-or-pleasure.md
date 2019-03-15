@@ -22,8 +22,8 @@ He initially started just like you and me... travel to one country, take casual 
 But he fell in love with each and every country that he traveled. 
 Dave took time to know the people and their culture. And eventually being accustomed to the products that they are making. Thus, making him an expert in that field.
 
-He began his travel in Africa. He spent 20 years going from one country to another then bringing the goodies back to New York. 
-I personally liked some of his precious items like the Malian Painted Wood Fish (Mali), the Sahara authoritative bracelet (Western Sahara), Rwanda bizarre arts (Rwanda), and the Koulango Water Pot (Côte d’Ivoire). 
+He began his travel in Africa. He spent 20 years going from one country to another then bringing the goodies back to New York.   
+I personally liked some of his precious items like the Malian Painted Wood Fish (Mali), the Sahara authoritative bracelet (Western Sahara), Rwanda bizarre arts (Rwanda), and the Koulango Water Pot (Côte d’Ivoire).   
 Each of this piece will be a fine addition to every home.
 
 In the early 2000s, Dave decided to expand his traveling to Southeast Asia. First was Vietnam, then our beautiful country... The Philippines.
