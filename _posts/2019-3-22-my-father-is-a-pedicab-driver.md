@@ -39,7 +39,9 @@ His hands and palm are rough from the endless travel carrying his passengers to 
 I'm sharing this story to you to hopefully inspire you. That if a merely Pedicab driver like Mang Danilo can bring his children to top universities then so do we.   
 Instead of complaining of the skyrocketing prices of the tuition fees of our kids, we should be thankful that we had a sturdy job at the office, in an air-conditioned room, and earning 10 times more.
 
-While the youth should take note of Grace. She probably sacrificed everything just to finish her degree. She Studied while everybody wants to Party. She spent long nights reading books and grasping high grades knowing the fact that her father, who is miles away, is doing the same thing basked under the heat of the sun. 
+While the youth should take note of Grace.   
+She probably sacrificed everything just to finish her degree. She Studied while everybody wants to Party.   
+She spent long nights reading books and grasping high grades knowing the fact that her father, who is miles away, is doing the same thing basked under the heat of the sun. 
 
 It is so nice to hear stories like Mang Danilo and Grace. They are the perfect example showing everybody that "Everything is Possible". 
 "Life is not a matter of having good cards, but of playing a poor hand well"!
