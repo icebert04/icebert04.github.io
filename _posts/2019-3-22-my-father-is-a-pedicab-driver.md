@@ -51,6 +51,6 @@ I used to think that I have a poor deck of cards.
 But knowing that I have a supportive Father and a loving Mother. A strong united family consists of my wife and my 2 boys... I realized that I have a pretty good hand.   
 It is now up to me how to use it wisely.
 
-I may not be as good as Mang Danilo and Grace, but I at least I am trying.
+I may not be as good as Mang Danilo and Grace, but at least I am trying.
 
 How about you? How are you playing your cards lately?
