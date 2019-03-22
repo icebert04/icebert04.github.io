@@ -27,8 +27,9 @@ From what I've heard, the going rate of these drivers has an average income of a
 An income that may be enough for a single individual in the province but definitely not enough to support a family of 5. 
 
 I was able to talk to Mang Danilo (father of Grace) before they went to the oath taking. 
-According to him, he had to wear several hats to help make ends meet. From early morning to almost midnight, he would ferry passengers in his pedicab on the streets.
-His spouse is a house-wife taking care of 3 kids, so he needs to add more income for his family. Sometimes, he would run errands for a local Carenderia (Eatery). 
+According to him, he had to wear several hats to help make ends meet.   
+From early morning to almost midnight, he would ferry passengers in his pedicab on the streets.   
+His spouse is a house-wife taking care of 3 kids, so he needs to add more income for his family. Sometimes, he would run errands for a local Carenderia (Eatery).   
 And there are times that he worked for manual labor in exchange for basic foods like Fish & Vegetable like Ampalaya, Sitaw, and Okra. 
 
 As you can see from the photo, Mang Danilo really worked hard and long. His dark skin complexion is from his long stay under the sun waiting for passengers. His hands and palm are rough from the endless travel carrying his passengers to and from. 
