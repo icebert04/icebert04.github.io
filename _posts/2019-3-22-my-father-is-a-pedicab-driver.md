@@ -43,9 +43,9 @@ While the youth should take note of Grace.
 She probably sacrificed everything just to finish her degree. She Studied while everybody wants to Party.   
 She spent long nights reading books and grasping high grades knowing the fact that her father, who is miles away, is doing the same thing basked under the heat of the sun. 
 
-It is so nice to hear stories like Mang Danilo and Grace. They are the perfect example showing everybody that "Everything is Possible". 
-"Life is not a matter of having good cards, but of playing a poor hand well"!
-"You either get bitter or you get better"! 
+It is so nice to hear stories like Mang Danilo and Grace. They are the perfect example showing everybody that "**Everything is Possible**". 
+**"Life is not a matter of having good cards, but of playing a poor hand well"**!
+**"You either get bitter or you get better"**! 
 
 I used to think that I have a poor deck of cards. But knowing that I have a supportive Father and a loving Mother. A strong united family consists of my wife and my 2 boys... I realized that I have a pretty good hand.
 It is now up to me how to use it wisely.
