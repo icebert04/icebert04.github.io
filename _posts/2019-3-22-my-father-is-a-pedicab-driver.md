@@ -4,7 +4,7 @@ published: true
 ![Pedicab](/images/Pedicab Driver.jpg)
 
 A few months ago, a sweet lady from the province of Eastern Samar came by and visited us. She needs to attend the oath-taking ceremony of New Psychologists & Psychometricians for 2018.   
-Grace was excited because she is one of the top notchers of her batch. And as Passers/Oath takers, each one is entitled to bring their parents as their guests.
+Grace was excited because she is one of the top notchers of her batch. And as Passers/Oath takers, each one is entitled to bring their parents as their guests.   
 Since it cost money to bring all her family to Manila, Grace choose her Dad to the said event.
 
 Grace and I were doing casual talks while waiting for her Dad's arrival. And during our spontaneous discussion, I asked this to Grace...
