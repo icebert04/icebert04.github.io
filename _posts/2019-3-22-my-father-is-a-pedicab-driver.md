@@ -18,7 +18,8 @@ Grace replied and said...
 I paused for about 5 minutes. I didn't know what to say or how to react to it.   
 Most people will be ashamed to disclose something like that but Grace managed to say it beautifully in front of me.
 
-She was not ashamed to say it nor overly proud to announce it. It is just the way it is. It's their life and how their cards are being dealt with. 
+She was not ashamed to say it nor overly proud to announce it.   
+It is just the way it is.  It's their life and how their cards are being dealt with. 
 
 Here is another inspiring story of a poor father able to raise his family to a more secure life by bringing all his kids to proper education knowing that it is the only way for them to get a better life. 
 For those who are not aware, Pedicab drivers (also known as a "Bicycle Rickshaw") are one of the lowest income earners here in the Philippines. 
