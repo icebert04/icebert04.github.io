@@ -47,7 +47,8 @@ It is so nice to hear stories like Mang Danilo and Grace. They are the perfect e
 **"Life is not a matter of having good cards, but of playing a poor hand well"**!   
 **"You either get bitter or you get better"**! 
 
-I used to think that I have a poor deck of cards. But knowing that I have a supportive Father and a loving Mother. A strong united family consists of my wife and my 2 boys... I realized that I have a pretty good hand.
+I used to think that I have a poor deck of cards.   
+But knowing that I have a supportive Father and a loving Mother. A strong united family consists of my wife and my 2 boys... I realized that I have a pretty good hand.   
 It is now up to me how to use it wisely.
 
 I may not be as good as Mang Danilo and Grace, but I at least I am trying.
