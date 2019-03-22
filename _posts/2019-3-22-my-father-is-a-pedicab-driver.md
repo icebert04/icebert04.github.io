@@ -13,9 +13,9 @@ Grace and I were doing casual talks while waiting for her Dad's arrival. And dur
 
 Grace replied and said...
 
-"**My Father is a Pedicab Driver**".
+"**My Father is a PEDICAB DRIVER**".
 
-I paused for about 5 minutes. I didn't know what to say or how to react to it. 
+I paused for about 5 minutes. I didn't know what to say or how to react to it.   
 Most people will be ashamed to disclose something like that but Grace managed to say it beautifully in front of me.
 
 She was not ashamed to say it nor overly proud to announce it. It is just the way it is. It's their life and how their cards are being dealt with. 
