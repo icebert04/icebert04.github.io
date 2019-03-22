@@ -32,8 +32,9 @@ From early morning to almost midnight, he would ferry passengers in his pedicab 
 His spouse is a house-wife taking care of 3 kids, so he needs to add more income for his family. Sometimes, he would run errands for a local Carenderia (Eatery).   
 And there are times that he worked for manual labor in exchange for basic foods like Fish & Vegetable like Ampalaya, Sitaw, and Okra. 
 
-As you can see from the photo, Mang Danilo really worked hard and long. His dark skin complexion is from his long stay under the sun waiting for passengers. His hands and palm are rough from the endless travel carrying his passengers to and from. 
-It's a tough life but he still does it for the sake of his children.
+As you can see from the photo, Mang Danilo really worked hard and long.   
+His dark skin complexion is from his long stay under the sun waiting for passengers.   
+His hands and palm are rough from the endless travel carrying his passengers to and from.  It's a tough life but he still does it for the sake of his children.
 
 I'm sharing this story to you to hopefully inspire you. That if a merely Pedicab driver like Mang Danilo can bring his children to top universities then so do we.   
 Instead of complaining of the skyrocketing prices of the tuition fees of our kids, we should be thankful that we had a sturdy job at the office, in an air-conditioned room, and earning 10 times more.
