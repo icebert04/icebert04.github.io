@@ -21,9 +21,9 @@ Most people will be ashamed to disclose something like that but Grace managed to
 She was not ashamed to say it nor overly proud to announce it.   
 It is just the way it is.  It's their life and how their cards are being dealt with. 
 
-Here is another inspiring story of a poor father able to raise his family to a more secure life by bringing all his kids to proper education knowing that it is the only way for them to get a better life. 
-For those who are not aware, Pedicab drivers (also known as a "Bicycle Rickshaw") are one of the lowest income earners here in the Philippines. 
-From what I've heard, the going rate of these drivers has an average income of about Php 200 to Php 300 per day. 
+Here is another inspiring story of a poor father able to raise his family to a more secure life by bringing all his kids to proper education knowing that it is the only way for them to get a better life.   
+For those who are not aware, Pedicab drivers (also known as a "**Bicycle Rickshaw**") are one of the lowest income earners here in the Philippines.   
+From what I've heard, the going rate of these drivers has an average income of about Php 200 to Php 300 per day.   
 An income that may be enough for a single individual in the province but definitely not enough to support a family of 5. 
 
 I was able to talk to Mang Danilo (father of Grace) before they went to the oath taking. 
