@@ -13,7 +13,7 @@ Grace and I were doing casual talks while waiting for her Dad's arrival. And dur
 
 Grace replied and said...
 
-"My Father is a Pedicab Driver".
+"**My Father is a Pedicab Driver**".
 
 I paused for about 5 minutes. I didn't know what to say or how to react to it. 
 Most people will be ashamed to disclose something like that but Grace managed to say it beautifully in front of me.
