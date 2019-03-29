@@ -17,7 +17,8 @@ When everybody is afraid of the frogs, this guy makes money out of it.
 He doesn't care about the slime and the yuckiness. What he cares about is the 20,000 eggs that his frogs lay along the edge of his pond. 
 
 Chito was curious about why nobody bothered to breed these frogs when their meat is highly coveted. 
-Frog legs are one of the better-known delicacies of French and Chinese cuisine. Their huge legs are rich in protein, omega-3 fatty acids, vitamin A, and potassium. They are often said to taste like chicken because of their mild flavor, with a texture most similar to chicken wings.
+Frog legs are one of the better-known delicacies of French and Chinese cuisine.   
+Their huge legs are rich in protein, omega-3 fatty acids, vitamin A, and potassium. They are often said to taste like chicken because of their mild flavor, with a texture most similar to chicken wings.   
 Which explains why each year about US$40 million worth of frog legs are traded all around the world.
 
 So Chito imported these frogs from east and central US and rolled the dice. Not a doubt entered his mind. He is confident that once he gets the unknown amphibians here in our country that people will soon be patronizing his frogs. 
