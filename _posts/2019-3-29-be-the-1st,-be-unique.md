@@ -12,7 +12,7 @@ They don't want to be Ants like the rest of us. They aim to be the **"King of th
 They are the ones who made 1st of anything. They are Unique in everything that they do. 
 They aim for the long ball and have the patience to get their rewards on a much later date.
 
-Like my friend Chito for example. A former corporate head turned to Agriculture Specialist. He was the 1st in the Philippines (probably in whole Asia) to start an American Bullfrog farm.
+Like my friend Chito for example. A former corporate head turned to Agriculture Specialist. He was the 1st in the Philippines (probably in whole Asia) to start an **American Bullfrog** farm.   
 When everybody is afraid of the frogs, this guy makes money out of it. 
 He doesn't care about the slime and the yuckiness. What he cares about is the 20,000 eggs that his frogs lay along the edge of his pond. 
 
