@@ -21,7 +21,8 @@ Frog legs are one of the better-known delicacies of French and Chinese cuisine.
 Their huge legs are rich in protein, omega-3 fatty acids, vitamin A, and potassium. They are often said to taste like chicken because of their mild flavor, with a texture most similar to chicken wings.   
 Which explains why each year about US$40 million worth of frog legs are traded all around the world.
 
-So Chito imported these frogs from east and central US and rolled the dice. Not a doubt entered his mind. He is confident that once he gets the unknown amphibians here in our country that people will soon be patronizing his frogs. 
+So Chito imported these frogs from east and central US and rolled the dice.   
+Not a doubt entered his mind. He is confident that once he gets the unknown amphibians here in our country that people will soon be patronizing his frogs.   
 His assumption was right. Soon, Chinese restaurants and Hotels are calling his farm in Batangas to make their 2nd, 3rd, and nth order. 
 
 And since Chito has diverse hectares of land, he added Peking Duck (which he was one of the pioneers to start it) to abide by the request of his Filipino-Chinese customers.
