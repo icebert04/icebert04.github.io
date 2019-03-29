@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Bullfrog](/images/Bullfrog.jpg)
