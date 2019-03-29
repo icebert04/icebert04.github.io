@@ -8,7 +8,7 @@ We tend to play safe. We don't wanna get burned. And we don't go out of our comf
 That is who we are.
 
 All the ones who are brave enough, wandering the unknown, are the ones who really made a fortune. The ones who made a name for themselves.   
-They don't want to be Ants like the rest of us. They aim to be the **"King of the Jungle"** or the **"Leader of the Pack"**.
+They don't want to be Ants like the rest of us. They aim to be the **"King of the Jungle"** or the **"Leader of the Pack"**.   
 They are the ones who made 1st of anything. They are Unique in everything that they do. 
 They aim for the long ball and have the patience to get their rewards on a much later date.
 
