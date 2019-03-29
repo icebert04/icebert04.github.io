@@ -33,7 +33,7 @@ He never stops thinking, researching, and trying all agricultural components. He
 That is the essence of learning.
 
 Right now, he is into Sili (Labuyo) production. He harvests 40 kilos of hot chili every day. 
-He's semi-retired but still making a profit or two in his land. 
+He's semi-retired but still making a profit or two in his land.   
 We get to talk whenever I swing by his farm on the weekends. We had endless discussion and sharing of ideas.
 
 I learned a lot from him. I don't only acknowledge him as my Agriculture mentor but also recognize him as my friend.
