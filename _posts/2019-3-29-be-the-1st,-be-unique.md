@@ -3,8 +3,8 @@ published: true
 ---
 ![Bullfrog](/images/Bullfrog.jpg)
 
-We are created like Ants. We follow where the crowd goes. We chase the latest trends. We imitate successful business modules. 
-We tend to play safe. We don't wanna get burned. And we don't go out of our comfort zone.
+We are created like Ants. We follow where the crowd goes. We chase the latest trends. We imitate successful business modules.   
+We tend to play safe. We don't wanna get burned. And we don't go out of our comfort zone.   
 That is who we are.
 
 All the ones who are brave enough, wandering the unknown, are the ones who really made a fortune. The ones who made a name for themselves.
