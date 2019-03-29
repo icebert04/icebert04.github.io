@@ -38,7 +38,7 @@ We get to talk whenever I swing by his farm on the weekends. We had endless disc
 
 I learned a lot from him. I don't only acknowledge him as my Agriculture mentor but also recognize him as my friend.
 
-Chito told me that I should be ahead of the pack. To stand above the rest. 
+Chito told me that I should be ahead of the pack. To stand above the rest.   
 He told me to be the 1st of everything that I want to create or build. 
 To be unique and create a brand for myself.
 
