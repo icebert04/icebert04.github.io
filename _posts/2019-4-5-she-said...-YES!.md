@@ -17,9 +17,9 @@ But why is it I feel that there is something missing?
 I responded by cautiously saying... I don't know Mindy. You're asking the wrong person. 
 I am not "Dr. Love" that you can ask for advice from. 
 
-Then, I just remembered that the guy that he is marrying is 20 years older than her. While Mindy is in her early 20's. 
+Then, I just remembered that the guy that he is marrying is 20 years older than her. While Mindy is in her early 20's.   
 Although the age factor is not a big factor these days, clearly it was to these couples. 
-The guy is in his 40's who wants to settle down, have kids, and do Netflix marathon on the weekends.
+The guy is in his 40's who wants to settle down, have kids, and do Netflix marathon on the weekends.   
 Whereas Mindy is still in her energetic 20's, craving nightly alcohol shenanigans and overrun live bands. And on the weekends she does skiing and hiking up in the mountains.
 
 By not having to solve the dilemma that Mindy is undergoing. I changed the topic of our discussion and I asked how her Mom and her dog was doing. 
