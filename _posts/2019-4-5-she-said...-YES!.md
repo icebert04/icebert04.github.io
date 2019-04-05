@@ -14,7 +14,8 @@ After a long pause, Mindy said this... I really don't know Francis. I love my fi
 He's so sweet, gives me all the stuff that I want and bought me this **"Diamond Ring"**! 
 But why is it I feel that there is something missing?
 
-I responded by cautiously saying... I don't know Mindy. You're asking the wrong person. I am not "Dr. Love" that you can ask for advice from. 
+I responded by cautiously saying... I don't know Mindy. You're asking the wrong person. 
+I am not "Dr. Love" that you can ask for advice from. 
 
 Then, I just remembered that the guy that he is marrying is 20 years older than her. While Mindy is in her early 20's. 
 Although the age factor is not a big factor these days, clearly it was to these couples. 
