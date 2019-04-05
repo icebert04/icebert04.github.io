@@ -22,7 +22,7 @@ Although the age factor is not a big factor these days, clearly it was to these 
 The guy is in his 40's who wants to settle down, have kids, and do Netflix marathon on the weekends.   
 Whereas Mindy is still in her energetic 20's, craving nightly alcohol shenanigans and overrun live bands. And on the weekends she does skiing and hiking up in the mountains.
 
-By not having to solve the dilemma that Mindy is undergoing. I changed the topic of our discussion and I asked how her Mom and her dog was doing. 
+By not having to solve the dilemma that Mindy is undergoing. I changed the topic of our discussion and I asked how her Mom and her dog was doing.   
 I told her I'll call back in a week or two and that was the end of it.
 
 I don't know if it is just me, but I am really impressed with women nowadays. They are now more skilled and talented. They are more career oriented. And still remain beautiful as ever. 
