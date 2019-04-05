@@ -9,9 +9,9 @@ They have been in-and-out of a relationship for more than 4 years but they final
 But during the middle of our conversation and pleasantries, I can sense some uneasiness and anxiety from my friend. I initially thought that Mindy was just having **"Cold Feet"** just like most people who are about to get married.   
 But the tone that I was hearing from her bothered me. I can feel some sadness in her.
 
-Is everything okay Mindy? I asked. Then I repeated that same question again. 
+Is everything okay Mindy? I asked. Then I repeated that same question again.   
 After a long pause, Mindy said this... I really don't know Francis. I love my fiance. He is handsome, smart, responsible and has an amazing career.
-He's so sweet, gives me all the stuff that I want and bought me this "Diamond Ring"! 
+He's so sweet, gives me all the stuff that I want and bought me this **"Diamond Ring"**! 
 But why is it I feel that there is something missing?
 
 I responded by cautiously saying... I don't know Mindy. You're asking the wrong person. I am not "Dr. Love" that you can ask for advice from. 
