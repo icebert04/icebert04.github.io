@@ -35,7 +35,7 @@ And those are just the declared ones. They are a lot of unhappy couples forced t
 A statistic that I hope will strikingly improve with the new generation.
 
 I'm sure when I call back Mindy (or vice versa), I presumably still don't have an answer to her question. Cleary, both of us have different case and scenarios that should be treated separately.  
-I guess the only advice that I can give to my American friend is to be "True to Herself"! Look deep into her feelings and follow her heart.
+I guess the only advice that I can give to my American friend is to be **"True to Herself"**! Look deep into her feelings and follow her heart.   
 It's either she gives the guy a chance or delay the wedding. There are lots of possible options to consider but the final decision will only be hers.
 
 You just got to believe in love. There is no such thing as a Perfect Marriage or the Perfect Guy. There is not even a Perfect Life. 
