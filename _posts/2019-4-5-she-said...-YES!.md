@@ -5,8 +5,8 @@ published: true
 
 My friend Mindy from Denver sent me an email 3 days ago about the Fairy Tale that she is having at the moment. In that email was a piece of important information saying that the man of his dreams had popped the question and ask her to marry her.... and she said YES!
 
-They have been in-and-out of a relationship for more than 4 years but they finally decided to tie the knot. I was thrilled to hear the exciting news that I video called her at WhatsApp and submit her my congratulations & best wishes. 
-But during the middle of our conversation and pleasantries, I can sense some uneasiness and anxiety from my friend. I initially thought that Mindy was just having "Cold Feet" just like most people who are about to get married. 
+They have been in-and-out of a relationship for more than 4 years but they finally decided to tie the knot. I was thrilled to hear the exciting news that I video called her at WhatsApp and submit her my congratulations & best wishes.   
+But during the middle of our conversation and pleasantries, I can sense some uneasiness and anxiety from my friend. I initially thought that Mindy was just having **"Cold Feet"** just like most people who are about to get married.   
 But the tone that I was hearing from her bothered me. I can feel some sadness in her.
 
 Is everything okay Mindy? I asked. Then I repeated that same question again. 
