@@ -10,7 +10,7 @@ But during the middle of our conversation and pleasantries, I can sense some une
 But the tone that I was hearing from her bothered me. I can feel some sadness in her.
 
 Is everything okay Mindy? I asked. Then I repeated that same question again.   
-After a long pause, Mindy said this... I really don't know Francis. I love my fiance. He is handsome, smart, responsible and has an amazing career.
+After a long pause, Mindy said this... I really don't know Francis. I love my fiance.   He is handsome, smart, responsible and has an amazing career.
 He's so sweet, gives me all the stuff that I want and bought me this **"Diamond Ring"**! 
 But why is it I feel that there is something missing?
 
