@@ -30,8 +30,8 @@ They are now more skilled and talented. They are more career oriented. And still
 They don't jump to conclusions and they reaffirm whenever they had to do a big decision in their life (just like Mindy's).   
 Women are not only **"Thinkers"** in our society but also **"Doers"**, thus making our life with them much much better.
 
- You might be surprised but 50% of married couples in the United States divorce. There is one divorce approximately every 36 seconds. That's nearly 2,400 divorces per day, 16,800 divorces per week and 876,000 divorces a year.
-And those are just the declared ones. They are a lot of unhappy couples forced to live together just for the sake of their kids well being. 
+You might be surprised but 50% of married couples in the United States divorce. There is one divorce approximately every 36 seconds. That's nearly 2,400 divorces per day, 16,800 divorces per week and 876,000 divorces a year.   
+And those are just the declared ones. They are a lot of unhappy couples forced to live together just for the sake of their kids well being.   
 A statistic that I hope will strikingly improve with the new generation.
 
 I'm sure when I call back Mindy (or vice versa), I presumably still don't have an answer to her question. Cleary, both of us have different case and scenarios that should be treated separately.  
