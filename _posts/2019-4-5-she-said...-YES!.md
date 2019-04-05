@@ -40,7 +40,7 @@ It's either she gives the guy a chance or delay the wedding. There are lots of p
 
 You just got to believe in love. There is no such thing as a Perfect Marriage or the Perfect Guy. There is not even a Perfect Life. 
 
-But if you are living in a Realistic Marriage with a Realistic Guy on a Realistic Life. And you are overly grateful and content with that. 
-Then I say that you have found that Diamond Ring that says Forever. 
-A forever feeling like love is surrounded all around you and you receive it every single day.
+But if you are living in a Realistic Marriage with a Realistic Guy on a Realistic Life. And you are overly grateful and content with that.   
+Then I say that you have found that Diamond Ring that says Forever.   
+A forever feeling like love is surrounded all around you and you receive it every single day.   
 It's definitely a Diamond Ring that everybody will say YES to!
