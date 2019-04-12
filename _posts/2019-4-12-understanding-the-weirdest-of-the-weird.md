@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ![Weird](/images/Hogwarts.jpg)
 
