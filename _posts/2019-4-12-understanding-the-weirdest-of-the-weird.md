@@ -29,8 +29,9 @@ The question is this...
 Why the pause? I paused because I know it took you only a few seconds to count.   
 They are not much are they? 
 
-And I bet it applies to everyone in this world. We only have a few because we don't want to get hurt. Get hurt by somebody who is "New to our Lives". 
-That we close our doors to them by saying that our friend's list is "All Full".
+And I bet it applies to everyone in this world. We only have a few because we don't want to get hurt.   
+Get hurt by somebody who is **"New"** to our lives.   
+That we close our doors to them by saying that our friend's list is **"All Full"**.
 
  Allow me to give you one suitable example. We all love animals. And I have to believe that 90% of us have pets in the house.
 My question is this... What kind of animals do you have?
