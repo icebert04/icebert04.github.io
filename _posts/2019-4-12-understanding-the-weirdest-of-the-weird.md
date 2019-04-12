@@ -26,7 +26,8 @@ The question is this...
 
 ......
 
-Why the pause? I paused because I know it took you only a few seconds to count. They are not much are they? 
+Why the pause? I paused because I know it took you only a few seconds to count.   
+They are not much are they? 
 
 And I bet it applies to everyone in this world. We only have a few because we don't want to get hurt. Get hurt by somebody who is "New to our Lives". 
 That we close our doors to them by saying that our friend's list is "All Full".
