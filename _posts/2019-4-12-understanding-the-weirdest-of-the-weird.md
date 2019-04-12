@@ -70,7 +70,7 @@ They may be weird and different but (believe it or not) they do also have some g
 
 And to fully Understand the Weirdest of the Weird, we commit to memory these 3 words...
 
-EVALUATE. EDIT. EVOLVE.
+**EVALUATE**. **EDIT**. **EVOLVE**.
 
 Recognize these souls when they come into your life. Hold on to them. Invest in them. 
 They come in many forms (human or beast alike) but they all come from one source. 
