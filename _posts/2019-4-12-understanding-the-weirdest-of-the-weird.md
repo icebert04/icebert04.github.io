@@ -64,8 +64,9 @@ That there is a **"Soft Spot"** in all Weird and Wild animals.
 That they too can be your **"Beloved Pets"** if we know how to handle them correctly.
 And by this, I learned the true value of... **"Understanding"**.
 
-2.) FOR HUMANS:
-With these new "Understanding", maybe there is a chance to get to know "New Friends". They may be weird and different but (believe it or not) they do also have some good qualities in them.
+2.) **FOR HUMANS**:
+With these new **"Understanding"**, maybe there is a chance to get to know **"New Friends"**.   
+They may be weird and different but (believe it or not) they do also have some good qualities in them.
 
 And to fully Understand the Weirdest of the Weird, we commit to memory these 3 words...
 
