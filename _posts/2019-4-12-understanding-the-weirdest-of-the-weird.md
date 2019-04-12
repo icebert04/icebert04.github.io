@@ -74,7 +74,7 @@ And to fully Understand the Weirdest of the Weird, we commit to memory these 3 w
 
 Recognize these souls when they come into your life. Hold on to them. Invest in them. 
 They come in many forms (human or beast alike) but they all come from one source.   
-It's hard I know, especially if you encounter the weird like the Haters, the Hypocrites and even the most Evil of them all.   
+It's difficult I know, especially if you encounter the weird like the Haters, the Hypocrites and even the most Evil of them all.   
 God created them for a reason and it is obvious that God loves them equally as to us. 
 Maybe the reason they are like that is that they are hurting deep inside. Maybe they can't handle the pain and want to throw their trash to somebody else.
 
