@@ -78,8 +78,8 @@ It's hard I know, especially if you encounter the weird like the Haters, the Hyp
 God created them for a reason and it is obvious that God loves them equally as to us. 
 Maybe the reason they are like that is that they are hurting deep inside. Maybe they can't handle the pain and want to throw their trash to somebody else.
 
-You are the one with a "Deeper Understanding". 
-Don't hate them nor despise them. But rather accept them and try to fix them. 
+You are the one with a **"Deeper Understanding"**.   
+Don't hate them nor despise them. But rather accept them and try to fix them.   
 You'll never know, maybe that one troubled person will make a Big Footprint in your Heart! 
 
 
