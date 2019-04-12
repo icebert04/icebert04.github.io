@@ -53,7 +53,7 @@ Still, I kept it as a pet knowing that something good will come out of it.
 
 And with all the numerous bites on my finger and several pricks & pokes in my hand, I enduringly came to accept the wild beast. 
 After a period of time, I learned to understand that weird animal.   
-I recently found out that not all of **"Hogwarts"** (name of our pet) body is covered with spikes. Their bellies are surprisingly soft (just like cotton candy).   
+I recently found out that not all of **"Hogwarts"** (name of our pet) body is covered with spikes. His belly is surprisingly soft (just like cotton candy).   
 Meaning to say, you can get the spiky animal by sliding your hand at the bottom in order to carry them. And when they are relaxed and not in defensive mode they can snuggle up to their human companions. 
 
 Did something good come out of it... Absolutely!!!
