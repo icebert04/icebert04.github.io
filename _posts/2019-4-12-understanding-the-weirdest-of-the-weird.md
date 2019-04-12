@@ -45,10 +45,10 @@ Rarely of you have those wild, exotic and dangerous animals. Those creatures tha
 Why don't we all change that. Let's try to be more bold & adventurous and see what good will it bring us. 
 I, for one, is starting to do that. 
 
-I got an Exotic animal that most people won't bother to keep in their house. Me and my family have now an adult albino Hedgehog in our home. 
+I got an Exotic animal that most people won't bother to keep in their house. Me and my family have now an adult albino Hedgehog in our home.   
 It's a kind of animal that is outside of our norm and certainly does not make good pets. 
-They are wild animals. They are like porcupines with all the prickly and spiky thorns all around their body. 
-Hedgehogs can be dangerous because their quills can penetrate our skin and have been known to spread a bacteria germ that can cause fever, stomach pain, and a rash.
+They are wild animals. They are like porcupines with all the prickly and spiky thorns all around their body.   
+Hedgehogs can be dangerous because their quills can penetrate our skin and have been known to spread a bacteria germ that can cause fever, stomach pain, and a rash.   
 Still, I kept it as a pet knowing that something good will come out of it.
 
 And with all the numerous bites on my finger and several pricks & pokes in my hand, I enduringly came to accept the wild beast. 
