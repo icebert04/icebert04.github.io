@@ -13,7 +13,7 @@ Because of this, we become **"Picky"**! We think hard and choose the right frien
 The ones who are loyal, true, sincere, kind, honest and most of the words that you can find in the Walt Disney movies.   
 Because we are the sum of the company that we keep. And by that, we are attracted to those who mirror our social identity. 
 
-To put this perspective in real life... I'm going to ask you a question. 
+To put this perspective in real life... I'm going to ask you a question.   
 You don't have to answer or reply back. I just want you to grasp the substance of what I'm writing today.
 
 The question is this...
