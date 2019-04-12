@@ -3,7 +3,7 @@ published: true
 ---
 ![Weird](/images/Hogwarts.jpg)
 
-How accepting Weird Animals can teach us to understand Weird Humans...
+How accepting **Weird Animals** can teach us to understand **Weird Humans**...
 
 We are all taught to choose our friends wisely. It's imperative that we should do that. It's the only way to stay away from the Haters, Betrayers, and Backstabbers. 
 Having friends can determine where you are going. Your friends can either make you or break you. They could be really nice to you today and kill (not literally) you tomorrow.
