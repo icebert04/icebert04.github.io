@@ -59,10 +59,10 @@ Meaning to say, you can get the spiky animal by sliding your hand at the bottom 
 Did something good come out of it... Absolutely!!!
 I learned two important things...
 
-1.) FOR ANIMALS:
-That there is a "Soft Spot" in all Weird and Wild animals. 
-That they too can be your "Beloved Pets" if we know how to handle them correctly.
-And by this, I learned the true value of... "Understanding".
+1.) **FOR ANIMALS**:
+That there is a **"Soft Spot"** in all Weird and Wild animals.   
+That they too can be your **"Beloved Pets"** if we know how to handle them correctly.
+And by this, I learned the true value of... **"Understanding"**.
 
 2.) FOR HUMANS:
 With these new "Understanding", maybe there is a chance to get to know "New Friends". They may be weird and different but (believe it or not) they do also have some good qualities in them.
