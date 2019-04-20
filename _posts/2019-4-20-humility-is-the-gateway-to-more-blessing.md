@@ -3,11 +3,12 @@ published: true
 ---
 ![Classmate](/images/Humility.jpg)
 
-"How not to be MAYABANG po..."
+"How not to be **MAYABANG** po..."
 
-Me and my wife love to go to our hometown in Balayan Batangas. It's a roughly 2 hours drive from Manila, and it's the perfect place for us to unwind and unload the pressure of city living.
+Me and my wife love to go to our hometown in **Balayan Batangas**. It's a roughly 2 hours drive from Manila, and it's the perfect place for us to unwind and unload the pressure of city living.
 
-Balayan is a small town of happy and kind people. Everybody is a friend there even if you are a stranger. You are welcome to each and everyone's house even if there's no event. They love to communicate and bond with you at any time of the day. 
+Balayan is a small town of happy and kind people. Everybody is a friend there even if you are a stranger.   
+You are welcome to each and everyone's house even if there's no event. They love to communicate and bond with you at any time of the day. 
 
 The only problem with this small town is that there is not enough jobs and businesses for the locals. Unless you are one of the locals who belong to the rich families with abundant of lands, you have no choice but to "Flee away" to scavenge for a livelihood for you and your family. 
 So it's either they go to Manila to work, or go abroad and take their chances of bringing a fortune to the family that they left behind. 
