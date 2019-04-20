@@ -31,7 +31,7 @@ We speak their native language (**The Ala-Eh version**).
 We don't use our car and just ride the tricycle or even walk.   
 After all, we are locals too. We just work in Manila for a living but that doesn't change a thing. We are still like most of them.
 
-So soon that I've heard that my wife will be attending her high school reunion, I quickly asked my wife if I could tag along so that I could see her old friends there.   
+So soon that I've heard that my wife will be attending her high school reunion in Balayan, I quickly asked my wife if I could tag along so that I could see her old friends there.   
 It was an exciting moment. I met Richard, the guy who planted Italian Tomatoes in the province. 
 I also got to talk to Donna, a housewife, who is making a killing on her delectable **"Kakanin"** like Peanut Roll and Puto Flan.   
 These two still remains locals in our town, with kids, and as happy as ever.
