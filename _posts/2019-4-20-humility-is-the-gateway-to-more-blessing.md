@@ -36,7 +36,7 @@ It was an exciting moment. I met Richard, the guy who planted Italian Tomatoes i
 I also got to talk to Donna, a housewife, who is making a killing on her delectable **"Kakanin"** like Peanut Roll and Puto Flan.   
 These two still remains locals in our town, with kids, and as happy as ever.
 
-And when I've heard Sheryl, their classmate who now works in Italy, will be coming over... that's is when I started to become cautious.   
+And when I've heard Sheryl (picture at extreme right), their classmate who now works in Italy, will be coming over... that's is when I started to become cautious.   
 I said to my wife... **"What another one"**?   
 Then I calm down and said to myself... **"Be ready for it Francis"**! **"Let the games begin"**!
 
