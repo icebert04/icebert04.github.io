@@ -59,9 +59,9 @@ But they don't want to build a **"Super Big House"**.
 They said they don't need it. Their sons might be migrating to Italy in the future so why construct something that they won't be using.   
 **"If it's just for show then forget it"**... The couple said to me.
 
-I wished everybody will be like Sheryl. 
-Whether we are working abroad, being the Vice-President in a company in Manila, or being fortunate to inherit agricultural lands. 
-It's not the financial success that we should talk about. But rather our character. Our personality that gives delight and gratification to most people. 
+I wished everybody will be like Sheryl.   
+Whether we are working abroad, being the Vice-President in a company in Manila, or being fortunate to inherit agricultural lands.   
+It's not the financial success that we should talk about. But rather our character. Our personality that gives delight and gratification to most people.   
 And our humility of putting our feet always on the ground.
 
 A priest once told me that "Humility is the Gateway to more Blessings".
