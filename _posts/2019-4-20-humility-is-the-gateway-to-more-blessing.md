@@ -11,7 +11,7 @@ Balayan is a small town of happy and kind people. Everybody is a friend there ev
 You are welcome to each and everyone's house even if there's no event. They love to communicate and bond with you at any time of the day. 
 
 The only problem with this small town is that there is not enough jobs and businesses for the locals.   
-Unless you are one of the locals who belong to the rich families with abundant of lands, you have no choice but to **"Flee away"** to scavenge for a livelihood for you and your family. 
+Unless you are one of the locals who belong to the rich families with abundant of lands, you have no choice but to **"Flee away"** to scavenge for a livelihood for you and your family.   
 So it's either they go to Manila to work, or go abroad and take their chances of bringing a fortune to the family that they left behind. 
 
 In Balayan, most of the locals go to Italy. Until now, I can't decipher why most of them go to Italy.   
