@@ -25,7 +25,7 @@ These **"Balikbayans"** has become too proud of themselves. They somehow forgot 
 But since they are still considered a local, we have to accept them or better yet understand them, and greet them with compassion and not an inch of animosity.   
 Balayan is a well-cherished place. Everybody is welcome here whether you're a local or not.
 
-When we are in Balayan, we don't act like we are Urban stiffs. 
+When me and my wife are in Balayan, we don't act like we are Urban stiffs. 
 We act like a local.   
 We speak their native language (**The Ala-Eh version**). 
 We don't use our car and just ride the tricycle or even walk.   
