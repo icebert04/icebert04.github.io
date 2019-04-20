@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Classmate](/images/Humility.jpg)
