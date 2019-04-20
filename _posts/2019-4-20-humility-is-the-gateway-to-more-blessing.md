@@ -64,10 +64,10 @@ Whether we are working abroad, being the Vice-President in a company in Manila, 
 It's not the financial success that we should talk about. But rather our character. Our personality that gives delight and gratification to most people.   
 And our humility of putting our feet always on the ground.
 
-A priest once told me that "Humility is the Gateway to more Blessings".
-I believe that it's true. God rewards those people who are humble and teaches the ones who are not. 
+A priest once told me that **"Humility is the Gateway to more Blessings"**.   
+I believe that it's true. God rewards those people who are humble and teaches the ones who are not.   
 Being humble teaches us where we came from, and also open our hearts to those who are in need. 
-We then help these people. We encourage them to be successful in life. 
+We then help these people. We encourage them to be successful in life.   
 It is a habitual act that also influences the people around us, therefore making that circle bigger and bigger. Creating a community of kindness.
 
 We commonly call it "Good Karma". A boomerang that you threw will naturally go back to you. Showing people that you are humble and helping them without asking anything in return.
