@@ -45,7 +45,7 @@ To my surprise, they never wear any piece of jewelry nor brought any pricey item
 They just wear things as Balayan people wore. Simple, plain, and modest. 
 They never talked about their success in Italy or the kind of money that they are earning from the country that they worked for so many years.
 
-I have to tell you... I was impressed and extremely overwhelmed! 
+I have to tell you... I was impressed and extremely overwhelmed!   
 They are like the same people when they were still in high school.   
 Especially Sheryl, who is my wife's close friend in high school. Sheryl is very **"Malumanay magsalita"** or very softspoken.   
 I can feel her sincerity even if I just recently met her. I learned her true character when she discussed to me her somewhat sad story.
