@@ -41,13 +41,13 @@ I said to my wife... **"What another one"**?
 Then I calm down and said to myself... **"Be ready for it Francis"**! **"Let the games begin"**!
 
 In comes Sheryl with her husband Rommel (who also works in Italy). 
-To my surprise, they never wear any piece of jewelry nor brought any pricey items like Armani, Gucci, and Prada.
+To my surprise, they never wear any piece of jewelry nor brought any pricey items like Armani, Gucci, and Prada.   
 They just wear things as Balayan people wore. Simple, plain, and modest. 
 They never talked about their success in Italy or the kind of money that they are earning from the country that they worked for so many years.
 
 I have to tell you... I was impressed and extremely overwhelmed! 
-They are like the same people when they were still in high school.
-Especially Sheryl, who is my wife's close friend in high school. Sheryl is very "Malumanay magsalita" or very softspoken. 
+They are like the same people when they were still in high school.   
+Especially Sheryl, who is my wife's close friend in high school. Sheryl is very **"Malumanay magsalita"** or very softspoken.   
 I can feel her sincerity even if I just recently met her. I learned her true character when she discussed to me her somewhat sad story.
 Sheryl told me if she could turn back the clock she would do it. 
 Even with her financial success, she regrets to leave her 2 sons behind who are now teenagers today.  
