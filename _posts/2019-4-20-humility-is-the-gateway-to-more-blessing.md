@@ -70,9 +70,9 @@ Being humble teaches us where we came from, and also open our hearts to those wh
 We then help these people. We encourage them to be successful in life.   
 It is a habitual act that also influences the people around us, therefore making that circle bigger and bigger. Creating a community of kindness.
 
-We commonly call it "Good Karma". A boomerang that you threw will naturally go back to you. Showing people that you are humble and helping them without asking anything in return.
-Keep on doing that over and over again. That boomerang will then come back to you.
-And that my friend is Blessings... lots and lots of it!
+We commonly call it **"Good Karma"**. A boomerang that you threw will naturally go back to you. Showing people that you are humble and helping them without asking anything in return.   
+Keep on doing that over and over again. That boomerang will then come back to you.   
+And that my friend is **"Blessings"**... lots and lots of it!
 
 
 
