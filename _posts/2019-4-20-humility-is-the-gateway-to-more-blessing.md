@@ -18,9 +18,9 @@ In Balayan, most of the locals go to Italy. Until now, I can't decipher why most
 But one thing I find funny is that whenever they come back home, they are dressed like **"Kings and Queens"**. 
 They wear shining pieces of jewelry from top to bottom. And also build a house bigger than we can ever imagine.
 
-Again, I have to be careful with my words and to be very very tactful. 
-But it's not only me who has witnessed this. Even the people that I know who is living in Balayan can relate to what I am saying.
-These "Balikbayans" has become too proud of themselves. They somehow forgot their roots. They have changed from being simple to being arrogant.
+Again, I have to be careful with my words and to be very very tactful.   
+But it's not only me who has witnessed this. Even the people that I know who is living in Balayan can relate to what I am saying.   
+These **"Balikbayans"** has become too proud of themselves. They somehow forgot their roots. They have changed from being simple to being arrogant.
 
 But since they are still considered a local, we have to accept them or better yet understand them, and greet them with compassion and not an inch of animosity. 
 Balayan is a well-cherished place. Everybody is welcome here whether you're a local or not.
