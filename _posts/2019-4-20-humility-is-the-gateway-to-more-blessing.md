@@ -61,7 +61,8 @@ They said they don't need it. Their sons might be migrating to Italy in the futu
 
 I wished everybody will be like Sheryl.   
 Whether we are working abroad, being the Vice-President in a company in Manila, or being fortunate to inherit agricultural lands.   
-It's not the financial success that we should talk about. But rather our character. Our personality that gives delight and gratification to most people.   
+It's not the financial success that we should talk about. But rather our character.   
+Our personality that gives delight and gratification to most people.   
 And our humility of putting our feet always on the ground.
 
 A priest once told me that **"Humility is the Gateway to more Blessings"**.   
