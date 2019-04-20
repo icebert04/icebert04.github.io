@@ -22,7 +22,7 @@ Again, I have to be careful with my words and to be very very tactful.
 But it's not only me who has witnessed this. Even the people that I know who is living in Balayan can relate to what I am saying.   
 These **"Balikbayans"** has become too proud of themselves. They somehow forgot their roots. They have changed from being simple to being arrogant.
 
-But since they are still considered a local, we have to accept them or better yet understand them, and greet them with compassion and not an inch of animosity. 
+But since they are still considered a local, we have to accept them or better yet understand them, and greet them with compassion and not an inch of animosity.   
 Balayan is a well-cherished place. Everybody is welcome here whether you're a local or not.
 
 When we are in Balayan, we don't act like we are Urban stiffs. 
