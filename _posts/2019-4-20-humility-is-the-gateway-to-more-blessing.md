@@ -26,8 +26,9 @@ But since they are still considered a local, we have to accept them or better ye
 Balayan is a well-cherished place. Everybody is welcome here whether you're a local or not.
 
 When we are in Balayan, we don't act like we are Urban stiffs. 
-We act like a local. We speak their native language (The Ala-Eh version). 
-We don't use our car and just ride the tricycle or even walk.
+We act like a local.   
+We speak their native language (**The Ala-Eh version**). 
+We don't use our car and just ride the tricycle or even walk.   
 After all, we are locals too. We just work in Manila for a living but that doesn't change a thing. We are still like most of them.
 
 So soon that I've heard that my wife will be attending her high school reunion, I quickly asked my wife if I could tag along so that I could see her old friends there. 
