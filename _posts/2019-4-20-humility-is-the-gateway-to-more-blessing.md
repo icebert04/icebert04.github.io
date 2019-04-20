@@ -54,7 +54,7 @@ Even with her financial success, she regrets to leave her 2 sons behind who are 
 Sheryl grew up with her grandparents in a modest home. Her dad passed away when she was young, and her mother has to work in Manila just to send her to school.
 
 A humbling story from a humble girl who still remains humble even up to today.   
-Sheryl and her husband are earning more than some locals in our town. They have bought things that they could never buy before like car, shoes for their children, and other luxury stuff. 
+Sheryl and her husband are earning more than some locals in our town. They have bought things that they could never buy before like car, shoes for their children, and other luxury stuff.   
 But they don't want to build a **"Super Big House"**. 
 They said they don't need it. Their sons might be migrating to Italy in the future so why construct something that they won't be using.   
 **"If it's just for show then forget it"**... The couple said to me.
