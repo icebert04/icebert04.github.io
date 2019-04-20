@@ -14,7 +14,8 @@ The only problem with this small town is that there is not enough jobs and busin
 Unless you are one of the locals who belong to the rich families with abundant of lands, you have no choice but to **"Flee away"** to scavenge for a livelihood for you and your family. 
 So it's either they go to Manila to work, or go abroad and take their chances of bringing a fortune to the family that they left behind. 
 
-In Balayan, most of the locals go to Italy. Until now, I can't decipher why most of them go to Italy. But one thing I find funny is that whenever they come back home, they are dressed like "Kings and Queens". 
+In Balayan, most of the locals go to Italy. Until now, I can't decipher why most of them go to Italy.   
+But one thing I find funny is that whenever they come back home, they are dressed like **"Kings and Queens"**. 
 They wear shining pieces of jewelry from top to bottom. And also build a house bigger than we can ever imagine.
 
 Again, I have to be careful with my words and to be very very tactful. 
