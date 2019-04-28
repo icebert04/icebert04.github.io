@@ -22,7 +22,7 @@ It's also the perfect time to bond with my wife and my family.
 We hardly get to talk to our children because of work, school, and all the other current activities in the city. 
 So by traveling, we get to draw their limited attention in a place where they are unfamiliar.
 
-We are like most tourists. We travel to have fun. It's not part of the travel itinerary to meet new friends. 
+We are like most tourists. We travel to have fun. It's not part of the travel itinerary to meet new friends.   
 If people's intent to meet someone new, it's probably somebody famous, rich, or could be one of the big resort owners.
 
 Ours was different. We met a local, We talked to a local, We befriended a local... just by accident.   
