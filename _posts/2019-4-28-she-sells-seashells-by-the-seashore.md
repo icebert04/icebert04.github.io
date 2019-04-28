@@ -26,7 +26,7 @@ If people's intent to meet someone new, it's probably somebody famous, rich, or 
 
 Ours was different. We met a local, We talked to a local, We befriended a local... just by accident.   
 Her name is Anne. A resident of Nabas Aklan just 26 kilometers from the island of Boracay. 
-We met her in the market where she sells "Pasalubong" or gift items mostly for tourists.
+We met her in the market where she sells **"Pasalubong"** or gift items mostly for tourists.
 
 So while we were buying stuff for our trip back to Manila, Anne was overly chattering and excessively communicative. 
 Aside from giving us suggestions and tips on what products and items to buy, she was asking a lot of questions.
