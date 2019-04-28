@@ -47,7 +47,7 @@ In our case with Anne, we have a friend from the island, who can be our tour gui
 The same thing goes if she needs to go to Manila. We can also assist her with her needs and guide her with the ins and outs.   
 That's the purpose of having friends. Helping each other out.
 
-We don't know when are we going back to Boracay. But when we do, we will surely call Anne. Maybe this time, she can give us a tour of the northern part of Panay island. That looks exciting. 
+We don't know when are we going back to Boracay. But when we do, we will surely call Anne. Maybe this time, she can give us a tour of the northern part of Panay island. That looks exciting.   
 Or maybe, she could bring us to Hurom-Hurom, the Sakaan Falls, and go all around her small town.   
 Whatever it is, I'm sure it will be fun. Seeing an old friend again is more than enough for us.
 
