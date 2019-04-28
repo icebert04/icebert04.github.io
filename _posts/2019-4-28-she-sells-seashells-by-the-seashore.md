@@ -50,6 +50,6 @@ We don't know when are we going back to Boracay. But when we do, we will surely 
 Or maybe, she could bring us to Hurom-Hurom, the Sakaan Falls, and go all around her small town.   
 Whatever it is, I'm sure it will be fun. Seeing an old friend again is more than enough for us.
 
-Summer is still here. There is still time to travel. But whenever you do travel. Try to be more "Friendlier". Add that pretty smile to your face.
-Believe me, it's definitely worth it!
+Summer is still here. There is still time to travel. But whenever you do travel. Try to be more **"Friendlier"**. Add that pretty smile to your face.   
+Believe me, it's definitely worth it!   
 It's like opening a box of chocolates. You never know what you're gonna get!
