@@ -24,7 +24,7 @@ So by traveling, we get to draw their limited attention in a place where they ar
 We are like most tourists. We travel to have fun. It's not part of the travel itinerary to meet new friends. 
 If people's intent to meet someone new, it's probably somebody famous, rich, or could be one of the big resort owners.
 
-Ours was different. We met a local, We talked to a local, We befriended a local... just by accident.
+Ours was different. We met a local, We talked to a local, We befriended a local... just by accident.   
 Her name is Anne. A resident of Nabas Aklan just 26 kilometers from the island of Boracay. 
 We met her in the market where she sells "Pasalubong" or gift items mostly for tourists.
 
