@@ -13,7 +13,8 @@ Even with the recent bad rap against the famous tourist spot, travelers still go
 People love to travel to vacate their boring routine life. They travel with their friends and loved ones in order to spend quality time with them. 
 So whether they are in Boracay or some other island, they always come along with somebody. 
 
-Ours were the same when we went to Boracay. My wife relatives live on the island so, therefore, we spent time with them. It's a period to play catch-up and bond with the relatives. 
+Ours were the same when we went to Boracay. My wife relatives live on the island so, therefore, we spent time with them.   
+It's a period to play catch-up and bond with the relatives. 
 After all, we hardly see each other so this is the perfect occasion to tell stories of old and new.
 
 It's also the perfect time to bond with my wife and my family. We hardly get to talk to our children because of work, school, and all the other current activities in the city. So by traveling, we get to draw their limited attention in a place where they are unfamiliar.
