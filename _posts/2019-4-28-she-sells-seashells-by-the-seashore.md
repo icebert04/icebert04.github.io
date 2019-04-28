@@ -17,7 +17,9 @@ Ours were the same when we went to Boracay. My wife relatives live on the island
 It's a period to play catch-up and bond with the relatives. 
 After all, we hardly see each other so this is the perfect occasion to tell stories of old and new.
 
-It's also the perfect time to bond with my wife and my family. We hardly get to talk to our children because of work, school, and all the other current activities in the city. So by traveling, we get to draw their limited attention in a place where they are unfamiliar.
+It's also the perfect time to bond with my wife and my family.   
+We hardly get to talk to our children because of work, school, and all the other current activities in the city. 
+So by traveling, we get to draw their limited attention in a place where they are unfamiliar.
 
 We are like most tourists. We travel to have fun. It's not part of the travel itinerary to meet new friends. 
 If people's intent to meet someone new, it's probably somebody famous, rich, or could be one of the big resort owners.
