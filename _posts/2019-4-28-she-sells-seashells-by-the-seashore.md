@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Boracay](/images/Boracay Shirt.jpg)
