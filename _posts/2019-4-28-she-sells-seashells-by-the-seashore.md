@@ -28,9 +28,9 @@ Ours was different. We met a local, We talked to a local, We befriended a local.
 Her name is Anne. A resident of Nabas Aklan just 26 kilometers from the island of Boracay. 
 We met her in the market where she sells **"Pasalubong"** or gift items mostly for tourists.
 
-So while we were buying stuff for our trip back to Manila, Anne was overly chattering and excessively communicative. 
+So while we were buying stuff for our trip back to Manila, Anne was overly chattering and excessively communicative.   
 Aside from giving us suggestions and tips on what products and items to buy, she was asking a lot of questions.
-Questions like... "Is it nice in Manila"?, "Why are there so many people working there"?, "How many malls do you got"?
+Questions like... **"Is it nice in Manila"**?, **"Why are there so many people working there"**?, **"How many malls do you got"**?
 I've never seen someone as excited as her. She is so enthusiastic and thrilled to meet us. I assumed she is like that to all of her customers. 
 One big reason why their store is visited often. Anne treats everybody like a friend. 
 
