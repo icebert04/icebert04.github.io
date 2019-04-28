@@ -7,7 +7,8 @@ published: true
 
 It's the time of the year again. It's Summer, where it's the perfect moment to hit the beach. 
 People flock by land, air, and sea to visit the most popular beach spot in the Philippines. 
-One of the most popular beach is the island of Boracay. Even with the recent bad rap against the famous tourist spot, travelers still go there to feel the famous white sand that still looks like a "Polvoron".  
+One of the most popular beach is the island of Boracay.   
+Even with the recent bad rap against the famous tourist spot, travelers still go there to feel the famous white sand that still looks like a **"Polvoron"**.  
 
 People love to travel to vacate their boring routine life. They travel with their friends and loved ones in order to spend quality time with them. 
 So whether they are in Boracay or some other island, they always come along with somebody. 
