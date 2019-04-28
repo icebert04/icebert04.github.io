@@ -3,7 +3,7 @@ published: true
 ---
 ![Boracay](/images/Boracay Shirt.jpg)
 
-"The Positive Effect of Friendliness"
+**"The Positive Effect of Friendliness"**
 
 It's the time of the year again. It's Summer, where it's the perfect moment to hit the beach. 
 People flock by land, air, and sea to visit the most popular beach spot in the Philippines. 
