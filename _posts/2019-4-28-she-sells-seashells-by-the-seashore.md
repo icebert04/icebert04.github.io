@@ -36,10 +36,10 @@ One big reason why their store is visited often. Anne treats everybody like a fr
 
 We felt like we are an extension of her family even for a short period of time. We added each other on Facebook and been friends ever since. 
 
-So why am I telling you this??? 
+So why am I telling you this???   
 I have to tell you this because they are lots of Benefits just by Being Friendly with everyone you meet.
-More often than not, if you show someone kindness and friendliness you could receive "Unexpected Benefits". 
-I’m not at all saying that you should only be nice to people so you can get something back, but if you express kindness out of the goodness of your heart and don’t expect something back, the person you just helped will feel your good energy and may pleasantly surprise you with a gift or returned favor. 
+More often than not, if you show someone kindness and friendliness you could receive **"Unexpected Benefits"**. 
+I’m not at all saying that you should only be nice to people so you can get something back, but if you express kindness out of the goodness of your heart and don’t expect something back, the person you just helped will feel your good energy and may pleasantly surprise you with a gift or returned favor.   
 You just never know.
 
 In our case with Anne, we have a friend from the island, who can be our tour guide and help us with all of our inquiries.
