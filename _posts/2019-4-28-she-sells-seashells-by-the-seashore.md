@@ -42,7 +42,7 @@ More often than not, if you show someone kindness and friendliness you could rec
 I’m not at all saying that you should only be nice to people so you can get something back, but if you express kindness out of the goodness of your heart and don’t expect something back, the person you just helped will feel your good energy and may pleasantly surprise you with a gift or returned favor.   
 You just never know.
 
-In our case with Anne, we have a friend from the island, who can be our tour guide and help us with all of our inquiries.
+In our case with Anne, we have a friend from the island, who can be our tour guide and help us with all of our inquiries.   
 The same thing goes if she needs to go to Manila. We can also assist her with her needs and guide her with the ins and outs.   
 That's the purpose of having friends. Helping each other out.
 
