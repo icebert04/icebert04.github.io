@@ -29,7 +29,8 @@ How do we get the attention of a top celebrity and endorser like Catriona Gary??
 Can I (or anybody for this matter) get her attention just by messaging her on her social media account? What are the odds??   
 The answer is this... Not good!
 
-Why? Because it's not them who are handling their social media accounts. Authentic celebrity accounts are often completely or partially managed by marketing and media supervisors. 
+Why? Because it's not them who are handling their social media accounts.   
+Authentic celebrity accounts are often completely or partially managed by marketing and media supervisors.   
 Celebrities vaguely have the time to do that so they hand it over to their staff. 
 But in the case of Catriona (where she is passionate about every fan she got), with more than 1,000 private messages she receives every day... chances are she won't even able to see it.  
 
