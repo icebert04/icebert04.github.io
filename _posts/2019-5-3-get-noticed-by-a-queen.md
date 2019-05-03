@@ -56,11 +56,12 @@ We are after for more than that. We are searching for a symbol of hope.
 We pursue for an individual with a kind heart.   
 We aim for someone who can influence others. Someone who is down-to-earth even with all the success they accomplished.
 
-Friendillion's followers thirst for more inspiring content and real touching stories. It wouldn't hurt if Catriona Gray helps us add more value to our advocacy.  
+Friendillion's followers thirst for more inspiring content and real touching stories.   
+It wouldn't hurt if Catriona Gray helps us add more value to our advocacy.  
 
 That is life all about ladies and gents. Sharing each one skill and giving value to everyone.  Whether you're a Big Time Influencer or a small one, you are all important.
 
-From one Authority to another, sharing wonderful stories which bring smiles throughout the country... 
-Oh, correction... bring all smiles through the "Whole Universe"! 
+From one Authority to another, sharing wonderful stories which bring smiles throughout the country...    
+Oh, correction... bring all smiles through the **"Whole Universe"**! 
  
 
