@@ -38,9 +38,9 @@ Here's the golden rule...
 
 **"To be noticed by an Authority, you have to be an Authority"**!
 
-In short, you have to be a Top Dog to get noticed by a Top Dog.
-One case in point is Alvin Ocampo. A Pinoy doll hobbyist who imitates TV and Movie celebrities by designing his Barbie dolls. 
-He evidently got the full attention of Catriona Gray by creating and designing the miniature version of the national costume Classic Parol & Lava Gown that was worn during the Miss Universe pageant.
+In short, you have to be a Top Dog to get noticed by a Top Dog.   
+One case in point is Alvin Ocampo. A Pinoy doll hobbyist who imitates TV and Movie celebrities by designing his Barbie dolls.   
+He evidently got the full attention of Catriona Gray by creating and designing the miniature version of the national costume **Classic Parol** & **Lava Gown** that was worn during the Miss Universe pageant.
 
 If I were to send an email to Catriona Gray, the chances of getting a reply from her are worse than hitting a jackpot in the Lotto sweepstakes. 
 But if use my platform (Friendillion.com) then maybe I have a little bit of chance. 
