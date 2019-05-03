@@ -51,9 +51,9 @@ Friendillion and Catriona Gray are out there to give inspiration to those who ar
 To influence people to make their life better and happier. 
 To give encouragement that they too are skilled and talented and should use it to good use. 
 
-You see, Friendillion is not just seeking for a Pretty Face in a Pretty Dress.
+You see, Friendillion is not just seeking for a Pretty Face in a Pretty Dress.   
 We are after for more than that. We are searching for a symbol of hope. 
-We pursue for an individual with a kind heart.
+We pursue for an individual with a kind heart.   
 We aim for someone who can influence others. Someone who is down-to-earth even with all the success they accomplished.
 
 Friendillion's followers thirst for more inspiring content and real touching stories. It wouldn't hurt if Catriona Gray helps us add more value to our advocacy.  
