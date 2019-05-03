@@ -24,7 +24,7 @@ She has worked with charitable organizations **Love Yourself PH**, which deals w
 This half-Filipina, half-Australian has worked to fundraise her organization (**Paraiso Bright Beginnings Project**) by using her skills and talents, holding concerts and even selling her artworks to encourage people to contribute to the organization— showing that this beauty queen is beautiful both inside and out.
 
 Great! That's a very good idea! Now what?   
-How do we get the attention of a top celebrity and endorser like Catriona Gary???
+How do we get the attention of a top celebrity and endorser like Catriona Gray???
 
 Can I (or anybody for this matter) get her attention just by messaging her on her social media account? What are the odds??   
 The answer is this... Not good!
@@ -62,6 +62,4 @@ It wouldn't hurt if Catriona Gray helps us add more value to our advocacy.
 That is life all about ladies and gents. Sharing each one skill and giving value to everyone.  Whether you're a Big Time Influencer or a small one, you are all important.
 
 From one Authority to another, sharing wonderful stories which bring smiles throughout the country...    
-Oh, correction... bring all smiles through the **"Whole Universe"**! 
- 
-
+Oh, correction... bring all smiles through the **"Whole Universe"**!
