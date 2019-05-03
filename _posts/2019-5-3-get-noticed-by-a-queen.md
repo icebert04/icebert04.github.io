@@ -42,9 +42,9 @@ In short, you have to be a Top Dog to get noticed by a Top Dog.
 One case in point is Alvin Ocampo. A Pinoy doll hobbyist who imitates TV and Movie celebrities by designing his Barbie dolls.   
 He evidently got the full attention of Catriona Gray by creating and designing the miniature version of the national costume **Classic Parol** & **Lava Gown** that was worn during the Miss Universe pageant.
 
-If I were to send an email to Catriona Gray, the chances of getting a reply from her are worse than hitting a jackpot in the Lotto sweepstakes. 
-But if use my platform (Friendillion.com) then maybe I have a little bit of chance. 
-Friendillion was created not only to gather new friends, but also to give some awareness to the people that the world they live in is still surrounded by Good people. 
+If I were to send an email to Catriona Gray, the chances of getting a reply from her are worse than hitting a jackpot in the Lotto sweepstakes.   
+But if use my platform (**Friendillion.com**) then maybe I have a little bit of chance. 
+Friendillion was created not only to gather new friends, but also to give some awareness to the people that the world they live in is still surrounded by Good people.   
 In my year of writing, Friendillion was able to inspire people and gathered some loyal followers.
 
 Friendillion and Catriona Gray are out there to give inspiration to those who are in need of enlightenment. To influence people to make their life better and happier. 
