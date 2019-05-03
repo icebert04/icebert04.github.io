@@ -47,7 +47,8 @@ But if use my platform (**Friendillion.com**) then maybe I have a little bit of 
 Friendillion was created not only to gather new friends, but also to give some awareness to the people that the world they live in is still surrounded by Good people.   
 In my year of writing, Friendillion was able to inspire people and gathered some loyal followers.
 
-Friendillion and Catriona Gray are out there to give inspiration to those who are in need of enlightenment. To influence people to make their life better and happier. 
+Friendillion and Catriona Gray are out there to give inspiration to those who are in need of enlightenment.   
+To influence people to make their life better and happier. 
 To give encouragement that they too are skilled and talented and should use it to good use. 
 
 You see, Friendillion is not just seeking for a Pretty Face in a Pretty Dress.
