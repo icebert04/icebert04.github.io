@@ -11,7 +11,7 @@ For the ladies, they crave for non-other than their beloved pageantry.
 Every year, Filipinos take time to watch Miss Universe. 
 An annual international beauty pageant that is aired to 190 countries worldwide and seen more than half a billion people.  
 
-Until now, we all still feel the excitement that the recently crowned Miss Universe Catriona Gray (the 4th Filipina to win the pageant) brought us.
+Until now, we all still feel the excitement that the recently crowned Miss Universe Catriona Gray (the 4th Filipina to win the pageant) brought us.   
 She now ranks among the top Filipino personalities which include famous boxing champion Manny Pacquiao,  Miss Saigon Lea Salonga, and even half Filipino like singers Apl.de.ap and Bruno Mars, and Hollywood actress Hailee Steinfield.
 
 So why pick Catriona on top of the others? Well, at first she is at the peak of the mountain. It's her moment to shine. She has been receiving a lot of proposals on endorsements and commercial deals as we speak (both local and international brands). 
