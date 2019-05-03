@@ -36,7 +36,7 @@ But in the case of Catriona (where she is passionate about every fan she got), w
 
 Here's the golden rule... 
 
-"To be noticed by an Authority, you have to be an Authority"
+**"To be noticed by an Authority, you have to be an Authority"**!
 
 In short, you have to be a Top Dog to get noticed by a Top Dog.
 One case in point is Alvin Ocampo. A Pinoy doll hobbyist who imitates TV and Movie celebrities by designing his Barbie dolls. 
