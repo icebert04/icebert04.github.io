@@ -20,8 +20,8 @@ Every company wants a piece of our Miss Universe. They know for sure that it's d
 
 But that is just the tip of the iceberg. What is more substantial is we are looking for a celebrated personality that has good moral values who will bring inspiration to our followers.  
 Miss Gray explicitly fit the description. Catriona is well-known for her charity work.
-She has worked with charitable organizations Love Yourself PH, which deals with combating HIV/AIDS stigma in the Philippines, as well as volunteering as a teaching assistant with Young Focus, a non-governmental organization that provides access to education to underprivileged children and youth.
-This half-Filipina, half-Australian has worked to fundraise her organization (Paraiso Bright Beginnings Project) by using her skills and talents, holding concerts and even selling her artworks to encourage people to contribute to the organization— showing that this beauty queen is beautiful both inside and out.
+She has worked with charitable organizations **Love Yourself PH**, which deals with combating HIV/AIDS stigma in the Philippines, as well as volunteering as a teaching assistant with **Young Focus**, a non-governmental organization that provides access to education to underprivileged children and youth.   
+This half-Filipina, half-Australian has worked to fundraise her organization (**Paraiso Bright Beginnings Project**) by using her skills and talents, holding concerts and even selling her artworks to encourage people to contribute to the organization— showing that this beauty queen is beautiful both inside and out.
 
 Great! That's a very good idea! Now what? 
 How do we get the attention of a top celebrity and endorser like Catriona Gary???
