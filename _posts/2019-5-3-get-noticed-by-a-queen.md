@@ -3,11 +3,11 @@ published: true
 ---
 ![Cat](/images/Catriona Gray 3.jpg)
 
-"Why we seek for Catriona Gray's participation"
+**"Why we seek for Catriona Gray's participation"**
 
-All of us have somebody we idolized. For those who dig Basketball, they follow stars from Larry Bird, to Michael Jordan, to Giannis Antetokounmpo. 
+All of us have somebody we idolized. For those who dig Basketball, they follow stars from Larry Bird, to Michael Jordan, to Giannis Antetokounmpo.   
 Bookworms adore good authors like George R. R. Martin, J.K. Rowling, and Stephen King.
-For the ladies, they crave for non-other than their beloved pageantry. 
+For the ladies, they crave for non-other than their beloved pageantry.   
 Every year, Filipinos take time to watch Miss Universe. 
 An annual international beauty pageant that is aired to 190 countries worldwide and seen more than half a billion people.  
 
