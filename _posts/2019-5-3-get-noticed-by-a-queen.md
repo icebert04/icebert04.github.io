@@ -8,7 +8,7 @@ published: true
 All of us have somebody we idolized. For those who dig Basketball, they follow stars from Larry Bird, to Michael Jordan, to Giannis Antetokounmpo.   
 Bookworms adore good authors like George R. R. Martin, J.K. Rowling, and Stephen King.
 For the ladies, they crave for non-other than their beloved pageantry.   
-Every year, Filipinos take time to watch Miss Universe. 
+Every year, Filipinos take time to watch Miss Universe.   
 An annual international beauty pageant that is aired to 190 countries worldwide and seen more than half a billion people.  
 
 Until now, we all still feel the excitement that the recently crowned Miss Universe Catriona Gray (the 4th Filipina to win the pageant) brought us.   
