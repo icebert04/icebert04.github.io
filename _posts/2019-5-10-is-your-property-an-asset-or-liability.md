@@ -23,7 +23,7 @@ I don't how I did it, but I guess I just don't want to label our properties as *
 That impulse and motivation had carried with me through the years up to the point when I got my own properties.   
 Let's begin by disclosing with property number 1...
 
-Property No. 1 (Mango Farm) 
+**Property No. 1 (Mango Farm)**   
 => My Grandma had a 15-hectare property surrounded with more than 100 mango trees. 
 Every year during the month of March, we harvest loads of mangoes. 
 Typically, 20% of those goes to our immediate family for personal consumption and 80% goes to relatives & friends (which I think is too much generosity).
