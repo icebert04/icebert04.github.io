@@ -89,6 +89,6 @@ You can rent to purchase the property or partner up with the landowner. Many thi
 It is not just black and white now. There are lots of grey areas that you could use for your benefit.   
 I enumerated some of what I did to my properties for you to get started and maybe kickstart an idea or two. 
 
-The key word here is... "Asset".
+The key word here is... **"Asset"**.   
 Just remember using that word to proper use. Good things will come your way if you did.
   
