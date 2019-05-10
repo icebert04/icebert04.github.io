@@ -14,7 +14,7 @@ Over the course of several years or decades, they can cost millions.
 True investments don't require that kind of ongoing outlay of cash.   
 You can rationalize those expenses based on the fact that the house is providing you shelter. But that gets back to the original premise -- a house is a shelter, and not really an investment. 
 
-I grew up in a family where they don't mind that most of their properties are liabilities. Just like in the Monopoly game, they only give importance to the "Boardwalk and Park Place". The rest is idle and left behind unattended. 
+I grew up in a family where they don't mind that most of their properties are liabilities. Just like in the Monopoly game, they only give importance to the **"Boardwalk and Park Place"**. The rest is idle and left behind unattended. 
 
 Recently, I just discovered that through the years I had the knack of turning some of our properties from liabilities into assets. 
 They didn't instruct or taught me to do it, it was just pure instinct. 
