@@ -86,7 +86,7 @@ It could be a model figure for anybody to imitate and possibly apply it to their
 We live in a different world now. With the right mind-frame, everyone can get the property that they want. It's not just buy and purchase.   
 You can rent to purchase the property or partner up with the landowner. Many things can happen especially if you have a brilliant idea in that particular place.
 
-It is not just black and white now. There are lots of grey areas that you could use for your benefit. 
+It is not just black and white now. There are lots of grey areas that you could use for your benefit.   
 I enumerated some of what I did to my properties for you to get started and maybe kickstart an idea or two. 
 
 The key word here is... "Asset".
