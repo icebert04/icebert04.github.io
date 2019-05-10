@@ -27,10 +27,10 @@ Let's begin by disclosing with property number 1...
 => My Grandma had a 15-hectare property surrounded with more than 100 mango trees. 
 Every year during the month of March, we harvest loads of mangoes.   
 Typically, 20% of those goes to our immediate family for personal consumption and 80% goes to relatives & friends (which I think is too much generosity).   
-It goes without saying that the property is not earning a single dime.
-So I went to my Grandma and ask permission if I can take care of the next season harvest. My Grandma said YES.
-So I took care of everything from spraying, pest control, harvesting, manpower, and marketing. 
-As promised, I reserved 20% mangoes for our immediate family. Another 20% for our friends and relatives. And the rest went for profit. 
+It goes without saying that the property is not earning a single dime.   
+So I went to my Grandma and ask permission if I can take care of the next season harvest. My Grandma said YES.   
+So I took care of everything from spraying, pest control, harvesting, manpower, and marketing.   
+As promised, I reserved 20% mangoes for our immediate family. Another 20% for our friends and relatives. And the rest went for profit.   
 We sold more than Php500,000 worth from a single season. 
 
 **Property No. 2 (Airbnb condo unit)**   
