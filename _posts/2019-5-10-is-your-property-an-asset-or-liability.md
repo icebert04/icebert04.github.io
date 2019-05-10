@@ -9,7 +9,8 @@ But most of the time, our properties are considered a liability.
 Why?   
 Because you have to take care of maintenance, renovation, property taxes, association dues, manpower, etc.
 
-Each of those expenses (not to mention the property value) can cost you a fortune. Over the course of several years or decades, they can cost millions.
+Each of those expenses (not to mention the property value) can cost you a fortune.   
+Over the course of several years or decades, they can cost millions.
 True investments don't require that kind of ongoing outlay of cash. 
 You can rationalize those expenses based on the fact that the house is providing you shelter. But that gets back to the original premise -- a house is a shelter, and not really an investment. 
 
