@@ -73,7 +73,7 @@ Before buying, think first... is there another property better than this.
 **For the Poor** => Even if you don't own a property, you can still do something from the place that you are staying. You might just be renting but don't underestimate the value of it.   
 I have a friend from Batangas who is making a killing from selling Puto and Bibingka from her place. She doesn't even have to go out, it's her customer that comes to her. Imagine that.
 
-For the Middle Class => Don't put the majority of your cash in a property that won't generate cash flow. 
+**For the Middle Class** => Don't put the majority of your cash in a property that won't generate cash flow. 
 Although it is nice to have a place of your own, you first need to diversify your hard earned money that will bring you the money to purchase the house that you wanted. Rent if you must, and let your money grow through multiple channels.  
 When you have accumulated and raised your financial portfolio, then you can buy your dream home. 
 
