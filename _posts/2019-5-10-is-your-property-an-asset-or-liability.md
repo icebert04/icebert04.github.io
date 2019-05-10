@@ -11,7 +11,7 @@ Because you have to take care of maintenance, renovation, property taxes, associ
 
 Each of those expenses (not to mention the property value) can cost you a fortune.   
 Over the course of several years or decades, they can cost millions.
-True investments don't require that kind of ongoing outlay of cash. 
+True investments don't require that kind of ongoing outlay of cash.   
 You can rationalize those expenses based on the fact that the house is providing you shelter. But that gets back to the original premise -- a house is a shelter, and not really an investment. 
 
 I grew up in a family where they don't mind that most of their properties are liabilities. Just like in the Monopoly game, they only give importance to the "Boardwalk and Park Place". The rest is idle and left behind unattended. 
