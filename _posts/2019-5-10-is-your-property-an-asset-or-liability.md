@@ -63,10 +63,11 @@ Not bad for an abandoned old car garage.
 The purpose of this article is to inform everybody, whether they are rich or poor, that they can turn their property from a liability into an asset.   
 All it takes is the right mindset and some positivity. You can basically do everything that you want. Let your creativity do the planning.
 
-For the Rich => Don't just buy and buy properties. Think twice before buying them. Can these properties be income generating for you? 
-Or are your children gonna use them in the future?
+**For the Rich** => Don't just buy and buy properties. Think twice before buying them.   
+Can these properties be income generating for you? 
+Or are your children gonna use them in the future?   
 Your properties will have no bearing if all of your kids migrate to the United States. 
-Always think that a property is not an investment just because it appreciates. 
+Always think that a property is not an investment just because it appreciates.   
 Before buying, think first... is there another property better than this.
 
 For the Poor => Even if you don't own a property, you can still do something from the place that you are staying. You might just be renting but don't underestimate the value of it.
