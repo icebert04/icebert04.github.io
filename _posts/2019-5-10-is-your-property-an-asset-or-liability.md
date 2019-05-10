@@ -16,9 +16,9 @@ You can rationalize those expenses based on the fact that the house is providing
 
 I grew up in a family where they don't mind that most of their properties are liabilities. Just like in the Monopoly game, they only give importance to the **"Boardwalk and Park Place"**. The rest is idle and left behind unattended. 
 
-Recently, I just discovered that through the years I had the knack of turning some of our properties from liabilities into assets. 
-They didn't instruct or taught me to do it, it was just pure instinct. 
-I don't how I did it, but I guess I just don't want to label our properties as "Idle".
+Recently, I just discovered that through the years I had the knack of turning some of our properties from liabilities into assets.   
+They didn't instruct or taught me to do it, it was just pure instinct.   
+I don't how I did it, but I guess I just don't want to label our properties as **"Idle"**.
 
 That impulse and motivation had carried with me through the years up to the point when I got my own properties. 
 Let's begin by disclosing with property number 1...
