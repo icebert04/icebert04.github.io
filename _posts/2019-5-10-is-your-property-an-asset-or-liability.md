@@ -20,7 +20,7 @@ Recently, I just discovered that through the years I had the knack of turning so
 They didn't instruct or taught me to do it, it was just pure instinct.   
 I don't how I did it, but I guess I just don't want to label our properties as **"Idle"**.
 
-That impulse and motivation had carried with me through the years up to the point when I got my own properties. 
+That impulse and motivation had carried with me through the years up to the point when I got my own properties.   
 Let's begin by disclosing with property number 1...
 
 Property No. 1 (Mango Farm) 
