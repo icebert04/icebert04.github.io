@@ -50,7 +50,7 @@ We had lots of them from Labradors, Basset Hounds, MiniPins, Pitbulls, etc. Each
 All I have to do is grow them for 4 months and we then share the profit. 
 I earned good money during our heydays.
 
-Property No. 5 (Siopao store from a Garage)
+**Property No. 5 (Siopao store from a Garage)**   
 => I used to live in Merville Park, Paranaque. It is a 300+ sqm property with two different car garage. 
 I was using the other car garage to park my car but the other one was idle. 
 So I transformed that 2 car garage to a Siopao-Siomai joint. 
