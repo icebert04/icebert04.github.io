@@ -33,7 +33,7 @@ So I took care of everything from spraying, pest control, harvesting, manpower, 
 As promised, I reserved 20% mangoes for our immediate family. Another 20% for our friends and relatives. And the rest went for profit. 
 We sold more than Php500,000 worth from a single season. 
 
-Property No. 2 (Airbnb condo unit)
+**Property No. 2 (Airbnb condo unit)**   
 => Currently, I owned a condo unit where I rent our spare bedroom, particularly for transients. Not only it does take care of our association dues, upkeep, and utilities... but it is also a doorway for new acquaintances for me and my family. We gained new friends from our vacant room. Friends that we treasure for a lifetime.
 It's is also perfect for my kids. Meeting and knowing a lot of people from different culture and race. It gives them a different kind of education that they are not getting from a traditional school.
 Our circle of friends continues to grow by the numbers with our Property No. 2
