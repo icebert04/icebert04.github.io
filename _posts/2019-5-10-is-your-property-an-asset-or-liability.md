@@ -38,7 +38,7 @@ We sold more than Php500,000 worth from a single season.
 It's is also perfect for my kids. Meeting and knowing a lot of people from different culture and race. It gives them a different kind of education that they are not getting from a traditional school.
 Our circle of friends continues to grow by the numbers with our Property No. 2
 
-Property No. 3 (Kamias dog breeding)
+**Property No. 3 (Kamias dog breeding)**   
 => My Mother used to have a 400+ sqm property in Quezon City. 
 That property has a large backyard and open space. 
 Since I love dogs so much and very much aware that dog breeding is a lucrative business, I then asked my Mom if I could breed some dogs. 
