@@ -80,7 +80,7 @@ When you have accumulated and raised your financial portfolio, then you can buy 
 
 ----------------------------------------------------------------------------
 
-As of now, I am planning to add more properties that bring value not only in revenue but also that I could use for me and my family. 
+As of now, I am planning to add more properties that bring value not only in revenue but also that I could use for me and my family.   
 It could be a model figure for anybody to imitate and possibly apply it to their own designated place.
 
 We live in a different world now. With the right mind-frame, everyone can get the property that they want. It's not just buy and purchase. 
