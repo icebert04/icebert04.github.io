@@ -41,9 +41,9 @@ Our circle of friends continues to grow by the numbers with our Property No. 2
 
 **Property No. 3 (Kamias dog breeding)**   
 => My Mother used to have a 400+ sqm property in Quezon City. 
-That property has a large backyard and open space. 
-Since I love dogs so much and very much aware that dog breeding is a lucrative business, I then asked my Mom if I could breed some dogs. 
-At first, she was hesitant. Then later she began loving the dogs that circle around her property. These critters became an extension of our family.
+That property has a large backyard and open space.   
+Since I love dogs so much and very much aware that dog breeding is a lucrative business, I then asked my Mom if I could breed some dogs.   
+At first, she was hesitant. Then later she began loving the dogs that circle around her property. These critters became an extension of our family.   
 We had lots of them from Labradors, Basset Hounds, MiniPins, Pitbulls, etc. Each breed serving its purpose.
 
 **Property No. 4 (Piggery)**   
