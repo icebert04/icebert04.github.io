@@ -6,7 +6,8 @@ published: true
 Everyone thinks that their property is an Asset. That could be true if that property raises its value over time (say in the next 5 years).
 
 But most of the time, our properties are considered a liability. 
-Why? Because you have to take care of maintenance, renovation, property taxes, association dues, manpower, etc.
+Why?   
+Because you have to take care of maintenance, renovation, property taxes, association dues, manpower, etc.
 
 Each of those expenses (not to mention the property value) can cost you a fortune. Over the course of several years or decades, they can cost millions.
 True investments don't require that kind of ongoing outlay of cash. 
