@@ -45,8 +45,8 @@ Since I love dogs so much and very much aware that dog breeding is a lucrative b
 At first, she was hesitant. Then later she began loving the dogs that circle around her property. These critters became an extension of our family.
 We had lots of them from Labradors, Basset Hounds, MiniPins, Pitbulls, etc. Each breed serving its purpose.
 
-Property No. 4 (Piggery)
-=> I have a 1.5-hectare property in Batangas that used to have 600 pigs on it. During the time when it still has a clear access road... Monterey Food Corporation went to me and asked if I wanted to take care of their pigs. 
+**Property No. 4 (Piggery)**   
+=> I have a 1.5-hectare property in Batangas that used to have 600 pigs on it. During the time when it still has a clear access road... Monterey Foods Corporation went to me and asked if I wanted to take care of their pigs. 
 All I have to do is grow them for 4 months and we then share the profit. 
 I earned good money during our heydays.
 
