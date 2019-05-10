@@ -54,10 +54,10 @@ I earned good money during our heydays.
 
 **Property No. 5 (Siopao store from a Garage)**   
 => I used to live in Merville Park, Paranaque. It is a 300+ sqm property with two different car garage. 
-I was using the other car garage to park my car but the other one was idle. 
-So I transformed that 2 car garage to a Siopao-Siomai joint. 
+I was using the other car garage to park my car but the other one was idle.   
+So I transformed that 2 car garage to a Siopao-Siomai joint.   
 That store turned into a phenomenon in our village since there is no dim sum in sight. 
-We were selling Php 2,000 - Php 3,000 a day (7 days a week) for a village of a population of 4,000. 
+We were selling Php 2,000 - Php 3,000 a day (7 days a week) for a village of a population of 4,000.   
 Not bad for an abandoned old car garage.
 
 ---------------------------------------------------------------------------
