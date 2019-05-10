@@ -60,7 +60,7 @@ Not bad for an abandoned old car garage.
 
 ---------------------------------------------------------------------------
 
-The purpose of this article is to inform everybody, whether they are rich or poor, that they can turn their property from a liability into an asset. 
+The purpose of this article is to inform everybody, whether they are rich or poor, that they can turn their property from a liability into an asset.   
 All it takes is the right mindset and some positivity. You can basically do everything that you want. Let your creativity do the planning.
 
 For the Rich => Don't just buy and buy properties. Think twice before buying them. Can these properties be income generating for you? 
