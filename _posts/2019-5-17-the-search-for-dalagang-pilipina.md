@@ -43,17 +43,18 @@ Abbie always says the words **"po"** or **"opo"**. She also is very polite and c
 She has discretion and dignity. The aspiring soon to be lawyer has **"Delicadeza"** and **"Palabra de Honor"**.   
 Why do I say she has all of that? Because I was there to witness everything and it see in my own eyes. A Unicorn from the **"Queen City of the South"**.
 
-UNICORN NO.2 
-"The Princess from Malabon"
+**UNICORN NO.2**   
+**"The Princess from Malabon"**   
 Malabon City is known for poor waste management and highly vulnerable to flood. It's not the ideal place to find a Unicorn.
 But alas, there was one remarkably beautiful creature in that place.
 Czarina is a student at St. Theresa's College in Quezon City. But we know her better as my son's classmate in Aikido. 
 Yes, this sweet and gentle lady can break your bones if you dare to attack her. Luigi, my son, still have the bruises in his shoulders and legs as a remembrance.
-But aside from her talents, Czarina is known for her being "Mahinhin" and "may Busilak na Puso". 
-She is very kind to all people. This "Unica Hija" is so protected and guarded by her parents and her brothers. Wherever she goes, she has a driver to accompany her.
+But aside from her talents, Czarina is known for her being **"Mahinhin"** and **"may Busilak na Puso"**. 
+She is very kind to all people. This **"Unica Hija"** is so protected and guarded by her parents and her brothers. Wherever she goes, she has a driver to accompany her.
 The amazing thing is Czarina doesn't ride at that back. She sits beside her driver. Whenever there is a feast in our Aikido dojo, this charming girl won't eat unless her driver was offered the same food. 
 
- This girl from Malabon doesn't "Dress to Impress". She just wears ordinary clothes and sneakers but still remains fabulous even with her utmost simplicity. Perhaps her radiance is enough to show to everybody her true worth is. 
+This girl from Malabon doesn't **"Dress to Impress"**. She just wears ordinary clothes and sneakers but still remains fabulous even with her utmost simplicity.   
+Perhaps her radiance is enough to show to everybody her true worth is. 
 
 ----------------------------------------------------------------------------
 
