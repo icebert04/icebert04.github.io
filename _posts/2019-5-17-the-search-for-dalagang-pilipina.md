@@ -4,11 +4,11 @@ published: true
 ![Czar](/images/Dalagang Pilipina.jpg)
 
 
-"Do Maria Clara still Exists"?
+**"Do Maria Clara still Exists"**?
 
-Ayon sa libro ni Dr. Jose Rizal, si Maria Clara ay isang babae na halos nasa kanya na lahat ng magagandang katangian. Bukod sa kanyang pisikal na kagandahan, siya ay masunurin, mahinhin, makadiyos, mapagmahal, may-paninindigan, at may pamamalasakit. 
+Ayon sa libro ni Dr. Jose Rizal, si Maria Clara ay isang babae na halos nasa kanya na lahat ng magagandang katangian. Bukod sa kanyang pisikal na kagandahan, siya ay masunurin, mahinhin, makadiyos, mapagmahal, may-paninindigan, at may pamamalasakit.   
 Kilala din ang dalaga sa pagiging talentado at may busilak na puso. 
-Higit sa lahat, nakilala si Maria Clara sa katangiang konserbatibo.
+Higit sa lahat, nakilala si Maria Clara sa katangiang konserbatibo.   
 Sa madaling salita siya ay hindi ma-ARTE!
 
 Today, the Maria Clara types are now close to extinction. Women of today (although still blessed with beauty and talents), only have a few good characteristics similar to the fine lady written in the book. 
