@@ -28,17 +28,17 @@ I don't blame the women of today. After all, nobody is perfect. And Maria Clara 
 But what if there's one? What if there's a real Maria Clara roaming around in one of our 7,641 islands?   
 If there is somebody like that... I assume it is like finding a needle in a haystack. A unicorn that is totally uncatchable and extremely hard to find. 
 
-Well, I found not only one but two Maria Claras. The Gods of the old and new must be shining down on me and giving me the chance to see a "Real Unicorn".
+Well, I found not only one but two Maria Claras. The Gods of the old and new must be shining down on me and giving me the chance to see a **"Real Unicorn"**.   
 Allow me to introduce my 2 unicorns...
 
-UNICORN NO. 1
-"Mano po Girl"
+**UNICORN NO. 1**   
+**"Mano po Girl"**   
 Abbie is a Political Science student from the University of the Philippines Cebu. I am so lucky that we crossed paths a few years back. 
 She came to Manila to attend a big event at the Office of the Senate. 
 Abbie came to our place to spend 2 nights before she goes back home to Cebu.
-One thing I noticed about her is she always gives the "Mano po" to me and my wife.  Mano or pagmamano is an "honoring-gesture" used in Filipino culture performed as a sign of respect to elders and as a way of requesting a blessing from the elder. 
+One thing I noticed about her is she always gives the **"Mano po"** to me and my wife.  Mano or pagmamano is an "honoring-gesture" used in Filipino culture performed as a sign of respect to elders and as a way of requesting a blessing from the elder. 
 Similar to hand-kissing, the person giving the greeting bows towards the hand of the elder and presses their forehead on the elder's hand.
-Abbie always says the words "po" or "opo". She also is very polite and courteous to our security guards and housekeeping staff.  
+Abbie always says the words **"po"** or **"opo"**. She also is very polite and courteous to our security guards and housekeeping staff.  
 
 She has discretion and dignity. The aspiring soon to be lawyer has "Delicadeza" and "Palabra de Honor". 
 Why do I say she has all of that? Because I was there to witness everything and it see in my own eyes. A Unicorn from the "Queen City of the South".
