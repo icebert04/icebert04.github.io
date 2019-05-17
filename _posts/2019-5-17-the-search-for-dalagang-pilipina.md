@@ -49,7 +49,7 @@ Why do I say she has all of that? Because I was there to witness everything and 
 
 **UNICORN NO.2**   
 **"The Princess from Malabon"**   
-Malabon City is known for poor waste management and highly vulnerable to flood. It's not the ideal place to find a Unicorn.
+Malabon City is known for poor waste management and highly vulnerable to flood. It's not the ideal place to find a Unicorn.   
 But alas, there was one remarkably beautiful creature in that place.
 Czarina is a student at St. Theresa's College in Quezon City. But we know her better as my son's classmate in Aikido. 
 Yes, this sweet and gentle lady can break your bones if you dare to attack her. Luigi, my son, still have the bruises in his shoulders and legs as a remembrance.
