@@ -25,7 +25,7 @@ Women of today are not as religious as before. When they hear mass and go to chu
 
 I don't blame the women of today. After all, nobody is perfect. And Maria Clara is just a fictitious character from a famous novel. Nobody in this world has all those positive traits. 
 
-But what if there's one? What if there's a real Maria Clara roaming around in one of our 7,641 islands? 
+But what if there's one? What if there's a real Maria Clara roaming around in one of our 7,641 islands?   
 If there is somebody like that... I assume it is like finding a needle in a haystack. A unicorn that is totally uncatchable and extremely hard to find. 
 
 Well, I found not only one but two Maria Claras. The Gods of the old and new must be shining down on me and giving me the chance to see a "Real Unicorn".
