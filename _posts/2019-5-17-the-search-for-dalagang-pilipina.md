@@ -13,7 +13,7 @@ Sa madaling salita siya ay hindi ma-ARTE!
 
 Today, the Maria Clara types are now close to extinction. Women of today (although still blessed with beauty and talents), only have a few good characteristics similar to the fine lady written in the book.   
 Ladies of today are more career oriented. Most of the time, these ladies are even more financially successful compared to their better half. 
-They are the CEO of a promising company. Or they have created a new business model that sells their products like hotcakes.
+They are the CEO of a promising company. Or they have created a new business model that sells their products like hotcakes.   
 The only setback is they have become so busy that they don't have enough time to check on their old folks.   
 We don't like our daughters to do that to us when we get old... do we?
 
