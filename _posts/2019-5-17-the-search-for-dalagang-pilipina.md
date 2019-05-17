@@ -39,7 +39,8 @@ Allow me to introduce my 2 unicorns...
 Abbie is a Political Science student from the University of the Philippines Cebu. I am so lucky that we crossed paths a few years back.   
 She came to Manila to attend a big event at the Office of the Senate. 
 Abbie came to our place to spend 2 nights before she goes back home to Cebu.
-One thing I noticed about her is she always gives the **"Mano po"** to me and my wife.  Mano or pagmamano is an "honoring-gesture" used in Filipino culture performed as a sign of respect to elders and as a way of requesting a blessing from the elder. 
+One thing I noticed about her is she always gives the **"Mano po"** to me and my wife.   
+Mano or pagmamano is an "honoring-gesture" used in Filipino culture performed as a sign of respect to elders and as a way of requesting a blessing from the elder.   
 Similar to hand-kissing, the person giving the greeting bows towards the hand of the elder and presses their forehead on the elder's hand.
 Abbie always says the words **"po"** or **"opo"**. She also is very polite and courteous to our security guards and housekeeping staff.  
 
