@@ -17,7 +17,7 @@ They are the CEO of a promising company. Or they have created a new business mod
 The only setback is they have become so busy that they don't have enough time to check on their old folks.   
 We don't like our daughters to do that to us when we get old... do we?
 
-Girls of this generation are more aggressive in all aspects. If they like somebody, they will approach the guy with no hesitation. 
+Girls of this generation are more aggressive in all aspects. If they like somebody, they will approach the guy with no hesitation.   
 Little did they know that Boys like to be challenged. They want to do the courting and wooing the girl of their dreams. Boys are created to be aggressors, like a Lion in their pride. 
 Girls are more respected if they let the boys be the initiator. 
 
