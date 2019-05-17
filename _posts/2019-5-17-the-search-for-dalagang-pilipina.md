@@ -58,8 +58,10 @@ Perhaps her radiance is enough to show to everybody her true worth is.
 
 ----------------------------------------------------------------------------
 
-The real "Dalagang Filipina" has a resemblance from the Maria Clara character. They have genuine and ladylike characteristics that are very rare these days. They are what they call the perfect "Wife Material". 
-They are Family-oriented and overly faithful.  They will be the structure and foundation of the family that they will be having. 
+The real **"Dalagang Filipina"** has a resemblance from the Maria Clara character. They have genuine and ladylike characteristics that are very rare these days.   
+They are what they call the perfect **"Wife Material"**. 
+They are Family-oriented and overly faithful.   
+They will be the structure and foundation of the family that they will be having. 
 
 They are unicorns that can only be found in rainbows. They are very hard to find, almost close to impossible. 
 But when you do find them. When the Gods of the old and new give you this once in a lifetime opportunity. Take advantage of it. Seize it. 
