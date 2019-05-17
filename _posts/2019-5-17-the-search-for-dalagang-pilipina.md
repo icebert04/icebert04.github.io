@@ -56,7 +56,7 @@ Yes, this sweet and gentle lady can break your bones if you dare to attack her. 
 But aside from her talents, Czarina is known for her being **"Mahinhin"** and **"may Busilak na Puso"**. 
 She is very kind to all people.   
 This **"Unica Hija"** is so protected and guarded by her parents and her brothers. Wherever she goes, she has a driver to accompany her.   
-The amazing thing is Czarina doesn't ride at that back. She sits beside her driver. Whenever there is a feast in our Aikido dojo, this charming girl won't eat unless her driver was offered the same food. 
+The amazing thing is Czarina doesn't ride at the back. She sits beside her driver. Whenever there is a feast in our Aikido dojo, this charming girl won't eat unless her driver was offered the same food. 
 
 This girl from Malabon doesn't **"Dress to Impress"**. She just wears ordinary clothes and sneakers but still remains fabulous even with her utmost simplicity.   
 Perhaps her radiance is enough to show to everybody her true worth is. 
@@ -70,5 +70,4 @@ They will be the structure and foundation of the family that they will be having
 
 They are unicorns that can only be found in rainbows. They are very hard to find, almost close to impossible.   
 But when you do find them. When the Gods of the old and new give you this once in a lifetime opportunity. Take advantage of it. Seize it.   
-Take pleasure of being with these lovely creatures. You'll never know if you'll ever see them again.  
- 
+Take pleasure of being with these lovely creatures. You'll never know if you'll ever see them again.
