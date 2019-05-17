@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Czar](/images/Dalagang Pilipina.jpg)
