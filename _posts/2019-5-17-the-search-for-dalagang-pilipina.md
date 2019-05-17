@@ -40,8 +40,8 @@ One thing I noticed about her is she always gives the **"Mano po"** to me and my
 Similar to hand-kissing, the person giving the greeting bows towards the hand of the elder and presses their forehead on the elder's hand.
 Abbie always says the words **"po"** or **"opo"**. She also is very polite and courteous to our security guards and housekeeping staff.  
 
-She has discretion and dignity. The aspiring soon to be lawyer has "Delicadeza" and "Palabra de Honor". 
-Why do I say she has all of that? Because I was there to witness everything and it see in my own eyes. A Unicorn from the "Queen City of the South".
+She has discretion and dignity. The aspiring soon to be lawyer has **"Delicadeza"** and **"Palabra de Honor"**.   
+Why do I say she has all of that? Because I was there to witness everything and it see in my own eyes. A Unicorn from the **"Queen City of the South"**.
 
 UNICORN NO.2 
 "The Princess from Malabon"
