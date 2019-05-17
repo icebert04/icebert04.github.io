@@ -51,7 +51,7 @@ Why do I say she has all of that? Because I was there to witness everything and 
 **"The Princess from Malabon"**   
 Malabon City is known for poor waste management and highly vulnerable to flood. It's not the ideal place to find a Unicorn.   
 But alas, there was one remarkably beautiful creature in that place.
-Czarina is a student at St. Theresa's College in Quezon City. But we know her better as my son's classmate in Aikido. 
+Czarina is a student at St. Theresa's College in Quezon City. But we know her better as my son's classmate in Aikido.   
 Yes, this sweet and gentle lady can break your bones if you dare to attack her. Luigi, my son, still have the bruises in his shoulders and legs as a remembrance.
 But aside from her talents, Czarina is known for her being **"Mahinhin"** and **"may Busilak na Puso"**. 
 She is very kind to all people. This **"Unica Hija"** is so protected and guarded by her parents and her brothers. Wherever she goes, she has a driver to accompany her.
