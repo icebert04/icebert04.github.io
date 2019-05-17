@@ -54,7 +54,8 @@ But alas, there was one remarkably beautiful creature in that place.
 Czarina is a student at St. Theresa's College in Quezon City. But we know her better as my son's classmate in Aikido.   
 Yes, this sweet and gentle lady can break your bones if you dare to attack her. Luigi, my son, still have the bruises in his shoulders and legs as a remembrance.   
 But aside from her talents, Czarina is known for her being **"Mahinhin"** and **"may Busilak na Puso"**. 
-She is very kind to all people. This **"Unica Hija"** is so protected and guarded by her parents and her brothers. Wherever she goes, she has a driver to accompany her.   
+She is very kind to all people.   
+This **"Unica Hija"** is so protected and guarded by her parents and her brothers. Wherever she goes, she has a driver to accompany her.   
 The amazing thing is Czarina doesn't ride at that back. She sits beside her driver. Whenever there is a feast in our Aikido dojo, this charming girl won't eat unless her driver was offered the same food. 
 
 This girl from Malabon doesn't **"Dress to Impress"**. She just wears ordinary clothes and sneakers but still remains fabulous even with her utmost simplicity.   
