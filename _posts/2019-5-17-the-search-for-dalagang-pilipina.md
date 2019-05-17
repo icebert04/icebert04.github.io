@@ -25,7 +25,8 @@ Girls are more respected if they let the boys be the initiator.
 Women of today are not as religious as before. When they hear mass and go to church, they are wearing attires like they are going to a concert or a party.   
 That is why the Roman Catholic church now advises women to wear more appropriate attire to give respect to God, the priest, and their church. 
 
-I don't blame the women of today. After all, nobody is perfect. And Maria Clara is just a fictitious character from a famous novel. Nobody in this world has all those positive traits. 
+I don't blame the women of today. After all, nobody is perfect.   
+And Maria Clara is just a fictitious character from a famous novel. Nobody in this world has all those positive traits. 
 
 But what if there's one? What if there's a real Maria Clara roaming around in one of our 7,641 islands?   
 If there is somebody like that... I assume it is like finding a needle in a haystack. A unicorn that is totally uncatchable and extremely hard to find. 
