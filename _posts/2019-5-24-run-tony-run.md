@@ -46,7 +46,8 @@ The port area is about 100+ km away from Manila.
 That's about 3 hours drive in a private car and about 4-5 hours of travel time on a public bus.   
 Then add another 2 hours (30 km) of travel by ferry from Batangas City to Mindoro.
 
-Tony didn't do any of that. He didn't ride the bus or a bike going there. He didn't even rent a car. 
+Tony didn't do any of that. He didn't ride the bus or a bike going there.   
+He didn't even rent a car. 
 Tony just walked from Manila all the way to Batangas port area.
 
 Now ask me how long did Tony travel? It took him 3 days to get to Batangas City.
