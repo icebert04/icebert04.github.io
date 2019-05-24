@@ -60,7 +60,8 @@ Tony sleeps wherever and whenever. He slept in a waiting shed, a church, and the
 
 But all of that was cut short when he met some locals who were kind enough to offer him a place to rest and sleep.   
 This is not from the movie, ladies and gents...
-This is real, and it happened to Tony. He met new friends from Manila, Laguna, Cavite, and Batangas during his 3-day travel.
+This is real, and it happened to Tony.   
+He met new friends from Manila, Laguna, Cavite, and Batangas during his 3-day travel.
 
 Tony gathered unforgettable memories of each and every place that he has been and slept in.
 What is more special is him meeting different personalities and background.   
