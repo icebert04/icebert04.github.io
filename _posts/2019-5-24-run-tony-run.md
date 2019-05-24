@@ -12,7 +12,7 @@ Is it a car, a plane, a bike... Tell me, I'd like to know.
 It's obvious that our mode of transport will vary depending on the type of our journey. 
 Bike if it is near and Plane if it is far.
 
-But do any of you have traveled by foot?  Yes, you heard me right... on foot.
+But do any of you have traveled by foot?  Yes, you heard me right... on foot.   
 And I'm not talking about just walking a few meters from the parking lot to the grocery.
 I'm talking about at least a minimum of 100 kilometers.
 Anyone??? None???
