@@ -85,7 +85,8 @@ Let me tell you this... We will all reach our destination.
 Whether it's a success or failure, we will reach them someday.   
 The thing that bothers us is we tend to forget about the process. We forget about the climb. We forget about the pursuit.
 
-Let's all take pleasure of the journey, shall we. Let's not be impatient. We will get there somehow. 
+Let's all take pleasure of the journey, shall we. Let's not be impatient.   
+We will get there somehow. 
 Just relax, chill, and enjoy the spur of the moment.
 
 Tony has been doing that for a long long time. And you can see from his face that there is not an inch of stress or anxiety from him.
