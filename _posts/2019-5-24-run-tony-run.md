@@ -89,10 +89,11 @@ Let's all take pleasure of the journey, shall we. Let's not be impatient.
 We will get there somehow. 
 Just relax, chill, and enjoy the spur of the moment.
 
-Tony has been doing that for a long long time. And you can see from his face that there is not an inch of stress or anxiety from him.
+Tony has been doing that for a long long time. And you can see from his face that there is not an inch of stress or anxiety from him.   
 In fact, he is a very funny guy. Tony's sense of humor is off the charts. He can easily be a Hollywood comedian if he wants to.
 
-Let's try to be Tony shall we... We even don't have to run. 
+Let's try to be Tony shall we...   
+We even don't have to run. 
 We can just walk and enjoy each and every moment!
 
 
