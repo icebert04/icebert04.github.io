@@ -69,8 +69,8 @@ He discovered that most Filipinos have a genuine heart, making him convinced tha
 When Tony told me his unique story, I was totally in shock and overwhelmed by his valiant actions. 
 It got me thinking that this French guy is more concerned about his journey rather than his destination.
 
-Did you hear me? Concerned more about the journey rather than the destination. 
-Most of us care about just the destination. We are always impatient of the delayed flights and long stopovers.
+Did you hear me? Concerned more about the journey rather than the destination.   
+Most of us care about just the destination. We are always impatient of the delayed flights and long stopovers.   
 We always complain and complain. 
 We never get to see what Tony saw during his numerous travels. The real pleasure of traveling.
 
