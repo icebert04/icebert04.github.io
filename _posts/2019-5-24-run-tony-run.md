@@ -29,7 +29,8 @@ For those who haven't watch the film, Forrest is a guy who was known from runnin
 And when he gets hungry, he ate. When he gets tired, he slept.   
 It's a fictional movie but it won the hearts of many.
 
-Tony is kinda like him. He is like the running guy from the acclaimed film. The only difference is that Tony only walks. 
+Tony is kinda like him. He is like the running guy from the acclaimed film.   
+The only difference is that Tony only walks. 
 
 I met Tony when he was here in the Philippines. I heard a lot of wonderful stories about his travel from different parts of the world. 
 He even showed me his YouTube channel to encourage me and my family to visit the places that he has been.
