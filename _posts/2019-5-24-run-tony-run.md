@@ -8,7 +8,7 @@ published: true
 **"Introducing Tony, the French Walking Guy"**
 
 I have a question for you? When you travel, what mode of transportation do you normally use?  
-Is it a car, a plane, a bike... Tell me, I'd like to know.
+Is it a car, a plane, a bike... Tell me, I'd like to know.   
 It's obvious that our mode of transport will vary depending on the type of our journey. 
 Bike if it is near and Plane if it is far.
 
