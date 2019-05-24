@@ -63,7 +63,8 @@ This is not from the movie, ladies and gents...
 This is real, and it happened to Tony. He met new friends from Manila, Laguna, Cavite, and Batangas during his 3-day travel.
 
 Tony gathered unforgettable memories of each and every place that he has been and slept in.
-What is more special is him meeting different personalities and background. He discovered that most Filipinos have a genuine heart, making him convinced that he choose the right country.
+What is more special is him meeting different personalities and background.   
+He discovered that most Filipinos have a genuine heart, making him convinced that he choose the right country.
 
 When Tony told me his unique story, I was totally in shock and overwhelmed by his valiant actions. 
 It got me thinking that this French guy is more concerned about his journey rather than his destination.
