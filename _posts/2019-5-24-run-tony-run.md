@@ -40,9 +40,10 @@ But the thing that impressed me the most is his unique way of traveling. His unc
 Tony told me that when he arrived in Manila, he already has a set of itineraries in mind.
 His goal is to go Scuba and relax on the tranquilizing beaches of Mindoro.
 
-To get to Mindoro you have to either take a bus or a private car all the way to the province of Batangas. 
+To get to Mindoro you have to either take a bus or a private car all the way to the province of Batangas.   
 Batangas City is where tourist go to as their designated port area on way to Puerto Galera (most popular spot in Mindoro island).
-The port area is about 100+ km away from Manila. That's about 3 hours drive in a private car and about 4-5 hours of travel time on a public bus.
+The port area is about 100+ km away from Manila.   
+That's about 3 hours drive in a private car and about 4-5 hours of travel time on a public bus.   
 Then add another 2 hours (30 km) of travel by ferry from Batangas City to Mindoro.
 
 Tony didn't do any of that. He didn't ride the bus or a bike going there. He didn't even rent a car. 
