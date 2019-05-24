@@ -20,7 +20,7 @@ Anyone??? None???
 I guess so. Nobody in this damn earth will walk a hundred kilometers. 
 Guess what? Somebody just did.
 
-His name is Tony. A French guy who's been traveling all over the world. 
+His name is Tony. A French guy who's been traveling all over the world.   
 The one thing unique about him is whenever he arrives in a particular country, he doesn't take the bus, or train, or a cab, or any kind of mode of transportation. 
 He just uses his two feet. 
 Kinda an odd guy right? Kinda that guy from the famous movie. What was his name again... "Forrest Gump". 
