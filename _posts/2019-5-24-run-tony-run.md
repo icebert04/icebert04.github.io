@@ -25,8 +25,8 @@ The one thing unique about him is whenever he arrives in a particular country, h
 He just uses his two feet. 
 Kinda an odd guy right? Kinda that guy from the famous movie. What was his name again... **"Forrest Gump"**. 
 
-For those who haven't watch the film, Forrest is a guy who was known from running all over the United States. He just ran from one state to another.
-And when he gets hungry, he ate. When he gets tired, he slept. 
+For those who haven't watch the film, Forrest is a guy who was known from running all over the United States. He just ran from one state to another.   
+And when he gets hungry, he ate. When he gets tired, he slept.   
 It's a fictional movie but it won the hearts of many.
 
 Tony is kinda like him. He is like the running guy from the acclaimed film. The only difference is that Tony only walks. 
