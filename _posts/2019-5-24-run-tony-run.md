@@ -55,7 +55,7 @@ It took him 3 days to get to Batangas City.
 How did he do it? Just like what Forrest Gump did in the movie, when Tony gets hungry, he stops and eats. 
 When he gets tired, he looks for a place and sleeps. 
 
-And when I say place, it's not a hotel of some sort. Not even a motel or Airbnb. 
+And when I say place, it's not a hotel of some sort. Not even a motel or Airbnb.   
 Tony sleeps wherever and whenever. He slept in a waiting shed, a church, and the provincial playground.
 
 But all of that was cut short when he met some locals who were kind enough to offer him a place to rest and sleep. 
