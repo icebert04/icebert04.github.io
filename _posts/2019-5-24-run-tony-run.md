@@ -14,7 +14,7 @@ Bike if it is near and Plane if it is far.
 
 But do any of you have traveled by foot?  Yes, you heard me right... on foot.   
 And I'm not talking about just walking a few meters from the parking lot to the grocery.
-I'm talking about at least a minimum of 100 kilometers.
+I'm talking about at least a minimum of 100 kilometers.   
 Anyone??? None???
 
 I guess so. Nobody in this damn earth will walk a hundred kilometers. 
