@@ -81,7 +81,8 @@ And I'm not just talking about just travel.
 It implies to almost anything.   
 It could be like the journey to purchase your dream home. Or the journey to being VP of the company that you are working in. Or the journey of winning the girl of your dreams.
 
-Let me tell you this... We will all reach our destination. Whether it's a success or failure, we will reach them someday.
+Let me tell you this... We will all reach our destination.   
+Whether it's a success or failure, we will reach them someday.   
 The thing that bothers us is we tend to forget about the process. We forget about the climb. We forget about the pursuit.
 
 Let's all take pleasure of the journey, shall we. Let's not be impatient. We will get there somehow. 
