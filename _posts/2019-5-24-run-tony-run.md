@@ -74,8 +74,8 @@ Most of us care about just the destination. We are always impatient of the delay
 We always complain and complain. 
 We never get to see what Tony saw during his numerous travels. The real pleasure of traveling.
 
-Tony is teaching us this... 
-"It's not really about the destination, but more of the journey that truly matters"!
+Tony is teaching us this...   
+**"It's not really about the destination, but more of the journey that truly matters"**!
 
 And I'm not just talking about just travel. 
 It implies to almost anything. It could be like the journey to purchase your dream home. Or the journey to being VP of the company that you are working in. Or the journey of winning the girl of your dreams.
