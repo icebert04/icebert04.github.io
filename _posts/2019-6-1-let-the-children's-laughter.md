@@ -15,7 +15,7 @@ These kids eventually have now all grown up and matured. They have their own lif
 It's a pleasant feeling that both parties benefited from each other. Learning from these juveniles gave me a brighter outlook on life. 
 While I (in return) was able to teach these kids some good pointers about growing up the right way.
 
-Do I miss them, of course! But that's how the way life goes. A circle of life that goes round and round from one generation to the next.
+Do I miss them, of course! But that's how the way life goes. A circle of life that goes round and round from one generation to the next.   
 The good thing is this... there's always a new batch to look forward to. 
 And the good news is that we are living in the right country that is super excellent in producing these kids... like loads and loads of them. 
 
@@ -24,9 +24,9 @@ Just look around you. You will see a child or two in your location. Whether they
 They are basically everywhere. 
 
 Don't get me wrong, I still hang out with adults. The citizens of my generation. I also chill with the old ones. I basically exempt no one. I talk and bond with different race and ages. 
-But the most favorite of mine are the children. 
-Not only they are so adorable, but they teach me one remarkable quote that I want to apply to my everyday life... 
-"The World's a Playground. You know that when you are a Kid, but somewhere along the way everyone forgets it"!
+But the most favorite of mine are the children.   
+Not only they are so adorable, but they teach me one remarkable quote that I want to apply to my everyday life...   
+**"The World's a Playground. You know that when you are a Kid, but somewhere along the way everyone forgets it"**!
 
 Just observe at what kids do every day. They only have only one full-time occupation... and it's called "Play"!
 They don't think about work, politics, time management, mortgage, and most of the adult's boring stuff.
