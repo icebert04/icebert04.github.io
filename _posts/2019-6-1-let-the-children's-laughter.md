@@ -28,8 +28,8 @@ But the most favorite of mine are the children.
 Not only they are so adorable, but they teach me one remarkable quote that I want to apply to my everyday life...   
 **"The World's a Playground. You know that when you are a Kid, but somewhere along the way everyone forgets it"**!
 
-Just observe at what kids do every day. They only have only one full-time occupation... and it's called "Play"!
-They don't think about work, politics, time management, mortgage, and most of the adult's boring stuff.
+Just observe at what kids do every day. They only have only one full-time occupation... and it's called **"Play"**!   
+They don't think about work, politics, time management, mortgage, and most of the adult's boring stuff.   
 They don't have any kind of stress and anxiety. They treat life like it supposed to be... fun and filled with joyous adventures.
 
 Whenever I'm with these kids (like these two on the picture), we never ran out of ideas of fun things to do together. 
