@@ -32,9 +32,9 @@ Just observe at what kids do every day. They only have only one full-time occupa
 They don't think about work, politics, time management, mortgage, and most of the adult's boring stuff.   
 They don't have any kind of stress and anxiety. They treat life like it supposed to be... fun and filled with joyous adventures.
 
-Whenever I'm with these kids (like these two on the picture), we never ran out of ideas of fun things to do together. 
-We play mud in the sand. Play hide and seek. Name all the lizards on the roofs and ceilings. Create our very own personal paper kites. Save a kitten and bring it home. Eat all the sweet candies that we can find. Any many many more.
-Just like in the movie "Charlie and the Chocolate Factory", we create our own world. We make our own rules and we lived in the moment.
+Whenever I'm with these kids (like these two on the picture), we never ran out of ideas of fun things to do together.   
+We play mud in the sand. Play hide and seek. Name all the lizards on the roofs and ceilings. Create our very own personal paper kites. Save a kitten and bring it home. Eat all the sweet candies that we can find. Any many many more.   
+Just like in the movie **"Charlie and the Chocolate Factory"**, we create our own world. We make our own rules and we lived in the moment.   
 We never think of the past and we don't have to worry about the future.
 
 You see, kids are filled with positive energy.  They possess unique energy or what the Chinese commonly call as "Chi". 
