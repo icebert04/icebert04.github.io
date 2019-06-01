@@ -40,7 +40,7 @@ We never think of the past and we don't have to worry about the future.
 You see, kids are filled with positive energy.  They possess unique energy or what the Chinese commonly call as **"Chi"**.   
 Their strong universal life force energy is so intense that no amount of negative power can penetrate their physical state. 
 
-Most adults have unbalanced "Chi" that cause their emotions to become agitated, distressed and erratic. 
+Most adults have unbalanced **"Chi"** that cause their emotions to become agitated, distressed and erratic. 
 That eventually leads to sickness, deterioration and rapid aging.
 
 When you hang out with kids, their positive energy will rub off on you which can, in some way, help you have a better positive lifestyle. 
