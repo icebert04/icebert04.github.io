@@ -57,11 +57,11 @@ You'll notice that you will be smiling more often.  Your once negative energy wi
 Don't mind those people that will say you are **"Isip Bata"**.   
 Better that, than them being **"Mukhang Matanda"** from all the stress, jealousness, and bitterness that they gained through all of their miserable years. 
 
-I'm am now 44 years of age. But I feel like I'm 34 whenever I'm with these kids. 
-Subtract another 10 years when we do play on the street like "Agawan Base", "Langit Lupa", "Piko", "Patintero", "Luksong Tinik", and "Tumbang Preso".
+I'm am now 44 years of age. But I feel like I'm 34 whenever I'm with these kids.   
+Subtract another 10 years when we do play on the street like "Agawan Base", "Langit Lupa", "Piko", "Patintero", "Luksong Tinik", and "Tumbang Preso".   
 Somehow, I feel that I still have reliable tread in my tires.
 
-Our World is our Playground. Our creator made it that way. We adults should maintain it that way every day. 
-Let the children's laughter... it will remind us how we used to be.
+Our World is our Playground. Our creator made it that way. We adults should maintain it that way every day.   
+Let the children's laughter... it will remind us how we used to be.   
 Be a kid at heart. Your life will be much much more happier if you have that positive feeling.
 
