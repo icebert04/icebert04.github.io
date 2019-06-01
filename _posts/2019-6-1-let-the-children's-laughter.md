@@ -48,7 +48,7 @@ When you hang out with kids, their positive energy will rub off on you which can
 There is an old saying **"Masarap maging bata"** (It's nice to be young). That quote is entirely true.   
 When you are a kid, your days are always filled with smiles. And when you get older, it will be replaced with grimaces and frowns. 
 
-I've been hanging out with kids since the beginning of time. Even before I had kids of my own, I was bonding with all of them from different places, family background, and gender.
+I've been hanging out with kids since the beginning of time. Even before I have kids of my own, I was bonding with all of them from different places, family background, and gender.
 They are all **"Genuine Gems"** to me.
 
 I suggest you try it too. Just hang out with these kids.   
