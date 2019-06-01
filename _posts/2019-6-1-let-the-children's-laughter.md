@@ -49,7 +49,7 @@ There is an old saying **"Masarap maging bata"** (It's nice to be young). That q
 When you are a kid, your days are always filled with smiles. And when you get older, it will be replaced with grimaces and frowns. 
 
 I've been hanging out with kids since the beginning of time. Even before I had kids of my own, I was bonding with all of them from different places, family background, and gender.
-They are all "Genuine Gems" to me.
+They are all **"Genuine Gems"** to me.
 
 I suggest you try it too. Just hang out with these kids. 
 You'll notice that you will be smiling more often.  Your once negative energy will be replaced with a new and rejuvenated positive energy.  
