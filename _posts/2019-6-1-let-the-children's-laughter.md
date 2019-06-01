@@ -12,7 +12,7 @@ And most important of all, they are full of energy and positivity in life.
 Through the course of my entire life, I managed to encounter a lot of kids from different walks of life.   
 They were not mine, but I don't mind because we share a common bond and enthusiasm with endless play and adventures.
 These kids eventually have now all grown up and matured. They have their own life now as we speak. But that's all fine with me because I will forever cherish the time that we had when they were little.   
-It's a pleasant feeling that both parties benefited from each other. Learning from these juveniles gave me a brighter outlook on life. 
+It's a pleasant feeling that both parties benefited from each other. Learning from these juveniles gave me a brighter outlook on life.   
 While I (in return) was able to teach these kids some good pointers about growing up the right way.
 
 Do I miss them, of course! But that's how the way life goes. A circle of life that goes round and round from one generation to the next.   
