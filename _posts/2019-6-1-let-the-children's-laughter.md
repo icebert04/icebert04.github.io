@@ -51,11 +51,11 @@ When you are a kid, your days are always filled with smiles. And when you get ol
 I've been hanging out with kids since the beginning of time. Even before I had kids of my own, I was bonding with all of them from different places, family background, and gender.
 They are all **"Genuine Gems"** to me.
 
-I suggest you try it too. Just hang out with these kids. 
+I suggest you try it too. Just hang out with these kids.   
 You'll notice that you will be smiling more often.  Your once negative energy will be replaced with a new and rejuvenated positive energy.  
 
-Don't mind those people that will say you are "Isip Bata". 
-Better that, than them being "Mukhang Matanda" from all the stress, jealousness, and bitterness that they gained through all of their miserable years. 
+Don't mind those people that will say you are **"Isip Bata"**.   
+Better that, than them being **"Mukhang Matanda"** from all the stress, jealousness, and bitterness that they gained through all of their miserable years. 
 
 I'm am now 44 years of age. But I feel like I'm 34 whenever I'm with these kids. 
 Subtract another 10 years when we do play on the street like "Agawan Base", "Langit Lupa", "Piko", "Patintero", "Luksong Tinik", and "Tumbang Preso".
