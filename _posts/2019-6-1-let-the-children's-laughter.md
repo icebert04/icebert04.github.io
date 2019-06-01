@@ -37,7 +37,7 @@ We play mud in the sand. Play hide and seek. Name all the lizards on the roofs a
 Just like in the movie **"Charlie and the Chocolate Factory"**, we create our own world. We make our own rules and we lived in the moment.   
 We never think of the past and we don't have to worry about the future.
 
-You see, kids are filled with positive energy.  They possess unique energy or what the Chinese commonly call as "Chi". 
+You see, kids are filled with positive energy.  They possess unique energy or what the Chinese commonly call as **"Chi"**.   
 Their strong universal life force energy is so intense that no amount of negative power can penetrate their physical state. 
 
 Most adults have unbalanced "Chi" that cause their emotions to become agitated, distressed and erratic. 
