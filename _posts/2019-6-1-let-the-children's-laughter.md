@@ -6,7 +6,7 @@ published: true
 **"Why hanging out with Kids will make your Life more Happier"**
 
 Whether you have kids of your own or not, you have to agree that kids are probably the most beautiful creatures ever made in this world.   
-Just looking at their cute faces is enough to make your heart melt. Their smile and laughter can brighten any dark and gloomy kingdom. 
+Just looking at their cute faces is enough to make your heart melt. Their smile and laughter can brighten any dark and gloomy kingdom.   
 And most important of all, they are full of energy and positivity in life. 
 
 Through the course of my entire life, I managed to encounter a lot of kids from different walks of life.   
