@@ -28,11 +28,13 @@ Or have a Beef Tapa jerky business in Manila from the islands of Masbate.
 How about building an Eco-Themed Resort in coordination with the Parrot Conservatory group in Palawan?   
 Anything is possible and can be within your reach.
 
-Lastly, you get to know different people from different walks of life from the 17 regions, 81 provinces, 145 cities, 1,489 municipalities, and 42,036 barangays. 
+Lastly, you get to know different people from different walks of life from the 17 regions, 81 provinces, 145 cities, 1,489 municipalities, and 42,036 barangays.   
 Get to know them in person. The place that they are living in. Their culture and way of life. 
-Filipinos are known for having the most kindest of heart. What better way than reaching out to them and find a deeper perspective and meaning.
+Filipinos are known for having the most kindest of heart.   
+What better way than reaching out to them and find a deeper perspective and meaning.
 
-PerlWat is a community-driven platform where it's main objective is not only to give awareness to our fellow Filipinos on how beautiful our country is, but also to unite us all and help each other in protecting our motherland. Thus, making our place a much better place to live in.
+PerlWat is a community-driven platform where it's main objective is not only to give awareness to our fellow Filipinos on how beautiful our country is, but also to unite us all and help each other in protecting our motherland.   
+Thus, making our place a much better place to live in.
 
 Every day,  we will broadcast the brighter side of the Philippines. 
 Everything will be real! We will show Real People, Real Places, and Real Stories.
