@@ -22,10 +22,10 @@ That is why I created PerlWat (Perlas and Watawat) to hopefully bring some encou
 We are here to bring awareness that the Philippines is still the best place to travel. We will show you the cheapest places to go to. What is the latest food craze.   
 The hottest vacation spot that most people doesn't fully know about. And more exciting new places to discover.
 
-PerlWat will also shed some light about business and investment opportunities from all the 3 island groups of Luzon, Visayas, and Mindanao. 
-Anything can happen... you can have a business partner in Guimaras on producing quality export dried mangoes. 
-Or have a Beef Tapa jerky business in Manila from the islands of Masbate. 
-How about building an Eco-Themed Resort in coordination with the Parrot Conservatory group in Palawan? 
+PerlWat will also shed some light about business and investment opportunities from all the 3 island groups of Luzon, Visayas, and Mindanao.   
+Anything can happen... you can have a business partner in Guimaras on producing quality export dried mangoes.   
+Or have a Beef Tapa jerky business in Manila from the islands of Masbate.   
+How about building an Eco-Themed Resort in coordination with the Parrot Conservatory group in Palawan?   
 Anything is possible and can be within your reach.
 
 Lastly, you get to know different people from different walks of life from the 17 regions, 81 provinces, 145 cities, 1,489 municipalities, and 42,036 barangays. 
