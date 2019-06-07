@@ -42,12 +42,12 @@ Unlike with **"Friendillion"**, where it's purpose is a personal journal of mine
 PerlWat is a lot different. It's a journal for everybody.   
 A chronicle for every Filipino who's craving for more good news and inspiring stories from Batanes all the way to Tawi-Tawi.
 
-It's not just going to be me. It will also be composed of you, him, her, them, they, Ate, Kuya, Mang Ernesto, Ka-Linda, and any other fellow Filipino. 
+It's not just going to be me. It will also be composed of you, him, her, them, they, Ate, Kuya, Mang Ernesto, Ka-Linda, and any other fellow Filipino.   
 Their stories will be ours to absorbed. We will learn, be educated, and most especially be inspired.
 
 The goal is to connect us Filipinos. To inform us that we are all brothers and sisters regardless of religion, race, status, and background. 
 
-I am now compiling stories for you. If you have one story to share about your place, your province, your business or any inspiring story from your network of people... please do share it with me.
+I am now compiling stories for you. If you have one story to share about your place, your province, your business or any inspiring story from your network of people... please do share it with me.   
 We will share this all around. We will show to everybody the real beauty of the Philippines.
 
 It is not just the beaches, mountains, volcanoes, rainforests, heritage towns and monuments, islands and diving spots...
