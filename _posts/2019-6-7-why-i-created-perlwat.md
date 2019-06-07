@@ -55,4 +55,4 @@ It is not just the beaches, mountains, volcanoes, rainforests, heritage towns an
 
 This is about us and every other Filipino. 
 We are the real beauty that makes our country a genuine gemstone.  
-Tayo ang tunay na Perlas ng Silangan!
+Tayo po ang tunay na Perlas ng Silangan!
