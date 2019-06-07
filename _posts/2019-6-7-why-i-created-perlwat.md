@@ -9,7 +9,8 @@ I don't blame them, there are not enough pastures that go around here anyway.
 Some locals despise our country. To them, they think that staying and living in a foreign country gives them the right to be more superior than the ones they left behind.   
 Little did they know that their blood of being a Filipino still runs in their veins.
 
-Why is it some Filipinos hate our country? Did our country do something bad to them to made them act that way? 
+Why is it some Filipinos hate our country?   
+Did our country do something bad to them to made them act that way? 
 Did they lose hope and have given up on our motherland?
 
 To my fellow Filipinos, please, in any circumstance, don't ever lose hope to the country where you were born in.   
