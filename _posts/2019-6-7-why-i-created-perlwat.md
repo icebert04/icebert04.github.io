@@ -37,9 +37,9 @@ PerlWat is a community-driven platform where it's main objective is not only to 
 Thus, making our place a much better place to live in.
 
 Every day,  we will broadcast the brighter side of the Philippines. 
-Everything will be real! We will show Real People, Real Places, and Real Stories.
-Unlike with Friendillion, where it's purpose is a personal journal of mine meeting new interesting people.
-PerlWat is a lot different. It's a journal for everybody. 
+Everything will be real! We will show Real People, Real Places, and Real Stories.   
+Unlike with **"Friendillion"**, where it's purpose is a personal journal of mine meeting new interesting people.   
+PerlWat is a lot different. It's a journal for everybody.   
 A chronicle for every Filipino who's craving for more good news and inspiring stories from Batanes all the way to Tawi-Tawi.
 
 It's not just going to be me. It will also be composed of you, him, her, them, they, Ate, Kuya, Mang Ernesto, Ka-Linda, and any other fellow Filipino. 
