@@ -3,23 +3,23 @@ published: true
 ---
 ![Philippines](/images/Perl Light.jpg)
 
-Everywhere I look, I see Filipinos leaving our country for greener pastures. Some for temporary work, some for good.
+Everywhere I look, I see Filipinos leaving our country for greener pastures. Some for temporary work, some for good.   
 I don't blame them, there are not enough pastures that go around here anyway.
 
-Some locals despise our country. To them, they think that staying and living in a foreign country gives them the right to be more superior than the ones they left behind. 
+Some locals despise our country. To them, they think that staying and living in a foreign country gives them the right to be more superior than the ones they left behind.   
 Little did they know that their blood of being a Filipino still runs in their veins.
 
 Why is it some Filipinos hate our country? Did our country do something bad to them to made them act that way? 
 Did they lose hope and have given up on our motherland?
 
-To my fellow Filipinos, please, in any circumstance, don't ever lose hope to the country where you were born in.
-There is so much beauty in the Philippines. We people just tend to forget it. We sometimes ignore what is in front of us. 
+To my fellow Filipinos, please, in any circumstance, don't ever lose hope to the country where you were born in.   
+There is so much beauty in the Philippines. We people just tend to forget it. We sometimes ignore what is in front of us.   
 Why do we have to travel to different countries, when we have 7,641 amazing and captivating islands to choose from?
 
 The problem is we have this wrong misconception that traveling within our country can really be expensive. That it is more cheaper to travel to our neighboring countries such as Thailand, HongKong, Vietnam, and Indonesia.
 
-That is why I created PerlWat (Perlas and Watawat) to hopefully bring some encouragement and enlightenment to each and every one of us.
-We are here to bring awareness that the Philippines is still the best place to travel. We will show you the cheapest places to go to. What is the latest food craze. 
+That is why I created PerlWat (Perlas and Watawat) to hopefully bring some encouragement and enlightenment to each and every one of us.   
+We are here to bring awareness that the Philippines is still the best place to travel. We will show you the cheapest places to go to. What is the latest food craze.   
 The hottest vacation spot that most people doesn't fully know about. And more exciting new places to discover.
 
 PerlWat will also shed some light about business and investment opportunities from all the 3 island groups of Luzon, Visayas, and Mindanao. 
