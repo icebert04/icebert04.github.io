@@ -5,20 +5,20 @@ permalink: /about/
 published: true
 ---
 
-Hi! My name is Francis Isberto.
+Hi! My name is Francis Isberto. The Author of Friendillion.
 
-I'm living a happy life! Blessed with a loving wife and 2 obedient boys. 
-
-As a Full Stack Developer, I get to work on the comforts on my home and spend more time with my Siamese Cat and play NBA2K.
-
-I love outdoor sports and go swimming laps workout regularly. Whenever there is an opportunity, I always do travel.
+I'm a Writer, part-time Entrepreneur and a ### Content Marketing Consultant.
 
 
 
 ![Francis and Nia](/images/Friendillion 2.jpg)  
 
 
+I'm living a happy life! Blessed with a loving wife and 2 obedient boys. 
 
+As a Full Stack Developer, I get to work on the comforts on my home and spend more time with my Siamese Cat and play NBA2K.
+
+I love outdoor sports and go swimming laps workout regularly. Whenever there is an opportunity, I always do travel.
 
 But now, I want to spice up my life and add more things that really matters... particularly gaining new friends.
 
