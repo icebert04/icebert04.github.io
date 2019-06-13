@@ -5,34 +5,39 @@ permalink: /about/
 published: true
 ---
 
-Hi! My name is Francis Isberto. The Author of Friendillion.
+Hi! My name is Francis Isberto. The Creator of Friendillion.
 
-I'm a Writer, part-time Entrepreneur and a ### Content Marketing Consultant.
-
+I'm a Writer, part-time Entrepreneur and a Content Marketing Consultant. 
 
 
 ![Francis and Nia](/images/Friendillion 2.jpg)  
 
+I built Friendillion primarily as my personal journal of gaining new friends. 
 
-I'm living a happy life! Blessed with a loving wife and 2 obedient boys. 
-
-As a Full Stack Developer, I get to work on the comforts on my home and spend more time with my Siamese Cat and play NBA2K.
-
-I love outdoor sports and go swimming laps workout regularly. Whenever there is an opportunity, I always do travel.
-
-But now, I want to spice up my life and add more things that really matters... particularly gaining new friends.
-
-Are you willing to be one of them?
+What I never expected was people started to like my posts and articles. They said it is inspiring and has somewhat changed their lives. 
 
 
-### More Information about Friendillion  
+### Here's why I started to become Popular 
+
+Last March, I posted an article titled "THE THING CALLED MATERIALISM" on my Facebook page. That post went viral. 
+That post reached 2,877,912 and 782,130 engagements.   
+It gathered 27 thousand Likes, 3.1 thousand Comments, and 17 thousand Shares. 
+I didn’t pay anything nor used Facebook Ads. Everything is organic!
+
+See link for reference...
+https://www.facebook.com/friendillion/posts/624066881378707?__tn__=K-R
+
+Then another article of mine went viral, and then another... and another.
+
+That's when I realized that we have something special going around here. People are inspired. It somewhat kept their hopes up. In my own small way, I was able to help them with their lives.
+
+Through that, I've discovered the real definition of Friendillion... Helping People!
 
 
-Friendillion is specifically made to change the world one Friendship at a time. 
+### Here's how I offer my Help
 
-The intention is to somehow transform people from bad to good, from hatred to love, from envy to generosity, and from enemies to new found friend. 
 
-If most of the people from every parts of the world embrace this belief, our world will definitely be a better place to live in.
+
 
 ### Contact me
 
