@@ -17,7 +17,7 @@ I built Friendillion primarily as my personal journal of gaining new friends.
 What I never expected was people started to like my posts and articles. They said it is inspiring and has somewhat changed their lives. 
 
 
-### Here's why I started to become Popular 
+## Here's why I started to become Popular 
 
 Last March, I posted an article titled "THE THING CALLED MATERIALISM" on my Facebook page. That post went viral. 
 That post reached 2,877,912 and 782,130 engagements.   
@@ -35,13 +35,13 @@ People are inspired. It somewhat kept their hopes up. In my own small way, I was
 Through that, I've discovered the real definition of Friendillion... Helping People!
 
 
-### Here's how I offer my Help
+## Here's how I offer my Help
 
 I will help grow your business through
 
-> Boosting your Facebook Page 
-> Get your Customers Engaged 
-> Generate more Sales        
+> Boosting your Facebook Page   
+Get your Customers Engaged   
+Generate more Sales        
 
 
 My strengths lie in "Building Relationships"! Healthy business relationships are the foundation of any successful business.   
@@ -49,7 +49,7 @@ Your Customers will love you. Influencers will align with you. And Competitors w
 
 
 
-### Fell Free to Contact me
+## Fell Free to Contact me
 
 Don't be shy to message me. There's no such thing as too small to do business.   
 Just remember, that I too started from small...
