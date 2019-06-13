@@ -40,19 +40,19 @@ Through that, I've discovered the real definition of Friendillion... Helping Peo
 I will help grow your business through
 
 ```sh
-$ Boosting your Facebook Page
-$ Get your Customers Engaged
-$ Which will lead to more Sales
+Boosting your Facebook Page
+Get your Customers Engaged
+Generate more Sales
 ```
 
 My strengths lie in "Building Relationships"! Healthy business relationships are the foundation of any successful business.   
-Your customers will love you. Inluencers will align with you. And Competitors will become friends.
+Your customers will love you. Influencers will align with you. And Competitors will become friends.
 
 
 
 ### Fell Free to Contact me
 
-Don't be shy to message me. There's no such thing as to small to do business.   
+Don't be shy to message me. There's no such thing as too small to do business.   
 Just remember, that I too started from small...
 
 
