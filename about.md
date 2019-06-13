@@ -7,7 +7,7 @@ published: true
 
 Hi! My name is Francis Isberto. The Creator of Friendillion.
 
-I'm a Writer, part-time Entrepreneur and a Content Marketing Consultant. 
+I'm a Writer, part-time Entrepreneur, and a Content Marketing Consultant. 
 
 
 ![Francis and Nia](/images/Friendillion 2.jpg)  
