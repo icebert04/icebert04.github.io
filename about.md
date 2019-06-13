@@ -29,13 +29,24 @@ See link for reference...
 
 Then another article of mine went viral, and then another... and another.
 
-That's when I realized that we have something special going around here. People are inspired. It somewhat kept their hopes up. In my own small way, I was able to help them with their lives.
+That's when I realized that we have something special going around here.   
+People are inspired. It somewhat kept their hopes up. In my own small way, I was able to help them with their lives.
 
 Through that, I've discovered the real definition of Friendillion... Helping People!
 
 
 ### Here's how I offer my Help
 
+I will help grow your business through
+
+```sh
+$ Boosting your Facebook Page
+$ Get your Customers Engaged
+$ Which will lead to more Sales
+```
+
+My strenghts lie in "Building Relationships"! Healthy business relationships are the foundation of any successful business.   
+Your customers will love you. Inluencers will align with you. And Competitors will become friends.
 
 
 
