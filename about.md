@@ -45,15 +45,18 @@ $ Get your Customers Engaged
 $ Which will lead to more Sales
 ```
 
-My strenghts lie in "Building Relationships"! Healthy business relationships are the foundation of any successful business.   
+My strengths lie in "Building Relationships"! Healthy business relationships are the foundation of any successful business.   
 Your customers will love you. Inluencers will align with you. And Competitors will become friends.
 
 
 
-### Contact me
+### Fell Free to Contact me
+
+Don't be shy to message me. There's no such thing as to small to do business.   
+Just remember, that I too started from small...
 
 
-_Email_ : [friendillion@gmail.com](mailto:friendillion@gmail.com)
+Shoot me an _Email_ at [icebert04@gmail.com](mailto:icebert04@gmail.com)
 
 You can also reach me through my social media sites...  
 
