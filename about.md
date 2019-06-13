@@ -39,14 +39,13 @@ Through that, I've discovered the real definition of Friendillion... Helping Peo
 
 I will help grow your business through
 
-```sh
-Boosting your Facebook Page
-Get your Customers Engaged
-Generate more Sales
-```
+| Boosting your Facebook Page |
+| Get your Customers Engaged |
+| Generate more Sales        |
+
 
 My strengths lie in "Building Relationships"! Healthy business relationships are the foundation of any successful business.   
-Your customers will love you. Influencers will align with you. And Competitors will become friends.
+Your Customers will love you. Influencers will align with you. And Competitors will become friends.
 
 
 
