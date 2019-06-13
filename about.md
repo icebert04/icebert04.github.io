@@ -21,11 +21,11 @@ What I never expected was people started to like my posts and articles. They sai
 
 Last March, I posted an article titled "THE THING CALLED MATERIALISM" on my Facebook page. That post went viral. 
 That post reached 2,877,912 and 782,130 engagements.   
-It gathered 27 thousand Likes, 3.1 thousand Comments, and 17 thousand Shares. 
+It gathered 27 thousand Likes, 3.1 thousand Comments, and 17 thousand Shares.   
 I didn’t pay anything nor used Facebook Ads. Everything is organic!
 
 See link for reference...
-https://www.facebook.com/friendillion/posts/624066881378707?__tn__=K-R
+["The Thing Called Materialism"](https://www.facebook.com/friendillion/posts/624066881378707?__tn__=K-R)
 
 Then another article of mine went viral, and then another... and another.
 
