@@ -66,7 +66,8 @@ As proof, Mio built her own wooden garden-house all by herself.
 Mio also assists her father when they make new garden beds for their vegetables.   
 They are always together. Their bond is so strong and inseparable. 
 
-I got to talk to both Koji and Mio. And believe me, they are really special. They are kind, sincere to the feelings of others, noticeably simple and yes... they know now how to speak English.   
+I got to talk to both Koji and Mio. And believe me, they are really special.   
+They are kind, sincere to the feelings of others, noticeably simple and yes... they know now how to speak English.   
 They are not just Father and Daughter. They are like Best friends.   
 We don't see that often in a relationship, do we?
 
