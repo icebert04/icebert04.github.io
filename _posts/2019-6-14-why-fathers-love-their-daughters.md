@@ -57,8 +57,8 @@ We should be hearing complaints from Koji this time around but no, he went on hi
 Koji is what I can say a **"Sacrificial Lamb"** for the family.   
 It is just in his nature to yield everything for the sake of those who are in need. 
 
-Koji's second trip to the Philippines is where I met him and his daughter Mio. During our brief stint with these 2 Japanese tourists, I notice something special. 
-Of all of Koji's 6 children, Mio is the favorite. 
+Koji's second trip to the Philippines is where I met him and his daughter Mio. During our brief stint with these 2 Japanese tourists, I notice something special.   
+Of all of Koji's 6 children, Mio is the favorite.   
 Everything that Mio asked, she then receives. Mio's father is her buddy. They are very close to one another. 
 
 In Japan, Mio is the only one who is helping her father with all of the carpentry works. As proof, Mio built her own wooden garden-house all by herself.
