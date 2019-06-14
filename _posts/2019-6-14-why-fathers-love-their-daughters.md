@@ -53,8 +53,8 @@ Happy ending for Koji right... Not, there are more stories to tell. More sacrifi
 
 Just this year, Koji had to bring his daughter "Mio" back to the Philippines for another tour. This time, it is just him and his daughter. The rest of the family stayed put in Japan.
 
-We should be hearing complaints from Koji this time around but no, he went on his ways and did everything for his daughter.
-Koji is what I can say a "Sacrificial Lamb" for the family. 
+We should be hearing complaints from Koji this time around but no, he went on his ways and did everything for his daughter.   
+Koji is what I can say a **"Sacrificial Lamb"** for the family.   
 It is just in his nature to yield everything for the sake of those who are in need. 
 
 Koji's second trip to the Philippines is where I met him and his daughter Mio. During our brief stint with these 2 Japanese tourists, I notice something special. 
