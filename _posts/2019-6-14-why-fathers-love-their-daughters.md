@@ -3,15 +3,15 @@ published: true
 ---
 ![Father](/images/Father.jpg)
 
-In a few days from now, it's going to be Father's Day. 
+In a few days from now, it's going to be Father's Day.   
 All of us will be honoring our father and celebrating & thanking them for all the good things they have given us.
 
-But what is the definition of being a Father really? 
-Are they meant to be providers? Is having the tag name "Man of the House" gives them the sole authority to be the only disciplinarian in the family?
+But what is the definition of being a Father really?   
+Are they meant to be providers? Is having the tag name "Man of the House" gives them the sole authority to be the only disciplinarian in the family?   
 Can anybody be a father even if they don't bear any biological offspring?  
 
-The definition of a Father is not only traditional and one dimensional. Through the years, a Father figure has evolved in multiple ways.
-But the only thing that remains the same is a Father's love for his children. 
+The definition of a Father is not only traditional and one dimensional. Through the years, a Father figure has evolved in multiple ways.   
+But the only thing that remains the same is a Father's love for his children.   
 A Father who will Sacrifice everything (even up to his last breath) to give anything for their kids. 
 
 We have heard a lot of stories about why a Father become a Hero to their sons and daughters. Each one unique and special especially if it comes from you or your own family.
