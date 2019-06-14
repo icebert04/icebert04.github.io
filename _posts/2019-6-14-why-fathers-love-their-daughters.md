@@ -41,9 +41,9 @@ They choose Dumaguete because it is a small and quiet town. The place has some e
 During their 3 year stint in that province, Koji rented a house and bought a motorcycle with a sidecar attached on it (like a tricycle) as their means of transportation to school (kinda like a school bus).   
 For 3 years, Koji has to live eating up all his savings just to send all his kids to school. The hardworking Father from Japan has to do odd jobs in Dumaguete just to keep them afloat.
 
-Every summer, Koji brings his family to Siquijor for 1 month so that they can enjoy the beach and the sun. 
-"We have to stay in the Philippines for 3 years, so we must take advantage of it while we were at it" quoted Koji. 
-It's all about Sacrifice for Koji, that he will endure loneliness and weariness just to see all his children smiling and happy.
+Every summer, Koji brings his family to Siquijor for 1 month so that they can enjoy the beach and the sun.   
+"We have to stay in the Philippines for 3 years, so we must take advantage of it while we were at it" quoted Koji.   
+It's all about Sacrifice for Koji, that he will endure loneliness and weariness just to see all his children smiling and happy.   
 We never get to hear these kinds of stories, do we?
 
 At present, Koji and family are now back in Japan. 
