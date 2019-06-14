@@ -18,12 +18,12 @@ We have heard a lot of stories about why a Father become a Hero to their sons an
 
 Well, I got one of my own. And this person is not in my family circle or a relative of mine. I just met him a few months ago here in Manila.
 
-His name is Koji. He lives in Sanda, Hyogo, Japan. 
+His name is Koji. He lives in Sanda, Hyogo, Japan.   
 It's about an hour drive from Osaka. 
-He is happily married with 4 girls and 2 boys. 
-Koji's earns a living through Permaculture and Carpentry. He makes good money from both that he never ran out of clients. 
-He even showed me a picture of his own house that is 90% made of wood (Sorry, he has no FB account and no pictures to show). 
-Koji and his family never have to buy vegetables and fruits in the supermarket since they have an organic farm in their backyard.
+He is happily married with 4 girls and 2 boys.   
+Koji's earns a living through Permaculture and Carpentry. He makes good money from both that he never ran out of clients.   
+He even showed me a picture of his own house that is 90% made of wood (Sorry, he has no FB account and no pictures to show).   
+Koji and his family never have to buy vegetables and fruits in the supermarket since they have an organic farm in their backyard.   
 They are the ideal blessed family. They all lived a Happy life in Japan.
 
 But recently, Koji notices one thing is missing. 
