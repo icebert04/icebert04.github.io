@@ -26,9 +26,9 @@ He even showed me a picture of his own house that is 90% made of wood (Sorry, he
 Koji and his family never have to buy vegetables and fruits in the supermarket since they have an organic farm in their backyard.   
 They are the ideal blessed family. They all lived a Happy life in Japan.
 
-But recently, Koji notices one thing is missing. 
-Even with Japan's strong economic status, they still lack one thing... most of the Japanese don't know how to speak ENGLISH.
-They have good schools, Yes. But that's about it. 
+But recently, Koji notices one thing is missing.   
+Even with Japan's strong economic status, they still lack one thing... most of the Japanese don't know how to speak ENGLISH.   
+They have good schools, Yes. But that's about it.   
 These kids don't practice their English when they are out of their school premises.
 
 Koji realized that something must be done. Both Koji and his wife doesn't speak English too, so how on earth can their kids learn this new language that is direly needed in this day and age to be competitive and successful in both in their career and personal lives. 
