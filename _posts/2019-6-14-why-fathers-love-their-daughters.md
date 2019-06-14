@@ -70,15 +70,16 @@ I got to talk to both Koji and Mio. And believe me, they are really special. The
 They are not just Father and Daughter. They are like Best friends.   
 We don't see that often in a relationship, do we?
 
-Daughters need great Fathers. It would be nearly impossible to overstate the importance of the father-daughter relationship. It plays a vital role in every girl's journey to adulthood.
+Daughters need great Fathers.   
+It would be nearly impossible to overstate the importance of the father-daughter relationship. It plays a vital role in every girl's journey to adulthood.   
 A Father creates a Gold standard for future romantic relationships. As they get older, their daughters pick mates who have similar attributes to their father.
 
 All daughters will eventually grow up and marry the man of their dreams. But all of them won't forget their father, who has been instrumental in their foundational lives. 
 
-Mio will also mature and marry a handsome and kind Japanese guy. And they will live happily ever after.
-But somewhere along the way, Mio will pay a visit to her Dad.
-The father who has been the "Sacrificial Lamb". The father who risks everything for her. 
-For Mio, her Father is forever her "First and Most Influential Love"!
+Mio will also mature and marry a handsome and kind Japanese guy. And they will live happily ever after.   
+But somewhere along the way, Mio will pay a visit to her Dad.   
+The father who has been the "Sacrificial Lamb". The father who risks everything for her.   
+For Mio, her Father is forever her **"First and Most Influential Love"**!
 
  
 
