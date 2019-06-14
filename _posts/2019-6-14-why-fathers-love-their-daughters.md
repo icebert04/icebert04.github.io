@@ -34,8 +34,8 @@ These kids don't practice their English when they are out of their school premis
 Koji realized that something must be done. Both Koji and his wife doesn't speak English too, so how on earth can their kids learn this new language that is direly needed in this day and age to be competitive and successful in both in their career and personal lives. 
 
 So Koji sacrificed his marvelous career and beautiful home for the sake of his children. 
-In 2015, Koji and all members of his family migrated to the Philippines for one purpose only... to learn English.
-The plan is to enroll their kids for 3 consecutive years to learn not only the English language but also get to know  Philippine culture. 
+In 2015, Koji and all members of his family migrated to the Philippines for one purpose only... to learn English.   
+The plan is to enroll their kids for 3 consecutive years to learn not only the English language but also get to know Philippine culture. 
 
 They choose Dumaguete because it is a small and quiet town. The place has some excellent schools too, so it fits their needs entirely. 
 During their 3 year stint in that province, Koji rented a house and bought a motorcycle with a sidecar attached on it (like a tricycle) as their means of transportation to school (kinda like a school bus).
