@@ -46,9 +46,9 @@ Every summer, Koji brings his family to Siquijor for 1 month so that they can en
 It's all about Sacrifice for Koji, that he will endure loneliness and weariness just to see all his children smiling and happy.   
 We never get to hear these kinds of stories, do we?
 
-At present, Koji and family are now back in Japan. 
+At present, Koji and family are now back in Japan.   
 They have returned to their lovely home. The family is back planting organic produce again.
-Koji got most of his clients back and it recuperating his once depleted wallet. 
+Koji got most of his clients back and it recuperating his once depleted wallet.   
 Happy ending for Koji right... Not, there are more stories to tell. More sacrifices for Koji. 
 
 Just this year, Koji had to bring his daughter "Mio" back to the Philippines for another tour. This time, it is just him and his daughter. The rest of the family stayed put in Japan.
