@@ -61,8 +61,9 @@ Koji's second trip to the Philippines is where I met him and his daughter Mio. D
 Of all of Koji's 6 children, Mio is the favorite.   
 Everything that Mio asked, she then receives. Mio's father is her buddy. They are very close to one another. 
 
-In Japan, Mio is the only one who is helping her father with all of the carpentry works. As proof, Mio built her own wooden garden-house all by herself.
-Mio also assists her father when they make new garden beds for their vegetables.  
+In Japan, Mio is the only one who is helping her father with all of the carpentry works.   
+As proof, Mio built her own wooden garden-house all by herself.   
+Mio also assists her father when they make new garden beds for their vegetables.   
 They are always together. Their bond is so strong and inseparable. 
 
 I got to talk to both Koji and Mio. And believe me, they are really special. They are kind, sincere to the feelings of others, noticeably simple and yes... they know now how to speak English. 
