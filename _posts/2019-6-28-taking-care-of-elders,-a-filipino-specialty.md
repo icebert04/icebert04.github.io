@@ -14,9 +14,9 @@ Not because they want to, but for reason that they are too busy to take care of 
 They only see these senior citizens on holidays. Not a good sight to see especially when you know that you are soon going to be a golden-ager.
 
 If you are old and you want to live a happy life, then I suggest you go to the Philippines. 
-The Philippines has a huge emphasis on family. To the Filipinos, family always comes first. Everything else is 2nd priority. 
-In this country, the older family members are still viewed as a key part of the family... regardless of age. 
-In this nation, the younger people interact with older people regularly, so that wisdom and values can be passed down, and older people feel appreciated and cherished by their families and society at large, making them a vital part of their communities.
+The Philippines has a huge emphasis on family. To the Filipinos, family always comes first. Everything else is 2nd priority.   
+In this country, the older family members are still viewed as a key part of the family... regardless of age.   
+In this nation, the younger people interact with older people regularly, so that wisdom and values can be passed down, and older people feel appreciated and cherished by their families and society at large, making them a vital part of their communities.   
 This transfer of wisdom, ethics, and values is large in part due to the respect and reverence that the Filipino cultures hold for their elderly. 
 
 I am one of the Filipinos who received this wisdom and values from my Parents and Grandparents. 
