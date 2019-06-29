@@ -49,9 +49,10 @@ They are more valued and appreciated in this country even if they get stubborn a
 Just look around you. You will often see smiles and laughter of the elderly almost everywhere.   
 Regardless if they are rich or poor, sick or not, pretty or ugly... they are all **"Happy as a Bird"**! 
 
-My foreign friends notice this unparalleled culture of ours when they visited the Philippines. Although they are much aware that we are a poor country, they found some treasure that is way more valuable than Oil, Gold, and Diamonds.
-It is the Filipino unique trait and values of loving and taking care of people. 
-"Yung pagbibigay respeto sa nakakatanda ang isang pinaka-mahalagang katangian na nakatatak sa ating kaugalian". 
+My foreign friends notice this unparalleled culture of ours when they visited the Philippines.   
+Although they are much aware that we are a poor country, they found some treasure that is way more valuable than Oil, Gold, and Diamonds.   
+It is the Filipino unique trait and values of loving and taking care of people.   
+**"Yung pagbibigay respeto sa nakakatanda ang isang pinaka-mahalagang katangian na nakatatak sa ating kaugalian"**. 
 
 We Filipinos take care of our elders not only because they are our responsibility and obligation but more because we love our elderly so dearly.
 
