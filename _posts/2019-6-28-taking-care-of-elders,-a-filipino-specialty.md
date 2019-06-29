@@ -42,8 +42,8 @@ Still, my children are not bothered even a tiny bit. To my kids, they understand
 So these 2 boys in the picture (My boys) still do take care of their Great Grandmother even when she sometimes is frowning and complaining.   
 They will always believe that their Great Grandmother was once a kind and sweet lady and only her sickness and old age made her change in a manner of speaking.
 
-That is why they call it "It's more Fun in the Philippines". 
-It is not just the beautiful beaches and wonderful landscapes. The Senior Citizen is having fun too. 
+That is why they call it **"It's more Fun in the Philippines"**.   
+It is not just the beautiful beaches and wonderful landscapes. The Senior Citizen is having fun too.   
 They are more valued and appreciated in this country even if they get stubborn and ugly.
 
 Just look around you. You will often see smiles and laughter of the elderly almost everywhere. 
