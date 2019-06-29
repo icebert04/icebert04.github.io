@@ -56,8 +56,8 @@ It is the Filipino unique trait and values of loving and taking care of people.
 
 We Filipinos take care of our elders not only because they are our responsibility and obligation but more because we love our elderly so dearly.
 
-I'm happy to be a Filipino! I'm blessed to be born in this beautiful country. 
-Indeed, taking care of elders is a Filipino Specialty. 
+I'm happy to be a Filipino! I'm blessed to be born in this beautiful country.   
+Indeed, taking care of elders is a Filipino Specialty.   
 It is an exclusive privilege that our Senior Citizen are benefiting, and us the younger ones are truly proud that we have this rare and unprecedented values that we will pass on from generation to generation. 
 
 
