@@ -3,10 +3,10 @@ published: true
 ---
 ![Senior Citizens](/images/Elders.jpg)
 
-Why The Philippines is the Best place to Grow Old
+**"Why The Philippines is the Best place to Grow Old"**
 
-Growing old is not nice. In fact, it is ugly. 
-Your face will start to have wrinkles. Your eyesight will be blurred. And you will be weak as ever.
+Growing old is not nice. In fact, it is ugly.   
+Your face will start to have wrinkles. Your eyesight will be blurred. And you will be weak as ever.   
 Oftentimes, aging is looked down upon as something to be dreaded.
 
 That is why in some progressive countries, the working class must send their old parents into hospitals and nursing homes. Not because they want to, but for reason that they are too busy to take care of their old folks. 
