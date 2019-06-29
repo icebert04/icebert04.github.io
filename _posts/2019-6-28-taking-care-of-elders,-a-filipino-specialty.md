@@ -19,9 +19,9 @@ In this country, the older family members are still viewed as a key part of the 
 In this nation, the younger people interact with older people regularly, so that wisdom and values can be passed down, and older people feel appreciated and cherished by their families and society at large, making them a vital part of their communities.   
 This transfer of wisdom, ethics, and values is large in part due to the respect and reverence that the Filipino cultures hold for their elderly. 
 
-I am one of the Filipinos who received this wisdom and values from my Parents and Grandparents. 
-I was very close to my Lolo & Lola not only because they took care of me and spoiled me rotten, but they taught me the right conduct and proper manners.
-And by the time they got old and weak, it was my turn to take care of them and see to it that they get the love and attention that they truly deserved. 
+I am one of the Filipinos who received this wisdom and values from my Parents and Grandparents.   
+I was very close to my Lolo & Lola not only because they took care of me and spoiled me rotten, but they taught me the right conduct and proper manners.   
+And by the time they got old and weak, it was my turn to take care of them and see to it that they get the love and attention that they truly deserved.   
 My Grandparents (both Father and Mother side) are long gone. But the memories and wisdom that they taught me still carry on. 
 
 This wisdom that I've learned is now being passed on to my children as we speak.  
