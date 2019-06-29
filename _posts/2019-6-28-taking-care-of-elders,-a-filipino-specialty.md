@@ -25,9 +25,9 @@ And by the time they got old and weak, it was my turn to take care of them and s
 My Grandparents (both Father and Mother side) are long gone. But the memories and wisdom that they taught me still carry on. 
 
 This wisdom that I've learned is now being passed on to my children as we speak.  
-Now, it's my kid's turn. They make it a point to visit their Grandparents as often as possible. 
-My kids visit their Grandparents in the province every month. They bond with them, help them with their chores, and video call them when they are back home in Manila.
-They also check on my Dad (their only living Grandparent on my side) here in Manila when they have the chance. 
+Now, it's my kid's turn. They make it a point to visit their Grandparents as often as possible.   
+My kids visit their Grandparents in the province every month. They bond with them, help them with their chores, and video call them when they are back home in Manila.   
+They also check on my Dad (their only living Grandparent on my side) here in Manila when they have the chance.   
 My eldest Luigi sends pictures and stories on Messenger and always communicate with his Lolo.
 
 Yes, my kids are lucky and blessed to have their Grandparents who are still in their 60's and still healthy.
