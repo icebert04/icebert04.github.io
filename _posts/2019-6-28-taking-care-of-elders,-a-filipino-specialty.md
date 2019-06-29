@@ -30,16 +30,16 @@ My kids visit their Grandparents in the province every month. They bond with the
 They also check on my Dad (their only living Grandparent on my side) here in Manila when they have the chance.   
 My eldest Luigi sends pictures and stories on Messenger and always communicate with his Lolo.
 
-Yes, my kids are lucky and blessed to have their Grandparents who are still in their 60's and still healthy.
-But sadly to say, it is not always rainbows and butterflies.
-My sons have an unmanageable and unyielding Great Grandmother who is approaching the age of 90.
-Their Lola-sa-Tuhod is what they call "Makulit & Relentless".
+Yes, my kids are lucky and blessed to have their Grandparents who are still in their 60's and still healthy.   
+But sadly to say, it is not always rainbows and butterflies.   
+My sons have an unmanageable and unyielding Great Grandmother who is approaching the age of 90.   
+Their Lola-sa-Tuhod is what they call **"Makulit & Relentless"**.
 Their Lola always shouts and cries for no reason.  
 She is uncooperative and unreasonable most of the time. 
-She calls everybody and seek the attention of everyone looking for affection.
-It's not a pretty sight. Their Lola has to wear diapers and is on a wheelchair. As I said, it's ugly.
-Still, my children are not bothered even a tiny bit. To my kids, they understand that growing old is not to be dreaded. They know that aging is simply a transition into a different stage of life.
-So these 2 boys in the picture (My boys) still do take care of their Great Grandmother even when she sometimes is frowning and complaining. 
+She calls everybody and seek the attention of everyone looking for affection.   
+It's not a pretty sight. Their Lola has to wear diapers and is on a wheelchair. As I said, it's ugly.   
+Still, my children are not bothered even a tiny bit. To my kids, they understand that growing old is not to be dreaded. They know that aging is simply a transition into a different stage of life.   
+So these 2 boys in the picture (My boys) still do take care of their Great Grandmother even when she sometimes is frowning and complaining.   
 They will always believe that their Great Grandmother was once a kind and sweet lady and only her sickness and old age made her change in a manner of speaking.
 
 That is why they call it "It's more Fun in the Philippines". 
