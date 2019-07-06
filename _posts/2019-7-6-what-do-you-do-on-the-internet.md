@@ -3,13 +3,13 @@ published: true
 ---
 ![Internet](/images/Internet 3.png)
 
-"There are other things to do aside from Facebook and YouTube"
+**"There are other things to do aside from Facebook and YouTube"**
 
-Today, I won't write an article about anybody you don't know. 
+Today, I won't write an article about anybody you don't know.   
 Today, it's just gonna be you.
 
-How are you?
-How's it going?
+How are you?   
+How's it going?   
 What have you've been doing lately?
 
 I'm sure, wherever you are, you are either now on Facebook or on YouTube. Perhaps more than you can ever imagine.
