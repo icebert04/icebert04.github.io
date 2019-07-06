@@ -32,9 +32,9 @@ Paypal is one medium that I used to get my earnings from my work.
 => I exploit LinkedIn as my tool to engage and network with possible clients, fellow web developers, entrepreneurs, and other interesting individuals.   
 I also manage Discord, Slack, and Github as my portal to connect with my mentors, advisors, and partners.
 
-3.) GOOGLE
-=> The ever reliable Google. I won't be a Web Developer without Google. 
-That is where I started, by searching and looking. In these days and age, being "Self-Taught" is sufficient enough to get you the job that you want.
+3.) **GOOGLE**
+=> The ever reliable Google. I won't be a Web Developer without Google.   
+That is where I started, by searching and looking. In these days and age, being **"Self-Taught"** is sufficient enough to get you the job that you want.
 
 4.) TWITTER
 => I capitalize on Twitter as my news feed. Like reading the gospel daily @The_Gospels, or checking on business @bwworldph, or even what's going on with the weather @dost_pagasa
