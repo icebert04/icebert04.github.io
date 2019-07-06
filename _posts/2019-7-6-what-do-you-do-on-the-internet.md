@@ -36,16 +36,16 @@ I also manage Discord, Slack, and Github as my portal to connect with my mentors
 => The ever reliable Google. I won't be a Web Developer without Google.   
 That is where I started, by searching and looking. In these days and age, being **"Self-Taught"** is sufficient enough to get you the job that you want.
 
-4.) TWITTER
+4.) **TWITTER**
 => I capitalize on Twitter as my news feed. Like reading the gospel daily @The_Gospels, or checking on business @bwworldph, or even what's going on with the weather @dost_pagasa
 
-5.) NETFLIX
+5.) **NETFLIX**
 => For relaxation, I often make the most out of Netflix before I go to bed. Either that or reading a book online. 
 Anything that will relax my nerves and take my mind out of work for a while.
 
-6.) AIRBNB
-=> Yes, people manipulate this tool as a way of earning passively. 
-But my main reason for using Airbnb is to meet and accept a lot of guests from different parts of the world. 
+6.) **AIRBNB**
+=> Yes, people manipulate this tool as a way of earning passively.   
+But my main reason for using Airbnb is to meet and accept a lot of guests from different parts of the world.   
 Some of them became very close friends of ours. I also get inspiring stories from these people and write it on Friendillion for you to read.
 
 Other things that you might want to consider and find useful are...
