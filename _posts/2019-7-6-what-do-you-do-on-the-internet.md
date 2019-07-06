@@ -28,8 +28,8 @@ Do you know that I also used...
 For those who didn't know, I am a Full Stack Developer and I build & maintain Web Apps for my clients.   
 Paypal is one medium that I used to get my earnings from my work.
 
-2.) LINKEDIN
-=> I exploit LinkedIn as my tool to engage and network with possible clients, fellow web developers, entrepreneurs, and other interesting individuals.
+2.) **LINKEDIN**
+=> I exploit LinkedIn as my tool to engage and network with possible clients, fellow web developers, entrepreneurs, and other interesting individuals.   
 I also manage Discord, Slack, and Github as my portal to connect with my mentors, advisors, and partners.
 
 3.) GOOGLE
