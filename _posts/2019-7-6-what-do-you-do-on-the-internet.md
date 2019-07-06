@@ -65,12 +65,13 @@ I also utilize this tool as a way of learning new things like playing the Ukulel
 
 My Conclusion...
 
-Facebook and YouTube are, without any doubt, a part of our daily lives. We just can't simply live without it. 
-But please don't get too addicted to it. 
+Facebook and YouTube are, without any doubt, a part of our daily lives.   
+We just can't simply live without it. 
+But please don't get too addicted to it.   
 There are other tools that you can use not only to be entertained, but more importantly... to learn a new skill, or put up your own online business, or to fundraise your charitable cause in order to help.
 
-The Internet is there for the taking. 
-We can be greater individuals if we used this wisely. 
+The Internet is there for the taking.   
+We can be greater individuals if we used this wisely.   
 Using these tools for your own benefit can make you richer, happier and much more content in life. 
 
  
