@@ -23,27 +23,27 @@ Let me explain further...
 
 Do you know that I also used...
 
-1.) **PAYPAL**
+1.) **PAYPAL**   
 => Yes, that's correct. I set in motion this platform regularly to collect my payment from my overseas clients.   
 For those who didn't know, I am a Full Stack Developer and I build & maintain Web Apps for my clients.   
 Paypal is one medium that I used to get my earnings from my work.
 
-2.) **LINKEDIN**
+2.) **LINKEDIN**   
 => I exploit LinkedIn as my tool to engage and network with possible clients, fellow web developers, entrepreneurs, and other interesting individuals.   
 I also manage Discord, Slack, and Github as my portal to connect with my mentors, advisors, and partners.
 
-3.) **GOOGLE**
+3.) **GOOGLE**   
 => The ever reliable Google. I won't be a Web Developer without Google.   
 That is where I started, by searching and looking. In these days and age, being **"Self-Taught"** is sufficient enough to get you the job that you want.
 
-4.) **TWITTER**
+4.) **TWITTER**   
 => I capitalize on Twitter as my news feed. Like reading the gospel daily @The_Gospels, or checking on business @bwworldph, or even what's going on with the weather @dost_pagasa
 
-5.) **NETFLIX**
+5.) **NETFLIX**   
 => For relaxation, I often make the most out of Netflix before I go to bed. Either that or reading a book online. 
 Anything that will relax my nerves and take my mind out of work for a while.
 
-6.) **AIRBNB**
+6.) **AIRBNB**   
 => Yes, people manipulate this tool as a way of earning passively.   
 But my main reason for using Airbnb is to meet and accept a lot of guests from different parts of the world.   
 Some of them became very close friends of ours. I also get inspiring stories from these people and write it on Friendillion for you to read.
@@ -54,12 +54,13 @@ Medium, Dropbox, Reddit, Lalamove, Pinterest, Instagram (duh?), GCash or PayMaya
 
 Just remember that I used...
 
-FACEBOOK
-=> To check on my friends and family. It also gets me updated on things that are happening around my circle.
+**FACEBOOK**   
+=> To check on my friends and family.   
+It also gets me updated on things that are happening around my circle.   
 I also manage my Friendillion FB page to connect with you guys.
 
-YOUTUBE
-=> I love YouTube. It gets me entertained all the time through music, sports, games, etc. 
+**YOUTUBE**   
+=> I love YouTube. It gets me entertained all the time through music, sports, games, etc.   
 I also utilize this tool as a way of learning new things like playing the Ukulele or Organic Farming. 
 
 My Conclusion...
