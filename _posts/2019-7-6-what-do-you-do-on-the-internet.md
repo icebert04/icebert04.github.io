@@ -12,19 +12,20 @@ How are you?
 How's it going?   
 What have you've been doing lately?
 
-I'm sure, wherever you are, you are either now on Facebook or on YouTube. Perhaps more than you can ever imagine.
+I'm sure, wherever you are, you are either now on Facebook or on YouTube.   
+Perhaps more than you can ever imagine.   
 I don't blame you. I too consume Facebook and YouTube every single day.
 
-But that is not the only thing I do. I used the Internet wisely.
+But that is not the only thing I do. I used the Internet wisely.   
 For my benefit and hopefully for the benefit of others.
 
 Let me explain further...
 
 Do you know that I also used...
 
-1. ) PAYPAL 
-=> Yes, that's correct. I set in motion this platform regularly to collect my payment from my overseas clients.
-For those who didn't know, I am a Full Stack Developer and I build & maintain Web Apps for my clients.
+1.) **PAYPAL**
+=> Yes, that's correct. I set in motion this platform regularly to collect my payment from my overseas clients.   
+For those who didn't know, I am a Full Stack Developer and I build & maintain Web Apps for my clients.   
 Paypal is one medium that I used to get my earnings from my work.
 
 2.) LINKEDIN
