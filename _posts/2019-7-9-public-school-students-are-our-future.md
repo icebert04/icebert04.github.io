@@ -67,13 +67,14 @@ Filipinos are known for their unique skills and talents.
 They just lack the confidence and exposure in order for their voice to be heard.   
 Let's help them to be heard... we never know that the poor kid from Romblon could be the next boxing sensation like Manny Pacquiao. Or the young girl from Negros could be the next Catriona Gray.
 
-Jillian is just one of the public school students that I am guiding and harnessing until the time she harnesses her talents. 
-I strongly suggest that you do that too. Just visit a public school near you. Look for a specific kid that you want help. 
-Just be there and guide that student. 
+Jillian is just one of the public school students that I am guiding and harnessing until the time she harnesses her talents.   
+I strongly suggest that you do that too. Just visit a public school near you.   
+Look for a specific kid that you want help. 
+Just be there and guide that student.   
 See them slowly glow in radiance as you gradually furnish their exceptional skills.
 
-Dr. Jose Rizal once said that "The Youth is the Hope of our Future"! 
-That Future is Now. It has arrived! 
+Dr. Jose Rizal once said that **"The Youth is the Hope of our Future"**!   
+That Future is Now. It has arrived!   
 It started when the time you chose to teach the 1 of the 23 million Filipino hopefuls.
 
 
