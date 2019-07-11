@@ -30,9 +30,9 @@ It's sad but it is all true. Our country is facing more problems rather than sol
 Poor Education and Overpopulation is one of the biggest problems that we are facing even until now.
 
 Our public schools are generally underfunded. 
-They are notoriously overcrowded, especially in poor urban areas.
-They lack basic supplies (such as chairs, tables, and textbooks).
-I don't have a solid data to back this up but I believe there are about 5,000 primary and secondary schools with no access to electricity.
+They are notoriously overcrowded, especially in poor urban areas.   
+They lack basic supplies (such as chairs, tables, and textbooks).   
+I don't have a solid data to back this up but I believe there are about 5,000 primary and secondary schools with no access to electricity.   
 Just imagine how hard is that for students to learn.  
 
 There is also a severe shortage of public school teachers, and these underpaid educators are overworked and forced to manage 100 or more students cramped in one classroom. 
