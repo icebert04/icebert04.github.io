@@ -3,9 +3,9 @@ published: true
 ---
 ![Public School](/images/Public School.jpg)
 
-Whenever I go home to my province in Batangas, I make it a point to do different activities that I can't normally do here in Manila.
-Activities like mountain biking to the open tundra field. 
-Catching up with the local farmers and eating some of their fresh produce. 
+Whenever I go home to my province in Batangas, I make it a point to do different activities that I can't normally do here in Manila.   
+Activities like mountain biking to the open tundra field.   
+Catching up with the local farmers and eating some of their fresh produce.   
 And taking a glimpse of the sunset at the beach before calling it a day.
 
 Another thing that I take pleasure doing is going to a Public School. Whenever I get the chance, I bring my niece (daughter of my sister-in-law) Jillian to school.  
