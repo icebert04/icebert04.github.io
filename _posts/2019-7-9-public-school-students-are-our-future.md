@@ -50,8 +50,8 @@ Some of them just need to get some skill in one department (like welding, cookin
 Just make them a contributor to our economy and that will suffice.   
 They don't have to be the next great inventors of the world. All they need is just to be productive. This will help themselves, their family, and our country.  
 
-The good news is that the Philippine educational system is gradually improving. 
-The growing young population (50 percent of our population are below 23 years of age) are increasingly better educated.
+The good news is that the Philippine educational system is gradually improving.   
+The growing young population (50 percent of our population are below 23 years of age) are increasingly better educated.   
 There is still hope for our motherland. We can still make progress.
 
 But we have to put in mind that the clock is ticking and we have to change the footprint we have in our country.
