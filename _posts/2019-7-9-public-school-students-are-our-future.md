@@ -54,10 +54,10 @@ The good news is that the Philippine educational system is gradually improving.
 The growing young population (50 percent of our population are below 23 years of age) are increasingly better educated.   
 There is still hope for our motherland. We can still make progress.
 
-But we have to put in mind that the clock is ticking and we have to change the footprint we have in our country.
-Jillian, my niece, is just one of the eager public school student that could drastically improve our economy. 
-Our public school teachers can not do it entirely on their own. They need our help.
-Parents should be awakened that education stops after their kids get out of their campus. But schooling must not stop from there. 
+But we have to put in mind that the clock is ticking and we have to change the footprint we have in our country.   
+Jillian, my niece, is just one of the eager public school student that could drastically improve our economy.   
+Our public school teachers can not do it entirely on their own. They need our help.   
+Parents should be awakened that education stops after their kids get out of their campus. But schooling must not stop from there.   
 Parents can teach their children about their family business. Another option is encouraging their kids to join free club and organizations of their interests that can spark their future goals in life.
 
 If each one of us contributes to at least helping and guiding 1 public student every year.  Then most of these 23 million public school students have a better chance in not only making their personal career future bright but also for them creating small businesses that will bring jobs and revenue to our economy that is craving for more than overseas remittance and BPO industry earnings.
