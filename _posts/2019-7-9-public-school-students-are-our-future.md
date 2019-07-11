@@ -60,7 +60,7 @@ Our public school teachers can not do it entirely on their own. They need our he
 Parents should be awakened that education stops after their kids get out of their campus. But schooling must not stop from there.   
 Parents can teach their children about their family business. Another option is encouraging their kids to join free club and organizations of their interests that can spark their future goals in life.
 
-If each one of us contributes to at least helping and guiding 1 public student every year.  Then most of these 23 million public school students have a better chance in not only making their personal career future bright but also for them creating small businesses that will bring jobs and revenue to our economy that is craving for more than overseas remittance and BPO industry earnings.
+If each one of us contributes to at least helping and guiding 1 public student every year.  Then most of these 23 million public school students have a better chance in not only making their personal career future bright, but also for them creating small businesses that will bring jobs and revenue to our economy that is craving for more than overseas remittance and BPO industry earnings.
 
 If we do this, we will be the next Singapore, South Korea, and Japan.   
 Filipinos are known for their unique skills and talents.   
