@@ -62,9 +62,9 @@ Parents can teach their children about their family business. Another option is 
 
 If each one of us contributes to at least helping and guiding 1 public student every year.  Then most of these 23 million public school students have a better chance in not only making their personal career future bright but also for them creating small businesses that will bring jobs and revenue to our economy that is craving for more than overseas remittance and BPO industry earnings.
 
-If we do this, we will be the next Singapore, South Korea, and Japan.
-Filipinos are known for their unique skills and talents. 
-They just lack the confidence and exposure in order for their voice to be heard.
+If we do this, we will be the next Singapore, South Korea, and Japan.   
+Filipinos are known for their unique skills and talents.   
+They just lack the confidence and exposure in order for their voice to be heard.   
 Let's help them to be heard... we never know that the poor kid from Romblon could be the next boxing sensation like Manny Pacquiao. Or the young girl from Negros could be the next Catriona Gray.
 
 Jillian is just one of the public school students that I am guiding and harnessing until the time she harnesses her talents. 
