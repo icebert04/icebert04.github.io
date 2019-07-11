@@ -8,10 +8,11 @@ Activities like mountain biking to the open tundra field.
 Catching up with the local farmers and eating some of their fresh produce.   
 And taking a glimpse of the sunset at the beach before calling it a day.
 
-Another thing that I take pleasure doing is going to a Public School. Whenever I get the chance, I bring my niece (daughter of my sister-in-law) Jillian to school.  
-Whenever I'm inside their campus, I don't leave the premises like most of the parents and guardians whose main purpose is to escort their kids to school. 
+Another thing that I take pleasure doing is going to a Public School.   
+Whenever I get the chance, I bring my niece (daughter of my sister-in-law) Jillian to school. 
+Whenever I'm inside their campus, I don't leave the premises like most of the parents and guardians whose main purpose is to escort their kids to school.   
 I stay behind and eager to observe all the activities that are going on in that school. 
-The one thing that I got an eyeful of is that most of the students have one thing in common... all of them have this positive "Energy".
+The one thing that I got an eyeful of is that most of the students have one thing in common... all of them have this positive **"Energy"**.   
 They are full of life, active and oozing with optimism. 
 
 My niece Jillian (picture on extreme left) is 7 years of age. All of her batchmates are all energetic and have a ceaseless power that never runs out of battery. 
