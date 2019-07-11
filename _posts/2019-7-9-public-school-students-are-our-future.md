@@ -42,12 +42,12 @@ We never get out of the hump. We are stuck in mediocrity. We never get to advanc
 
 Only the blessed 4 million students who are enrolled in private schools and a few students in public schools who are extremely talented and skilled get to help our economy by being the next great businessmen of their generation.
 
-The Philippines should take advantage of its young population to effect change and ultimately end poverty
-That’s a lot of young people that can make the difference.
-Just look at the numbers... 23 million public school students. That's a huge number!
+The Philippines should take advantage of its young population to effect change and ultimately end poverty.   
+That a lot of young people can make the difference.   
+Just look at the numbers... 23 million public school students. That's a huge number!   
 They don't have to take a master's degree. Heck, they even don't have to go to college.
-Some of them just need to get some skill in one department (like welding, cooking, farming, or any kind of business trade).
-Just make them a contributor to our economy and that will suffice.
+Some of them just need to get some skill in one department (like welding, cooking, farming, or any kind of business trade).   
+Just make them a contributor to our economy and that will suffice.   
 They don't have to be the next great inventors of the world. All they need is just to be productive. This will help themselves, their family, and our country.  
 
 The good news is that the Philippine educational system is gradually improving. 
