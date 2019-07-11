@@ -15,11 +15,11 @@ I stay behind and eager to observe all the activities that are going on in that 
 The one thing that I got an eyeful of is that most of the students have one thing in common... all of them have this positive **"Energy"**.   
 They are full of life, active and oozing with optimism. 
 
-My niece Jillian (picture on extreme left) is 7 years of age. All of her batchmates are all energetic and have a ceaseless power that never runs out of battery. 
+My niece Jillian (picture on extreme left) is 7 years of age. All of her batchmates are all energetic and have a ceaseless power that never runs out of battery.   
 They are so focused and ambitious. I never sense any negativity on them.
 
-That is just one public school in a small town in Batangas. There are more of these kids on different parts of the country. 
-As a matter of fact, there are about 23 million students that are enrolled in public schools today. 
+That is just one public school in a small town in Batangas. There are more of these kids on different parts of the country.   
+As a matter of fact, there are about 23 million students that are enrolled in public schools today.   
 That doesn't even include the out-of-school youth which is overflowing in every province of the Philippines. 
 
 Imagine what these 23 million students could bring fortune to our economy. 
