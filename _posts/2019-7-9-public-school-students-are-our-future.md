@@ -37,7 +37,8 @@ Just imagine how hard is that for students to learn.
 
 There is also a severe shortage of public school teachers, and these underpaid educators are overworked and forced to manage 100 or more students cramped in one classroom. 
 
-This is one major reason why our country still remains a 3rd world country. We never get out of the hump. We are stuck in mediocrity. We never get to advanced.
+This is one major reason why our country still remains a 3rd world country.   
+We never get out of the hump. We are stuck in mediocrity. We never get to advanced.
 
 Only the blessed 4 million students who are enrolled in private schools and a few students in public schools who are extremely talented and skilled get to help our economy by being the next great businessmen of their generation.
 
