@@ -22,8 +22,8 @@ That is just one public school in a small town in Batangas. There are more of th
 As a matter of fact, there are about 23 million students that are enrolled in public schools today.   
 That doesn't even include the out-of-school youth which is overflowing in every province of the Philippines. 
 
-Imagine what these 23 million students could bring fortune to our economy. 
-Unfortunately, that theory still remains a dream. 
+Imagine what these 23 million students could bring fortune to our economy.   
+Unfortunately, that theory still remains a dream.   
 Sadly, most of these kids will grow up unemployed and dependent either to their parents and/or our government.
 
 It's sad but it is all true. Our country is facing more problems rather than solutions. 
