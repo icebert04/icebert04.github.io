@@ -56,8 +56,8 @@ I just adjust wherever I am located and utilize the things that are out there.
 I am not what they call the **"Macho Man"** but I am not fat and obese. I sometimes eat those **"Unhealthy Foods"** when there is a feast or party or when I feel like having it.   
 I don't only sleep 8 hours every night, but I also take those important **"Cat Naps"** during day time to get all the energy that I need.
 
-I suggest you start small. If you adore pork chops and steaks so much then try to add some broccoli in it. 
-On those days that your car is not allowed to go out in the city, try not to take Grab or Taxi but let your feet bring you to your destination just by walking.  
+I suggest you start small. If you adore pork chops and steaks so much then try to add some broccoli in it.   
+On those days that your car is not allowed to go out in the city, try not to take Grab or Taxi but let your feet bring you to your destination just by walking.   
 If you are riding a public bus on your way home, take that much-needed sleep for 40 for 50 minutes and set your alarm or ask the person beside to wake you up when you are at your designated bus stop. 
 
 There are many ways of living a healthy lifestyle. We just need to improvise and find ways of making it happen.
