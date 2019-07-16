@@ -47,13 +47,14 @@ It is not hard. All you have to do is lower your expectation and lower your goal
 Put into mind that it is a process!   
 Remembering the proverbial saying that **"Rome wasn't built in a day"**! 
 
-Just do the exercises that you like doing. If you like what you are doing, chances are you are having fun, and when you are having fun that will lead to repetitious routine habit. And the next thing you will know, you are now living a healthy lifestyle.
+Just do the exercises that you like doing. If you like what you are doing, chances are you are having fun, and when you are having fun that will lead to repetitious routine habit.   
+And the next thing you will know, you are now living a healthy lifestyle.
 
-I swim at least 4 times a week. Jog the days in between of my swimming schedule. And take the stairs rather than the elevator whenever I am in a business meeting in Makati.
+I swim at least 4 times a week. Jog the days in between of my swimming schedule. And take the stairs rather than the elevator whenever I am in a business meeting in Makati.   
 I also have a set of exercises whenever I am out of town.
-I just adjust wherever I am located and utilize the things that are out there.
-I am not what they call the "Macho Man" but I am not fat and obese. I sometimes eat those "Unhealthy Foods" when there is a feast or party or when I feel like having it. 
-I don't only sleep 8 hours every night, but I also take those important "Cat Naps" during day time to get all the energy that I need.
+I just adjust wherever I am located and utilize the things that are out there.   
+I am not what they call the **"Macho Man"** but I am not fat and obese. I sometimes eat those **"Unhealthy Foods"** when there is a feast or party or when I feel like having it.   
+I don't only sleep 8 hours every night, but I also take those important **"Cat Naps"** during day time to get all the energy that I need.
 
 I suggest you start small. If you adore pork chops and steaks so much then try to add some broccoli in it. 
 On those days that your car is not allowed to go out in the city, try not to take Grab or Taxi but let your feet bring you to your destination just by walking.  
