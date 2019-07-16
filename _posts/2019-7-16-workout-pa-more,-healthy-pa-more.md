@@ -47,7 +47,8 @@ It is not hard. All you have to do is lower your expectation and lower your goal
 Put into mind that it is a process!   
 Remembering the proverbial saying that **"Rome wasn't built in a day"**! 
 
-Just do the exercises that you like doing. If you like what you are doing, chances are you are having fun, and when you are having fun that will lead to repetitious routine habit.   
+Just do the exercises that you like doing.   
+If you like what you are doing, chances are you are having fun, and when you are having fun that will lead to repetitious routine habit.   
 And the next thing you will know, you are now living a healthy lifestyle.
 
 I swim at least 4 times a week. Jog the days in between of my swimming schedule. And take the stairs rather than the elevator whenever I am in a business meeting in Makati.   
