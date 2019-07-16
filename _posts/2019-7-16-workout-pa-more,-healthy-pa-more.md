@@ -30,8 +30,8 @@ These two humungous people with me in the picture are one of them.
 They are heavy weight lifters from Canada.   
 They teach bodybuilding for a living. But they give a lot of free advice for those who want their expertise.
 
-They told me that I don't have to be like them. I don't need to gain big biceps and a large chest. I don't even need to work out in the gym.
-Their only advice is to take care of my health. Exercise whenever you can, Eat more greens, and get Enough Sleep as possible. 
+They told me that I don't have to be like them. I don't need to gain big biceps and a large chest. I don't even need to work out in the gym.   
+Their only advice is to take care of my health. Exercise whenever you can, Eat more greens, and get Enough Sleep as possible.   
 That's it! Simple as that. That is not to hard to do isn't it?
 
 The problem is us. We always come up of reasons to tell just to escape from this simple advice. What is worse is we do exactly the opposite.
