@@ -40,7 +40,8 @@ We never exercise at all, we eat all the **"Unhealthy Food"** in the world, and 
 
 That is why we see a lot of obesity, sickness, and even unexpected death because of exactly these reasons. 
 
-You don't need to be scared. Living a healthy lifestyle is easy. It is only in your mind that is telling you that it is so damned hard.
+You don't need to be scared. Living a healthy lifestyle is easy.   
+It is only in your mind that is telling you that it is so damned hard.
 
 It is not hard. All you have to do is lower your expectation and lower your goals. Put into mind that it is a process!
 Remembering the proverbial saying that "Rome wasn't built in a day"! 
