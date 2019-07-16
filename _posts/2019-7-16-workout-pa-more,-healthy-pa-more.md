@@ -13,8 +13,9 @@ Guys, let me tell you this... It's not them that you should be scared about. It'
 The drug addicts who lost a lot of weight and look like zombies. Sa kanila ka dapat mag-worry.   
 They may be not as heavy and intimidating like the heavy weight lifters but they definitely can kill you.
 
-These heavy weight lifters are one of the nicest people on earth. For one, they know how to love themselves. They know how to take care of their body. They are so curious about their health. And they give value to their life.
-Their energy and positivism can rub off also from those people who are near to them.
+These heavy weight lifters are one of the nicest people on earth.   
+For one, they know how to love themselves. They know how to take care of their body. They are so curious about their health. And they give value to their life.   
+Their energy and positivism can rub off also from those people who are near to them.   
 That person can be anybody. That person can even be you.
 
 Try going to the gym. And look for a gym rat who pulls weights like hell. Go to him or her. Introduce yourself and ask them if they can assist you in weight lifting.
