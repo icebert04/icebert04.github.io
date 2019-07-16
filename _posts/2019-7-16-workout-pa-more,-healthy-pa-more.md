@@ -43,8 +43,9 @@ That is why we see a lot of obesity, sickness, and even unexpected death because
 You don't need to be scared. Living a healthy lifestyle is easy.   
 It is only in your mind that is telling you that it is so damned hard.
 
-It is not hard. All you have to do is lower your expectation and lower your goals. Put into mind that it is a process!
-Remembering the proverbial saying that "Rome wasn't built in a day"! 
+It is not hard. All you have to do is lower your expectation and lower your goals.   
+Put into mind that it is a process!   
+Remembering the proverbial saying that **"Rome wasn't built in a day"**! 
 
 Just do the exercises that you like doing. If you like what you are doing, chances are you are having fun, and when you are having fun that will lead to repetitious routine habit. And the next thing you will know, you are now living a healthy lifestyle.
 
