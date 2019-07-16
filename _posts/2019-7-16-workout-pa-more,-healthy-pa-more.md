@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Workout](/images/Buff.jpg)
