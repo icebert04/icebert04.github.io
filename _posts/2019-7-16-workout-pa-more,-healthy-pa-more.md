@@ -34,8 +34,9 @@ They told me that I don't have to be like them. I don't need to gain big biceps 
 Their only advice is to take care of my health. Exercise whenever you can, Eat more greens, and get Enough Sleep as possible.   
 That's it! Simple as that. That is not to hard to do isn't it?
 
-The problem is us. We always come up of reasons to tell just to escape from this simple advice. What is worse is we do exactly the opposite.
-We never exercise at all, we eat all the "Unhealthy Food" in the world, and we hardly sleep.
+The problem is us. We always come up of reasons to tell just to escape from this simple advice.   
+What is worse is we do exactly the opposite.
+We never exercise at all, we eat all the **"Unhealthy Food"** in the world, and we hardly sleep.
 
 That is why we see a lot of obesity, sickness, and even unexpected death because of exactly these reasons. 
 
