@@ -22,7 +22,7 @@ Try going to the gym. And look for a gym rat who pulls weights like hell.
 Go to him or her. Introduce yourself and ask them if they can assist you in weight lifting.   
 Most of these people will say YES to you 90% of the time.
 
-Whenever you are blessed with anything, it is impulsive that you give something back in return. 
+Whenever you are blessed with anything, it is impulsive that you give something back in return.   
 These weight lifters have been blessed with a gorgeous body and a good bill of health. 
 Surely, they won't mind sharing their technique and knowledge to people like you and me.
 
