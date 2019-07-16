@@ -8,9 +8,9 @@ Do you see those bulky and beefy biceps?  How about those veins that come up out
 These people must be absolutely strong...   
 Here's one question... Kakasa ka ba?
 
-I see a lot of people get afraid of people who go to the gym to workout assuming the fact that they might get hurt whenever they are near them.
-Guys, let me tell you this... It's not them that you should be scared about. It's the thin guys that you should worry. 
-The drug addicts who lost a lot of weight and look like zombies. Sa kanila ka dapat mag-worry.
+I see a lot of people get afraid of people who go to the gym to workout assuming the fact that they might get hurt whenever they are near them.   
+Guys, let me tell you this... It's not them that you should be scared about. It's the thin guys that you should worry.   
+The drug addicts who lost a lot of weight and look like zombies. Sa kanila ka dapat mag-worry.   
 They may be not as heavy and intimidating like the heavy weight lifters but they definitely can kill you.
 
 These heavy weight lifters are one of the nicest people on earth. For one, they know how to love themselves. They know how to take care of their body. They are so curious about their health. And they give value to their life.
