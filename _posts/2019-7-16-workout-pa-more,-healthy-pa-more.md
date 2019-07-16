@@ -18,7 +18,8 @@ For one, they know how to love themselves. They know how to take care of their b
 Their energy and positivism can rub off also from those people who are near to them.   
 That person can be anybody. That person can even be you.
 
-Try going to the gym. And look for a gym rat who pulls weights like hell. Go to him or her. Introduce yourself and ask them if they can assist you in weight lifting.
+Try going to the gym. And look for a gym rat who pulls weights like hell.   
+Go to him or her. Introduce yourself and ask them if they can assist you in weight lifting.   
 Most of these people will say YES to you 90% of the time.
 
 Whenever you are blessed with anything, it is impulsive that you give something back in return. 
