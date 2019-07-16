@@ -60,11 +60,12 @@ I suggest you start small. If you adore pork chops and steaks so much then try t
 On those days that your car is not allowed to go out in the city, try not to take Grab or Taxi but let your feet bring you to your destination just by walking.   
 If you are riding a public bus on your way home, take that much-needed sleep for 40 for 50 minutes and set your alarm or ask the person beside to wake you up when you are at your designated bus stop. 
 
-There are many ways of living a healthy lifestyle. We just need to improvise and find ways of making it happen.
-In the end, it all boils down to how much you want it.
+There are many ways of living a healthy lifestyle. We just need to improvise and find ways of making it happen.   
+In the end, it all boils down to how much you want it.   
 Do you want to Live or Die? Live Healthily or Die Unhealthy... the choice is yours...
 
-My friends Rocko and Gina from Canada are living the best time of their lives. They are "Senior Citizens" who are traveling to different countries because they are healthy enough to do so.
+My friends Rocko and Gina from Canada are living the best time of their lives.   
+They are **"Senior Citizens"** who are traveling to different countries because they are healthy enough to do so.
 
 How about you? How healthy are you? 
 
