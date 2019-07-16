@@ -51,7 +51,8 @@ Just do the exercises that you like doing.
 If you like what you are doing, chances are you are having fun, and when you are having fun that will lead to repetitious routine habit.   
 And the next thing you will know, you are now living a healthy lifestyle.
 
-I swim at least 4 times a week. Jog the days in between of my swimming schedule. And take the stairs rather than the elevator whenever I am in a business meeting in Makati.   
+I swim at least 4 times a week. Jog the days in between of my swimming schedule.   
+And take the stairs rather than the elevator whenever I am in a business meeting in Makati.   
 I also have a set of exercises whenever I am out of town.
 I just adjust wherever I am located and utilize the things that are out there.   
 I am not what they call the **"Macho Man"** but I am not fat and obese. I sometimes eat those **"Unhealthy Foods"** when there is a feast or party or when I feel like having it.   
