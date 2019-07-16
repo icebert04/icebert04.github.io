@@ -27,7 +27,8 @@ These weight lifters have been blessed with a gorgeous body and a good bill of h
 Surely, they won't mind sharing their technique and knowledge to people like you and me.
 
 These two humungous people with me in the picture are one of them. 
-They are heavy weight lifters from Canada. They teach bodybuilding for a living. But they give a lot of free advice for those who want their expertise.
+They are heavy weight lifters from Canada.   
+They teach bodybuilding for a living. But they give a lot of free advice for those who want their expertise.
 
 They told me that I don't have to be like them. I don't need to gain big biceps and a large chest. I don't even need to work out in the gym.
 Their only advice is to take care of my health. Exercise whenever you can, Eat more greens, and get Enough Sleep as possible. 
