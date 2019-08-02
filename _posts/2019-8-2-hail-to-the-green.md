@@ -26,7 +26,7 @@ La Salle has diverse activity selections for their students like Performing Arts
 For 41 years, this academy has an Adult Night High School where they have been converting lives of marginalized adults and deaf learners to gain new skills and have successfully risen to the ranks of professionals, entrepreneurs and those who have successfully joined the workforce.   
 Truly a Lasallian trait known for being **"Man For Others"**!
 
-The school is also home to "The Kundirana", one of the most notable and distinct performing groups in The Philippines, which is a music ministry composed of about 8–15 high school students in their junior or senior year. 
+The school is also home to **"The Kundirana"**, one of the most notable and distinct performing groups in The Philippines, which is a music ministry composed of about 8–15 high school students in their junior or senior year.   
 Notable alumni include award-winning Filipino artists such as Gary Valenciano, Ogie Alcasid, Randy Santiago, Monet Silvestre, Rannie Raymundo, Dingdong Avanzado, Juan Miguel Salvador, Carlo Orosa, Gian Magdangal of Philippine Idol, Louie Ocampo, and the notable singing groups of the "TUX" and "Men and Music".
 
 You name it and they got it. The school has inherently everything any student will be needing in their development. 
