@@ -11,7 +11,7 @@ And the one private school that I'm going to address today is no other than my A
 **La Salle Greenhills**(**"LSGH"**) is a private Catholic school exclusively for boys.   
 Standing on a 6-hectare piece of prime property along Ortigas Avenue in Mandaluyong, this school blends time-tested educational traditions and innovations that form learners into responsible citizens who live the core values of faith, service, and fellowship.
 
-This institution, which was founded on the vision of St. John Baptist De La Salle (Patron of Teachers), has excellent academic opportunities which constantly score top marks on standardized tests and have close to a 100 percent rate of students attending their university of their choice.
+This institution, which was founded on the vision of St. John Baptist De La Salle (Patron of Teachers), has excellent academic opportunities which constantly score top marks on standardized tests and have close to a 100 percent rate of students attending their university of their choice.   
 The school has smaller classes and dedicated teachers where they can focus to individually help students' weak areas and advance their strengths. 
 
 This academy, which carries the color GREEN, is sufficient with ample resources and extracurricular activities that will develop the skills and identity of their students for them to set their future goals and to visualize who they want to be in the course of time.
