@@ -33,11 +33,11 @@ You name it and they got it. The school has inherently everything any student wi
 And if you are enrolled in this kind of supportive and nurturing environment, you don't have an option to fail.   
 Success is right there to their taking, it's entirely up to the students which path they will take.
 
-And as proof, I went to my LSGH Batch 93 Facebook Group and took note on the status of my batchmates.
-I have batchmates who are successful doctors, entrepreneurs, pilots, musicians, CEO of their companies, writers and producers, etc.
-I never saw a "Bum" or ineffective fellow Lasallian in the group.
+And as proof, I went to my LSGH Batch 93 Facebook Group and took note on the status of my batchmates.   
+I have batchmates who are successful doctors, entrepreneurs, pilots, musicians, CEO of their companies, writers and producers, etc.   
+I never saw a "Bum" or ineffective fellow Lasallian in the group.   
 All 424 of us were armed with skills and talents to prosper in this world. 
-Some are living abroad and some remain to stay in the Philippines. But the color GREEN still endures in our perishing breed.
+Some are living abroad and some remain to stay in the Philippines. But the color GREEN still endures in our perishing breed.   
 We are all unique and gifted leaders with a deep relationship with God and took the time to continue to engage in service-oriented activities for those in need. 
 
 Even up today, I can still feel the wondrous St. Benilde Gym. The smell of my favorite authentic tacos at the cafeteria on the ground floor.
