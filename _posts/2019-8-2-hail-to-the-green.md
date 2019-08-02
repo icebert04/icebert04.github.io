@@ -29,8 +29,8 @@ Truly a Lasallian trait known for being **"Man For Others"**!
 The school is also home to **"The Kundirana"**, one of the most notable and distinct performing groups in The Philippines, which is a music ministry composed of about 8–15 high school students in their junior or senior year.   
 Notable alumni include award-winning Filipino artists such as Gary Valenciano, Ogie Alcasid, Randy Santiago, Monet Silvestre, Rannie Raymundo, Dingdong Avanzado, Juan Miguel Salvador, Carlo Orosa, Gian Magdangal of Philippine Idol, Louie Ocampo, and the notable singing groups of the "TUX" and "Men and Music".
 
-You name it and they got it. The school has inherently everything any student will be needing in their development. 
-And if you are enrolled in this kind of supportive and nurturing environment, you don't have an option to fail.
+You name it and they got it. The school has inherently everything any student will be needing in their development.   
+And if you are enrolled in this kind of supportive and nurturing environment, you don't have an option to fail.   
 Success is right there to their taking, it's entirely up to the students which path they will take.
 
 And as proof, I went to my LSGH Batch 93 Facebook Group and took note on the status of my batchmates.
