@@ -44,9 +44,9 @@ Even up today, I can still feel the wondrous St. Benilde Gym.
 The smell of my favorite authentic tacos at the cafeteria on the ground floor.   
 My 3 times a week Fencing activities, the opening of car doors when the parents bring their toddlers on campus during my COCC days, and the camaraderie and honor of being together with these fine gentlemen who turn out to be A-okay to our country and our society. 
 
-Indeed, La Salle Greenhills is one of the best schools in the country today. 
-A respected and well-known institution that has transformed lives through Christian and relevant education.
-A school where HOPE is alive in our hearts, Forever!
+Indeed, **La Salle Greenhills** is one of the best schools in the country today.   
+A respected and well-known institution that has transformed lives through Christian and relevant education.   
+A school where HOPE is alive in our hearts, **Forever**!
 
 
 
