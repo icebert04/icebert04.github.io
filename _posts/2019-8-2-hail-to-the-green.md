@@ -40,7 +40,8 @@ All 424 of us were armed with skills and talents to prosper in this world.
 Some are living abroad and some remain to stay in the Philippines. But the color GREEN still endures in our perishing breed.   
 We are all unique and gifted leaders with a deep relationship with God and took the time to continue to engage in service-oriented activities for those in need. 
 
-Even up today, I can still feel the wondrous St. Benilde Gym. The smell of my favorite authentic tacos at the cafeteria on the ground floor.
+Even up today, I can still feel the wondrous St. Benilde Gym.   
+The smell of my favorite authentic tacos at the cafeteria on the ground floor.   
 My 3 times a week Fencing activities, the opening of car doors when the parents bring their toddlers on campus during my COCC days, and the camaraderie and honor of being together with these fine gentlemen who turn out to be A-okay to our country and our society. 
 
 Indeed, La Salle Greenhills is one of the best schools in the country today. 
