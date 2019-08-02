@@ -3,7 +3,7 @@ published: true
 ---
 ![Private School](/images/LSGH.jpg)
 
-2 weeks ago, I wrote an article about "Public School Students Are Our Future"...
+2 weeks ago, I wrote an article about **"Public School Students Are Our Future"**...
 
 Today, I'm going to bring up Private Schools and why they have a high success rate in producing countless leaders in business, sports, politics, and society.
 And the one private school that I'm going to address today is no other than my Alma Mater... LA SALLE GREENHILLS!
