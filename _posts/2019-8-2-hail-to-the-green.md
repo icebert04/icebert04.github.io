@@ -16,8 +16,8 @@ The school has smaller classes and dedicated teachers where they can focus to in
 
 This academy, which carries the color GREEN, is sufficient with ample resources and extracurricular activities that will develop the skills and identity of their students for them to set their future goals and to visualize who they want to be in the course of time.
 
-The St. Benilde Gym, a large dome-shaped structure which was built in 1967, houses main basketball courts for their preparation for a probable UAAP basketball stint. 
-La Salle Greenhills has a full-sized football field and other facilities like Track Oval, Lawn Tennis Court, Swimming pool, Gold Driving Cage, etc.
+The St. Benilde Gym, a large dome-shaped structure which was built in 1967, houses main basketball courts for their preparation for a probable UAAP basketball stint.   
+La Salle Greenhills has a full-sized football field and other facilities like Track Oval, Lawn Tennis Court, Swimming pool, Gold Driving Cage, etc.   
 But it's Basketball where they give real attention to. 
 
 The compound is surrounded with libraries, music and art rooms, computer labs, chapels, and a retreat house.
