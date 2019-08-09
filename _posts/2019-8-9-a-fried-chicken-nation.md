@@ -39,7 +39,7 @@ But whether you read my booklet or not, I strongly advise you to raise your own 
 We see a lot of people getting sick, babies being born with deformities and abnormalities, and early age deaths to most.   
 One of these factors is the food that we eat. We simply don't know what food we are eating at our very own table.
 
-It's the food that we eat that is killing us. The food that is full of bad chemicals, anti-biotics, pesticides and insecticide, etc. 
+It's the food that we eat that is killing us. The food that is full of bad chemicals, anti-biotics, pesticides and insecticide, etc.   
 All of these are making the once rich and healthy food produce into a deadly poisonous killing pill.
 
 Here's a question, when you go out to do your groceries... where do you buy your meat? My second question is (if it is from a reliable and steady source), how sure are you of the meat that you are buying? Did you see them grow? Do you know exactly what food do they eat? Are you sure that they free from anti-biotics and chemicals?
