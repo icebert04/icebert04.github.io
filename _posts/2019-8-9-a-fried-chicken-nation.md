@@ -49,7 +49,7 @@ Are you sure that they free from anti-biotics and chemicals?
 
 In all honesty, nobody knows.   
 So why trust your health and your precious life to some company whose main concern is to make a profit?   
-Why not grow your own food. In that way, you know what are you eating.   
+Why not grow your own food. In that way, you know what you are eating.   
 If you go Organic, you have added 10 more good years of your life in this world. 
 
 Raising backyard meat birds (like chickens and ducks) in your open lot in the city can give you healthy meat and possible fresh eggs as well.   
