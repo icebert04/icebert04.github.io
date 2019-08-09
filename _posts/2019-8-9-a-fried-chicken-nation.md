@@ -7,10 +7,10 @@ That is my son right there in the picture. Holding batches of day-old chicks tha
 That is who we are. Our family has an endless adoration for animals... both domesticated and livestock.   
 One of which is Chickens...
 
-It's no secret that The Philippines are a "Fried-Chicken Nation"!
-These creatures are probably the most populous and most popular type of meat for most Filipino consumers today.
-Just look at Jollibee. Try to visit one of their branches and see for yourself the volume of orders of "Chickenjoys" of every single hungry customer.
-It goes without saying that Filipinos do love chickens and the demand is "Huge"!
+It's no secret that The Philippines are a **"Fried-Chicken Nation"**!   
+These creatures are probably the most populous and most popular type of meat for most Filipino consumers today.   
+Just look at Jollibee. Try to visit one of their branches and see for yourself the volume of orders of **"Chickenjoys"** of every single hungry customer.   
+It goes without saying that Filipinos do love chickens and the demand is **"Huge"**!
 
 During the course of my business (particularly in this agricultural project), I managed to write a "Booklet."
 In that booklet, I've written all the things that I have done in my Poultry farm.
