@@ -29,10 +29,11 @@ These contents include...
 => Feasibility Study (for the rich, middle class, and the poor)   
 => Plus more tips and advice...
 
-
 And more importantly, how can anyone have healthy chicken meat and additional income in 28 days.
 
-If you are interested in getting this booklet, you can reach me through my channels. I have updated the contents of it for 2019. Everything is good to go.
+
+If you are interested in getting this booklet, you can reach me through my channels.   
+I have updated the contents of it for 2019. Everything is good to go.
 
 But whether you read my booklet or not, I strongly advise you to raise your own backyard meat birds.
 We see a lot of people getting sick, babies being born with deformities and abnormalities, and early age deaths to most. 
