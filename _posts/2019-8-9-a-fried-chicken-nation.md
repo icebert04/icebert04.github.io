@@ -8,7 +8,7 @@ That is who we are. Our family has an endless adoration for animals... both dome
 One of which is Chickens...
 
 It's no secret that The Philippines are a **"Fried-Chicken Nation"**!   
-These creatures are probably the most populous and most popular type of meat for most Filipino consumers today.   
+These fluffy creatures are probably the most populous and most popular type of meat for most Filipino consumers today.   
 Just look at Jollibee. Try to visit one of their branches and see for yourself the volume of orders of **"Chickenjoys"** of every single hungry customer.   
 It goes without saying that Filipinos do love chickens and the demand is **"Huge"**!
 
