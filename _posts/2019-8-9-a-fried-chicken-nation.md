@@ -3,8 +3,8 @@ published: true
 ---
 ![Chicken](/images/Chick Book.jpg)
 
-That is my son right there in the picture. Holding batches of day-old chicks that arrived on the farm. 
-That is who we are. Our family has an endless adoration for animals... both domesticated and livestock.
+That is my son right there in the picture. Holding batches of day-old chicks that arrived on the farm.   
+That is who we are. Our family has an endless adoration for animals... both domesticated and livestock.   
 One of which is Chickens...
 
 It's no secret that The Philippines are a "Fried-Chicken Nation"!
