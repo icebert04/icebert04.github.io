@@ -52,9 +52,9 @@ So why trust your health and your precious life to some company whose main conce
 Why not grow your own food. In that way, you know what are you eating.   
 If you go Organic, you have added 10 more good years of your life in this world. 
 
-Raising backyard meat birds (like chickens and ducks) in your open lot in the city can give you healthy meat and possible fresh eggs as well. 
-Just imagine that. You have an egg-laying machine right at your backyard (Pancakes anyone?). Or Chicken Pot Pie for your family any time of the week. 
-Oh, by the way, did you know that your chickens can also fertilize your garden by letting them poop and turning it into an effective growth-enhancing tool for your fruits and vegetables.  
+Raising backyard meat birds (like chickens and ducks) in your open lot in the city can give you healthy meat and possible fresh eggs as well.   
+Just imagine that. You have an egg-laying machine right at your backyard (Pancakes anyone?). Or Chicken Pot Pie for your family any time of the week.   
+Oh, by the way, did you know that your chickens can also fertilize your garden by letting them poop and turning it into an effective growth-enhancing tool for your fruits and vegetables.   
 The possibilities are endless. 
 
 If you don't have space, you can coordinate with your relatives in the province and start a small meat bird farm in a 500 square meter lot. 
