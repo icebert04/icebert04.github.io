@@ -62,7 +62,9 @@ It will not only give the reason to go to your province to pick up the produce, 
 
 At the moment, I am engaged in planning to initiate an organic farm in the south of manila. So stay tuned. More to come in the coming months...
 
-In the meantime, if you want reliable and healthy chicken meat and eggs... if you want to have your backyard meat birds in your own home, then go ahead and read my booklet.
+In the meantime, if you want reliable and healthy chicken meat and eggs...   
+if you want to have your backyard meat birds in your own home...   
+then go ahead and read my booklet.
 
 Chickens are not only dependable healthy food source, they can also be your new next best friend.
 
