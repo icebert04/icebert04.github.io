@@ -58,7 +58,7 @@ Oh, by the way, did you know that your chickens can also fertilize your garden b
 The possibilities are endless. 
 
 If you don't have space, you can coordinate with your relatives in the province and start a small meat bird farm in a 500 square meter lot.   
-It will not only give the reason to go to your province to pick up the produce, but you might be earning a buck or two from a land that is once idle and abandoned.
+It will not only give you a reason to go to your province to pick up the meat and egg produce, but you might be earning a buck or two from a land that is once idle and abandoned.
 
 At the moment, I am engaged in planning to initiate an organic farm in the south of manila. So stay tuned. More to come in the coming months...
 
