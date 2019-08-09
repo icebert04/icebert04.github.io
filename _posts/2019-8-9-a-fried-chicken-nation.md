@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Chicken](/images/Chick Book.jpg)
