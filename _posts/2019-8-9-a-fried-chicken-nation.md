@@ -12,9 +12,10 @@ These creatures are probably the most populous and most popular type of meat for
 Just look at Jollibee. Try to visit one of their branches and see for yourself the volume of orders of **"Chickenjoys"** of every single hungry customer.   
 It goes without saying that Filipinos do love chickens and the demand is **"Huge"**!
 
-During the course of my business (particularly in this agricultural project), I managed to write a "Booklet."
-In that booklet, I've written all the things that I have done in my Poultry farm.
-My success and my failures, My improvisation and innovation. And also my mistakes and setbacks and how can anyone avoid these.
+During the course of my business (particularly in this agricultural project), I managed to write a **"Booklet".**   
+In that booklet, I've written all the things that I have done in my Poultry farm.   
+My success and my failures, My improvisation and innovation.   
+And also my mistakes and setbacks and how can anyone avoid these.
 
 These contents include...
 => The Beauty of Poultry
