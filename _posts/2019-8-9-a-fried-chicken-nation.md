@@ -42,7 +42,10 @@ One of these factors is the food that we eat. We simply don't know what food we 
 It's the food that we eat that is killing us. The food that is full of bad chemicals, anti-biotics, pesticides and insecticide, etc.   
 All of these are making the once rich and healthy food produce into a deadly poisonous killing pill.
 
-Here's a question, when you go out to do your groceries... where do you buy your meat? My second question is (if it is from a reliable and steady source), how sure are you of the meat that you are buying? Did you see them grow? Do you know exactly what food do they eat? Are you sure that they free from anti-biotics and chemicals?
+Here's a question, when you go out to do your groceries... where do you buy your meat? My second question is (if it is from a reliable and steady source), how sure are you of the meat that you are buying?   
+Did you see them grow?   
+Do you know exactly what food do they eat?   
+Are you sure that they free from anti-biotics and chemicals?
 
 In all honesty, nobody knows. So why trust your health and your precious life to some company whose main concern is to make a profit?
 Why not grow your own food. In that way, you know what are you eating. 
