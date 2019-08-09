@@ -17,16 +17,16 @@ In that booklet, I've written all the things that I have done in my Poultry farm
 My success and my failures, My improvisation and innovation.   
 And also my mistakes and setbacks and how can anyone avoid these.
 
-These contents include...
-=> The Beauty of Poultry
-=> My House and Sanctuary (proper housing for the birds)
-=> The Importance of getting the right Day Old Chicks (how to minimize mortality)
-=> Why Commercial Feeds will Kill You (ways of reducing feed costs)
-=> Disease Control, Vaccination and Biosecurity
-=> How to make Money (the most exciting part)
-=> How to Turn Waste into Gold 
-=> No Cash or Land... No Problem
-=> Feasibility Study (for the rich, middle class, and the poor)
+These contents include...   
+=> The Beauty of Poultry   
+=> My House and Sanctuary (proper housing for the birds)   
+=> The Importance of getting the right Day Old Chicks (how to minimize mortality)   
+=> Why Commercial Feeds will Kill You (ways of reducing feed costs)   
+=> Disease Control, Vaccination and Biosecurity   
+=> How to make Money (the most exciting part)   
+=> How to Turn Waste into Gold   
+=> No Cash or Land... No Problem   
+=> Feasibility Study (for the rich, middle class, and the poor)   
 => Plus more tips and advice...
 
 
