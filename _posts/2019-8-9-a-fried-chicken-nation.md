@@ -35,8 +35,8 @@ And more importantly, how can anyone have healthy chicken meat and additional in
 If you are interested in getting this booklet, you can reach me through my channels.   
 I have updated the contents of it for 2019. Everything is good to go.
 
-But whether you read my booklet or not, I strongly advise you to raise your own backyard meat birds.
-We see a lot of people getting sick, babies being born with deformities and abnormalities, and early age deaths to most. 
+But whether you read my booklet or not, I strongly advise you to raise your own backyard meat birds.   
+We see a lot of people getting sick, babies being born with deformities and abnormalities, and early age deaths to most.   
 One of these factors is the food that we eat. We simply don't know what food we are eating at our very own table.
 
 It's the food that we eat that is killing us. The food that is full of bad chemicals, anti-biotics, pesticides and insecticide, etc. 
