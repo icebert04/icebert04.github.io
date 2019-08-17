@@ -22,10 +22,10 @@ Darwina's decision, tenacity, and determination dazzled me.
 I mean, applying for Canada is fine. But working in a Call Center at her age and with her commendable skills is even more stunning.   
 She has done what most of us can't.... eating our very own **"Pride"**.
 
-Because of her amazing character, I took the time to talk to her and help her as much as I could. 
-I told her why would she work in Call Center that has a basic salary of Php 25 thousand per month when she can get more working as a Bilingual agent. 
-Darwina is a Chavacana which makes her have the ability to speak in Spanish. 
-Having the ability to talk in Spanish will give her an extra Php 35,000- 40,000 a month in a Call Center. 
+Because of her amazing character, I took the time to talk to her and help her as much as I could.   
+I told her why would she work in Call Center that has a basic salary of Php 25 thousand per month when she can get more working as a Bilingual agent.   
+Darwina is a Chavacana which makes her have the ability to speak in Spanish.   
+Having the ability to talk in Spanish will give her an extra Php 35,000- 40,000 a month in a Call Center.   
 The language premium and her basic salary can give Darwina Php 60,000 - 70,000 a month. Much better than her previous plan.
 
 I told her that she can also do Health account in a Call Center. Or do Outbound sales which also gives her a higher yield.
