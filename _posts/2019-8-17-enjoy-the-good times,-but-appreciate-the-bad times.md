@@ -66,18 +66,19 @@ Albert Einstein once quoted that **"In the midst of every crisis, lies great opp
 That the Pessimist sees Difficulty in every Opportunity, while the Optimist sees the Opportunity in every Difficulty.   
 So which one are you gonna be... the Pessimist or the Optimist?
 
-If you have time, I advise you to go to any theme park. 
-Go to Disneyland, Universal Studios, Ocean Park, or Sea World.
-You can try local like Enchanted Kingdom in Laguna or Star City in Manila.
-Heck, you can even go to your local "Peryahan" in your barrio.
-Once inside, ride the Roller Coaster. 
+If you have time, I advise you to go to any theme park.   
+Go to Disneyland, Universal Studios, Ocean Park, or Sea World.   
+You can try local like Enchanted Kingdom in Laguna or Star City in Manila.   
+Heck, you can even go to your local "Peryahan" in your barrio.   
+Once inside, ride the Roller Coaster.   
 Pay attention to the ride. Observe the tight turns, the steep slopes, and the inversions. 
-Enjoy the view from above when you are top. Make the most of it. 
-And when you are down, keep an eye on your surroundings and ask yourself...  "In what ways can I take pleasure from this dull moment while I am at this stage".  
-"And while I am here, I might as well enjoy it". 
+Enjoy the view from above when you are top. Make the most of it.   
+And when you are down, keep an eye on your surroundings and ask yourself...  **"In what ways can I take pleasure from this dull moment while I am at this stage"**.   
+**"And while I am here, I might as well enjoy it"**.   
 Celebrate it. Commemorate it. But don't get stuck on it.
 
-Because your Roller Coaster won't be down the whole time. Sooner or Later, your Roller Coaster will bring you all the way Up!
+Because your Roller Coaster won't be down the whole time.   
+Sooner or Later, your Roller Coaster will bring you all the way Up!
 
 
 
