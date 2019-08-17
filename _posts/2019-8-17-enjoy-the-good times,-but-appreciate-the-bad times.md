@@ -28,9 +28,9 @@ Darwina is a Chavacana which makes her have the ability to speak in Spanish.
 Having the ability to talk in Spanish will give her an extra Php 35,000- 40,000 a month in a Call Center.   
 The language premium and her basic salary can give Darwina Php 60,000 - 70,000 a month. Much better than her previous plan.
 
-I told her that she can also do Health account in a Call Center. Or do Outbound sales which also gives her a higher yield.
-But most important of all, I told her that she doesn't have to eat her pride. 
-I convinced her that she is talented enough to get a decent job in Manila while waiting for her Green Light in Canada.
+I told her that she can also do Health account in a Call Center. Or do Outbound sales which also gives her a higher yield.   
+But most important of all, I told her that she doesn't have to eat her pride.   
+I convinced her that she is talented enough to get a decent job in Manila while waiting for her Green Light in Canada.   
 Darwina agreed and exactly did that.
 
 Darwina is just one of the few persons who know how to "Enjoy the Good Times but Appreciate the Bad Times". 
