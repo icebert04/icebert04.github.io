@@ -54,7 +54,7 @@ and most of all... it will define you.
 And when you have gone past all of that, you will be like just Darwina... remarkably happy and contented in life.   
 And no matter what life will bring, you can withstand all of it.
 
-Tough times are not only about financial. It also about relationships, health, death, and other personal issues. 
+Tough times are not only about financial. It also about relationships, health, death, and other personal issues.   
 But it is not about the subject matter, it's how you get out of it. How you solved the problem and come out with solutions.
 
 Good times are easy. Everybody can manage that anytime.
