@@ -57,9 +57,9 @@ And no matter what life will bring, you can withstand all of it.
 Tough times are not only about financial. It also about relationships, health, death, and other personal issues.   
 But it is not about the subject matter, it's how you get out of it. How you solved the problem and come out with solutions.
 
-Good times are easy. Everybody can manage that anytime.
-Bad times will separate you from the others. 
-This is the time where you will shine the most. This is the moment where it will bring out the best in you. 
+Good times are easy. Everybody can manage that anytime.   
+Bad times will separate you from the others.   
+This is the time where you will shine the most. This is the moment where it will bring out the best in you.   
 And this is the time where you can become extraordinary.
 
 Albert Einstein once quoted that "In the midst of every crisis, lies great opportunity".
