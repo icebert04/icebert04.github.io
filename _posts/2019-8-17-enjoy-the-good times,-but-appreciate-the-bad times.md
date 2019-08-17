@@ -14,7 +14,7 @@ She can't believe all of her years of hard work and sacrifice have now gone into
 She should fly back to Zamboanga, lick her wounds, take some time off with her family and loved ones, then after a few months or so, get her feet back on the ground and try her luck again.   
 After all, she needs it badly. Getting that well-deserved break and long rest.
 
-But no, Darwina doesn't wanna give in. She doesn't want to give up. 
+But no, Darwina doesn't wanna give in. She doesn't want to give up.   
 I heard her discussing to my wife that she is now going to apply for a job in Toronto Canada. 
 And what is more astonishing is hearing that she is going to work in a Call Center in Manila while waiting for her application to be approved.
 
