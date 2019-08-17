@@ -33,9 +33,9 @@ But most important of all, I told her that she doesn't have to eat her pride.
 I convinced her that she is talented enough to get a decent job in Manila while waiting for her Green Light in Canada.   
 Darwina agreed and exactly did that.
 
-Darwina is just one of the few persons who know how to "Enjoy the Good Times but Appreciate the Bad Times". 
-Most people just look at the good times. And when dark times come, they will filter out and die.
-That is the reason why most people are unsuccessful and unhappy in life. 
+Darwina is just one of the few persons who know how to **"Enjoy the Good Times but Appreciate the Bad Times"**.   
+Most people just look at the good times. And when dark times come, they will filter out and die.   
+That is the reason why most people are unsuccessful and unhappy in life.   
 They can't bear facing Hard Times.
 Little did they know that there is no escaping from it. 
 
