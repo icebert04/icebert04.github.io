@@ -62,8 +62,8 @@ Bad times will separate you from the others.
 This is the time where you will shine the most. This is the moment where it will bring out the best in you.   
 And this is the time where you can become extraordinary.
 
-Albert Einstein once quoted that "In the midst of every crisis, lies great opportunity".
-That the Pessimist sees Difficulty in every Opportunity, while the Optimist sees the Opportunity in every Difficulty. 
+Albert Einstein once quoted that **"In the midst of every crisis, lies great opportunity"**.
+That the Pessimist sees Difficulty in every Opportunity, while the Optimist sees the Opportunity in every Difficulty.   
 So which one are you gonna be... the Pessimist or the Optimist?
 
 If you have time, I advise you to go to any theme park. 
