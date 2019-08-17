@@ -39,9 +39,9 @@ That is the reason why most people are unsuccessful and unhappy in life.
 They can't bear facing Hard Times.
 Little did they know that there is no escaping from it. 
 
-All of us are living in a Roller Coaster ride so why bother. 
-Why worry about the uncertainty? 
-Have fun when you are on top but be ready for a fall. 
+All of us are living in a Roller Coaster ride so why bother.   
+Why worry about the uncertainty?   
+Have fun when you are on top but be ready for a fall.   
 And when you are down and out, this is the best time to improve yourself (no matter what that is).
 
 Believe it or not, but I prefer the hard times more... you know why? 
