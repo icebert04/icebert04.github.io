@@ -44,10 +44,14 @@ Why worry about the uncertainty?
 Have fun when you are on top but be ready for a fall.   
 And when you are down and out, this is the best time to improve yourself (no matter what that is).
 
-Believe it or not, but I prefer the hard times more... you know why? 
-Because hard times will challenge you, will make you think more, you will learn to improvise and come up with a good plan, will make you recognize your blessings, will strengthen your character, 
-and most of all... it will define you.
-And when you have gone past all of that, you will be like just Darwina... remarkably happy and contented in life.
+Believe it or not, but I prefer the hard times more... you know why?   
+Because hard times will challenge you,   
+will make you think more,   
+you will learn to improvise and come up with a good plan,   
+will make you recognize your blessings,   
+will strengthen your character,   
+and most of all... it will define you.   
+And when you have gone past all of that, you will be like just Darwina... remarkably happy and contented in life.   
 And no matter what life will bring, you can withstand all of it.
 
 Tough times are not only about financial. It also about relationships, health, death, and other personal issues. 
