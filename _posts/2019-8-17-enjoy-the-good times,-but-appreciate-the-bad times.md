@@ -18,8 +18,9 @@ But no, Darwina doesn't wanna give in. She doesn't want to give up.
 I heard her discussing to my wife that she is now going to apply for a job in Toronto Canada. 
 And what is more astonishing is hearing that she is going to work in a Call Center in Manila while waiting for her application to be approved.
 
-Darwina's decision, tenacity, and determination dazzled me.  I mean, applying for Canada is fine. But working in a Call Center at her age and with her commendable skills is even more stunning. 
-She has done what most of us can't.... eating our very own "Pride".
+Darwina's decision, tenacity, and determination dazzled me.   
+I mean, applying for Canada is fine. But working in a Call Center at her age and with her commendable skills is even more stunning.   
+She has done what most of us can't.... eating our very own **"Pride"**.
 
 Because of her amazing character, I took the time to talk to her and help her as much as I could. 
 I told her why would she work in Call Center that has a basic salary of Php 25 thousand per month when she can get more working as a Bilingual agent. 
