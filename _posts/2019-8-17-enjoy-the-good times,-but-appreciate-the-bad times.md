@@ -4,14 +4,14 @@ published: true
 ![OFW](/images/Darwina.jpg)
 
 Saudi Arabia is now pulling out all OFW (Overseas Foreign Workers) at this moment.
-Saudi has given more importance to local employment, making all foreign workers (with exemplary skills) dispensable. 
-All Filipino must now go home. They are now all jobless.
-One of them is Darwina. She is a Pharmacist who is expelled from work in Riyadh. 
-She just arrived in The Philippines unemployed and uncertain of her future. 
-She is now supposed to go home to her hometown in Zamboanga with her tail tucked between her legs (using dog terms). She feels defeated and ashamed. 
-But most of all, Darwina is devastated with the outcome. 
+Saudi has given more importance to local employment, making all foreign workers (with exemplary skills) dispensable.   
+All Filipino must now go home. They are now all jobless.   
+One of them is Darwina. She is a Pharmacist who is expelled from work in Riyadh.   
+She just arrived in The Philippines unemployed and uncertain of her future.   
+She is now supposed to go home to her hometown in Zamboanga with her tail tucked between her legs (using dog terms). She feels defeated and ashamed.   
+But most of all, Darwina is devastated with the outcome.   
 She can't believe all of her years of hard work and sacrifice have now gone into waste.
-She should fly back to Zamboanga, lick her wounds, take some time off with her family and loved ones, then after a few months or so, get her feet back on the ground and try her luck again.
+She should fly back to Zamboanga, lick her wounds, take some time off with her family and loved ones, then after a few months or so, get her feet back on the ground and try her luck again.   
 After all, she needs it badly. Getting that well-deserved break and long rest.
 
 But no, Darwina doesn't wanna give in. She doesn't want to give up. 
