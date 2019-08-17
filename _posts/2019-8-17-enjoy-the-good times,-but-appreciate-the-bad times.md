@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
-![OFW](/images/Darwin.jpg)
+![OFW](/images/Darwina.jpg)
