@@ -60,8 +60,8 @@ Even today, we have the undying fighting spirit within us.
 We may not be at war, but we excel at any competitive sports, tournaments, and contests.   
 We are great in boxing, in pageantry, and many others. 
 
-We may be small and tiny. We may be poor and a 3rd world country. We may lack the fighter jets and the submarines. 
-But we never back down from a fight. 
+We may be small and tiny. We may be poor and a 3rd world country. We may lack the fighter jets and the submarines.   
+But we never back down from a fight.   
 And when we are trapped in a corner, that is where we are most dangerous.
 
 So to all of the people who are reading this...
