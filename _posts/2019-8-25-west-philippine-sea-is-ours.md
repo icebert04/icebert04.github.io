@@ -38,8 +38,8 @@ Not only do we lose our rights to the resources of the West Philippine Sea, but 
 Worse, we bear the risk of increased territory grabs by China, even in our mainland.   
 In fact, a Chinese newspaper recently published a story saying that parts of Palawan, while inhabited by Filipinos, are inevitable targets for Chinese invasion.
 
-We've been hearing unfortunate stories of some Chinese nationals who gives no respect to our country... 
-Like some women that went digging and hiding soiled baby diapers on the pearly white sand of Boracay. 
+We've been hearing unfortunate stories of some Chinese nationals who gives no respect to our country...   
+Like some women that went digging and hiding soiled baby diapers on the pearly white sand of Boracay.   
 We also witnessed a Chinese lady throwing Taho (pudding-like soy milk) in the face of a police officer. 
 
 These Chinese are everywhere. From Luzon, Visayas, and Mindanao. They are not only occupying our waters, they are slowly "Creeping in" our land.
