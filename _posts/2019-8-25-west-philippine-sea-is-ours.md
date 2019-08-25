@@ -42,7 +42,8 @@ We've been hearing unfortunate stories of some Chinese nationals who gives no re
 Like some women that went digging and hiding soiled baby diapers on the pearly white sand of Boracay.   
 We also witnessed a Chinese lady throwing Taho (pudding-like soy milk) in the face of a police officer. 
 
-These Chinese are everywhere. From Luzon, Visayas, and Mindanao. They are not only occupying our waters, they are slowly "Creeping in" our land.
+These Chinese are everywhere. From Luzon, Visayas, and Mindanao.   
+They are not only occupying our waters, they are slowly **"Creeping in"** our land.
 
 Should we be worried or bothered? 
 Bothered yes... 
