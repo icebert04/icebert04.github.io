@@ -12,10 +12,10 @@ Whenever someone in the group catches a fish, they immediately put it in a pail.
 All of that harvest will be donated to someone who is just new in the group (namely me and my son).   
 And as we pile up those fishes in the pail, the locals kept the chitchat coming. All of us in the dock area exchanged stories, laughter, and even some fishing tips & advises.
 
-In the middle of all of our conversations, I noticed one old fellow who is isolated and quiet sitting in one corner. 
-I approached the guy and started conversing with him (for this article sake let's call the guy Mang Lando). 
-Mang Lando is pushing 70, retired, and contented living a simple life. 
-He just goes to the dock in the morning not really to catch fish for consumption, but more of his personal past-time.  
+In the middle of all of our conversations, I noticed one old fellow who is isolated and quiet sitting in one corner.   
+I approached the guy and started conversing with him (for this article sake let's call the guy Mang Lando).   
+Mang Lando is pushing 70, retired, and contented living a simple life.   
+He just goes to the dock in the morning not really to catch fish for consumption, but more of his personal past-time.   
 Our conversation started with types of fishes, the history of the province of Balayan, and... 
 the West Philippine Sea.
 
