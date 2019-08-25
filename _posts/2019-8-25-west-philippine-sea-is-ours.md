@@ -52,12 +52,12 @@ We may not have the mechanism to go to war. But there are other means and ways t
 We can rely on the 1951 Mutual Defense Treaty between the Philippines and the United States in case an all-out invasion breaks out.  This is a case of simply choosing between lesser evils.   
 There is also Japan, Russia, and our neighboring ASEAN nations who have beefed up their respective arming programs. We have friends and allies who can help.
 
-Our History also speaks for itself. 
-Well renowned explorer Ferdinand Magellan was killed by a Filipino tribe.
-How Muhammad Kudarat successfully fought off Spanish invasions and hindered the spread of Roman Catholicism in the island of Mindanao.
-Dr. Jose Rizal's writings and books were his way of supporting his peaceful reform where his 1896 execution helped end the 333 years Spanish rule in the Philippines.
-Even today, we have the undying fighting spirit within us. 
-We may not be at war, but we excel at any competitive sports, tournaments, and contests. 
+Our History also speaks for itself.   
+Well renowned explorer Ferdinand Magellan was killed by a Filipino tribe.   
+How Muhammad Kudarat successfully fought off Spanish invasions and hindered the spread of Roman Catholicism in the island of Mindanao.   
+Dr. Jose Rizal's writings and books were his way of supporting his peaceful reform where his 1896 execution helped end the 333 years Spanish rule in the Philippines.   
+Even today, we have the undying fighting spirit within us.   
+We may not be at war, but we excel at any competitive sports, tournaments, and contests.   
 We are great in boxing, in pageantry, and many others. 
 
 We may be small and tiny. We may be poor and a 3rd world country. We may lack the fighter jets and the submarines. 
