@@ -45,11 +45,11 @@ We also witnessed a Chinese lady throwing Taho (pudding-like soy milk) in the fa
 These Chinese are everywhere. From Luzon, Visayas, and Mindanao.   
 They are not only occupying our waters, they are slowly **"Creeping in"** our land.
 
-Should we be worried or bothered? 
-Bothered yes... 
-but worried???... I don't think so. 
-We may not have the mechanism to go to war. But there are other means and ways to go about it. 
-We can rely on the 1951 Mutual Defense Treaty between the Philippines and the United States in case an all-out invasion breaks out.  This is a case of simply choosing between lesser evils. 
+Should we be worried or bothered?   
+Bothered yes...   
+but worried???... I don't think so.   
+We may not have the mechanism to go to war. But there are other means and ways to go about it.   
+We can rely on the 1951 Mutual Defense Treaty between the Philippines and the United States in case an all-out invasion breaks out.  This is a case of simply choosing between lesser evils.   
 There is also Japan, Russia, and our neighboring ASEAN nations who have beefed up their respective arming programs. We have friends and allies who can help.
 
 Our History also speaks for itself. 
