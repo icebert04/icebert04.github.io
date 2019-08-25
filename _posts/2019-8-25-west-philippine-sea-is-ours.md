@@ -19,10 +19,10 @@ He just goes to the dock in the morning not really to catch fish for consumption
 Our conversation started with types of fishes, the history of the province of Balayan, and... 
 the West Philippine Sea.
 
-Mang Lando said that he doesn't like what is going on in the Western part of our country. He said that "Something Fishy" is going on.
-He mentioned that the developing stories that are going on in the West Philippine Sea are "Disturbing". 
-He told me that the "Bullying Tactics" must stop.
-That bully is no other than China. 
+Mang Lando said that he doesn't like what is going on in the Western part of our country. He said that **"Something Fishy"** is going on.   
+He mentioned that the developing stories that are going on in the West Philippine Sea are **"Disturbing"**.   
+He told me that the **"Bullying Tactics"** must stop.   
+That bully is no other than China.   
 China has been accused of deploying warships, arming island outposts and ramming fishing vessels in our resource-rich sea.
 
 China justifies its unlawful actions by invoking a historic claim of the waters west of the Philippines. It encompasses practically the entire West Philippine sea including the Spratlys, Scarborough Shoal, and the Paracel Islands.
