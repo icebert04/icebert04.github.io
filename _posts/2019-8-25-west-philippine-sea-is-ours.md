@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Bullying](/images/Philippine Sea.jpg)
