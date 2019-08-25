@@ -8,7 +8,7 @@ published: true
 A few days ago, me, my son, and my Kumpare (meaning co-parenthood) went fishing in Balayan Bay.   
 It was a wonderful experience. Going there at dawn with our fishing rods at hand. And seeing the sunrise while waiting for our first catch of the day.   
 There were about 12 people there (we included).   
-Whenever someone in the group catches a fish, they immediately put it in a pail. 
+Whenever someone in the group catches a fish, they immediately put it in a pail.   
 All of that harvest will be donated to someone who is just new in the group (namely me and my son).   
 And as we pile up those fishes in the pail, the locals kept the chitchat coming.   
 All of us in the dock area exchanged stories, laughter, and even some fishing tips & advises.
