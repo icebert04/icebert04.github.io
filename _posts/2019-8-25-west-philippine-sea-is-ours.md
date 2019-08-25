@@ -25,7 +25,8 @@ He told me that the **"Bullying Tactics"** must stop.
 That bully is no other than China.   
 China has been accused of deploying warships, arming island outposts and ramming fishing vessels in our resource-rich sea.
 
-China justifies its unlawful actions by invoking a historic claim of the waters west of the Philippines. It encompasses practically the entire West Philippine sea including the Spratlys, Scarborough Shoal, and the Paracel Islands.
+China justifies its unlawful actions by invoking a historic claim of the waters west of the Philippines.   
+It encompasses practically the entire West Philippine sea including the Spratlys, Scarborough Shoal, and the Paracel Islands.   
 For us Filipinos, it is clear that it is a preposterous claim by any account.
 
 Not satisfied with what it has already taken, China continues to annex more and more islets in the disputed area using what it calls the “Cabbage Strategy.” 
