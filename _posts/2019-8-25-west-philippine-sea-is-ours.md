@@ -70,11 +70,11 @@ The boatmen who are afraid to come out of our coastline...
 And to all of my fellow Filipinos out there...   
 Please take note... 
 
-The West Philippine Sea is ours! 
+The West Philippine Sea is ours!   
 The billion barrels of oil, the trillion feet of natural gas, and all the rich fishing resources. 
 
-So go ahead and fish. It doesn't matter what type of fish(s) that you catch. It belongs to you and each and every Filipino.
-Ang kay Pedro ay kay Pedro. Ang kay Juan ay kay Juan. 
-Ang Yaman Dagat ng Pilipinas ay para lang sa ating mga Pilipino.  
+So go ahead and fish. It doesn't matter what type of fish(s) that you catch. It belongs to you and each and every Filipino.   
+Ang kay Pedro ay kay Pedro. Ang kay Juan ay kay Juan.   
+Ang Yaman Dagat ng Pilipinas ay para lang sa ating mga Pilipino.   
 Wala nang iba ang puwedeng mag may-ari nito!  
 
