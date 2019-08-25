@@ -33,9 +33,9 @@ Not satisfied with what it has already taken, China continues to annex more and 
 The strategy involves surrounding islands with as many ships as possible to seal it off from food, water, and other supplies.   
 Sooner or later, inhabitants will abandon the island leaving it free for China to take over.
 
-It is totally absurd! 
-Not only do we lose our rights to the resources of the West Philippine Sea, but we also lose our right to free navigation within our own waters. 
-Worse, we bear the risk of increased territory grabs by China, even in our mainland. 
+It is totally absurd!   
+Not only do we lose our rights to the resources of the West Philippine Sea, but we also lose our right to free navigation within our own waters.   
+Worse, we bear the risk of increased territory grabs by China, even in our mainland.   
 In fact, a Chinese newspaper recently published a story saying that parts of Palawan, while inhabited by Filipinos, are inevitable targets for Chinese invasion.
 
 We've been hearing unfortunate stories of some Chinese nationals who gives no respect to our country... 
