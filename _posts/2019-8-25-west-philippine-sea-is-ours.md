@@ -29,8 +29,9 @@ China justifies its unlawful actions by invoking a historic claim of the waters 
 It encompasses practically the entire West Philippine sea including the Spratlys, Scarborough Shoal, and the Paracel Islands.   
 For us Filipinos, it is clear that it is a preposterous claim by any account.
 
-Not satisfied with what it has already taken, China continues to annex more and more islets in the disputed area using what it calls the “Cabbage Strategy.” 
-The strategy involves surrounding islands with as many ships as possible to seal it off from food, water, and other supplies. Sooner or later, inhabitants will abandon the island leaving it free for China to take over.
+Not satisfied with what it has already taken, China continues to annex more and more islets in the disputed area using what it calls the **“Cabbage Strategy”.**   
+The strategy involves surrounding islands with as many ships as possible to seal it off from food, water, and other supplies.   
+Sooner or later, inhabitants will abandon the island leaving it free for China to take over.
 
 It is totally absurd! 
 Not only do we lose our rights to the resources of the West Philippine Sea, but we also lose our right to free navigation within our own waters. 
