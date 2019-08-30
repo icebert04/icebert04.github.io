@@ -83,11 +83,11 @@ Don't take them for granted. Treat them fair, nice, and without bias.
 You will be meeting more Friend Girls as you progressed through the years to come.   
 Take care of all your Friend-Girls. They are your genuine friends for LIFE!
 
-Sometime in the future... 
-When your heart beats faster than it normally used to. 
-When you are always singing that one song for no reason at all. 
-When you feel that the infatuation has developed into true love. 
-When you want to change the status of your one Friend-Girl to your "Girl-Friend"... 
+Sometime in the future...   
+When your heart beats faster than it normally used to.   
+When you are always singing that one song for no reason at all.   
+When you feel that the infatuation has developed into true love.   
+When you want to change the status of your one Friend-Girl to your **"Girl-Friend"**... 
 
 Then go ask her parents if we can invite her to our house for dinner. Your Mom will be so thrilled where she will prepare a feast for her. 
 And I will roll down the red carpet upon her arrival... excitingly ecstatic to meet her. 
