@@ -25,7 +25,7 @@ He takes care of them and sees to it that they are protected from harm.
 Even if these girls are the prettiest and the hottest, he puts his personal interest and desire at bay.   
 The only thing that my son is after is to be their friend.
 
-If I am a girl, I would go to a guy like Luigi in a heartbeat. 
+If I am a girl, I would go to a guy like Luigi in a heartbeat.   
 I would go to him because his intention is pure and clean.
 
 At the early age of 9, my son befriended these magnificent Gazelles.
