@@ -28,13 +28,13 @@ The only thing that my son is after is to be their friend.
 If I am a girl, I would go to a guy like Luigi in a heartbeat.   
 I would go to him because his intention is pure and clean.
 
-At the early age of 9, my son befriended these magnificent Gazelles.
-One of them is Casey. She was a member of the cheerleading squad in St. Scholastica. She became Luigi childhood playmate. 
-They were together almost every day. 
-And after all of that tiring endless outdoor play, Luigi will accompany Casey back to her parent's house, which coincidentally won their trusts. 
-Casey and her family have now migrated to Australia. 
-We still do keep our communication lines open. She may be far away but we still keep her in our hearts.
-In due time, if Casey can't go home to the Philippines... Luigi can fly to Adelaide to pay them a visit. 
+At the early age of 9, my son befriended these magnificent Gazelles.   
+One of them is Casey. She was a member of the cheerleading squad in St. Scholastica. She became Luigi childhood playmate.   
+They were together almost every day.   
+And after all of that tiring endless outdoor play, Luigi will accompany Casey back to her parent's house, which coincidentally won their trusts.   
+Casey and her family have now migrated to Australia.   
+We still do keep our communication lines open. She may be far away but we still keep her in our hearts.   
+In due time, if Casey can't go home to the Philippines... Luigi can fly to Adelaide to pay them a visit.   
 I'm sure her parents won't mind.
 
 Another girl that we became close with is Czarina. 
