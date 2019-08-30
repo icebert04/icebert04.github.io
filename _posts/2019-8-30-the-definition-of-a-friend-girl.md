@@ -60,17 +60,18 @@ Girls like Luigi because he is harmless, decent and a real friend.
 Make no mistake, Luigi is still a Hyena but is formed like a Stuff Toy.   
 We all know that girls have a thing with Stuff Toys.
 
-This is a shut-out to all of the guys out there. 
-Why can't we be like Luigi? Let's stop from being hyenas for a while. Let's delay our hunger for meat even for a day.
-Let's just observe these Gazelles. How they talk. How they move. How they react. And how they lived.
-Let's just listen and ask them what they want. 
-And let's have some Friend-Girl in our life for a change. 
-A friend-girl relationship where you support each other through adversity.  Practice forgiveness. 
+This is a shut-out to all of the guys out there.   
+Why can't we be like Luigi? Let's stop from being hyenas for a while. Let's delay our hunger for meat even for a day.   
+Let's just observe these Gazelles. How they talk. How they move. How they react. And how they lived.   
+Let's just listen and ask them what they want.   
+And let's have some Friend-Girl in our life for a change.   
+A friend-girl relationship where you support each other through adversity.  Practice forgiveness.   
 Helping each other to be a better person. Respecting each other's point of view. 
-Unconditionally trusting each other. And protecting each other at all cost. 
-Isn't it nice that we have a real friend that is not a dude (Bros before Hoes)!
-Time to change our diet, my friends. 
-Gazelles can bond with Hyenas if we know how to tame ourselves. 
+Unconditionally trusting each other.   
+And protecting each other at all cost.   
+Isn't it nice that we have a real friend that is not a dude (Bros before Hoes)!   
+Time to change our diet, my friends.   
+Gazelles can bond with Hyenas if we know how to tame ourselves.   
 Let's do that, shall we!
 
 And to Luigi, I'm happy that even though you are only 15, 
