@@ -3,10 +3,11 @@ published: true
 ---
 ![Friend Girl](/images/Raya Garden 43.jpg)
 
-What is the meaning of a Friend Girl? Does that word exist? 
+What is the meaning of a Friend Girl? Does that word exist?   
 And if there is such a word, can that be effective in a Girl-Boy relationship?
 
-Me alone was not aware that there is such a term. I thought girls are built to be your love interest, bear your children, and were designed where boys really want... SEX!
+Me alone was not aware that there is such a term.   
+I thought girls are built to be your love interest, bear your children, and were designed where boys really want... SEX!
 
 Bear with me if you please. I came from an All-Boys school where all of us students were like a pack of hungry hyenas trap in an isolated island.
 You can just imagine what our reaction would look like if we saw an incoming boat full of gazelles. 
