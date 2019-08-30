@@ -89,7 +89,8 @@ When you are always singing that one song for no reason at all.
 When you feel that the infatuation has developed into true love.   
 When you want to change the status of your one Friend-Girl to your **"Girl-Friend"**... 
 
-Then go ask her parents if we can invite her to our house for dinner. Your Mom will be so thrilled where she will prepare a feast for her. 
+Then go ask her parents if we can invite her to our house for dinner.   
+Your Mom will be so thrilled where she will prepare a feast for her.   
 And I will roll down the red carpet upon her arrival... excitingly ecstatic to meet her. 
 
 
