@@ -75,12 +75,12 @@ Gazelles can bond with Hyenas if we know how to tame ourselves.
 Let's do that, shall we!
 
 And to Luigi, I'm happy that even though you are only 15, 
-you are behaving like a rational adult where most people not only love you but they respect you. 
-Bear in mind to keep in touch with your old Friend-Girls. 
-They are part of your book that helped you develop the genuine person in you. 
-And also be active with your new Friend-Girls. 
-Don't take them for granted. Treat them fair, nice, and without bias. 
-You will be meeting more Friend Girls as you progressed through the years to come. 
+you are behaving like a rational adult where most people not only love you but they respect you.   
+Bear in mind to keep in touch with your old Friend-Girls.   
+They are part of your book that helped you develop the genuine person in you.   
+And also be active with your new Friend-Girls.   
+Don't take them for granted. Treat them fair, nice, and without bias.   
+You will be meeting more Friend Girls as you progressed through the years to come.   
 Take care of all your Friend-Girls. They are your genuine friends for LIFE!
 
 Sometime in the future... 
