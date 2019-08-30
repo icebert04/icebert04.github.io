@@ -49,8 +49,11 @@ Luigi can adjust and adapt to women who are much older than him.
 Our friends from Europe gave me feedback that they were glad to meet a fine young gentleman like Luigi.   
 Luigi also is a member of the Youth Ministry in our parish church in Merville Park. He is just new to the group but he is eager to talk to most of them.
 
-In doesn't stop from there. Recently, Luigi went to our province in Balayan Batangas to talk and chat with some of the locals there. Charming young girls like Suzanne and Kishi are now keeping tabs with Luigi.
-These girls have in some way have a good effect on my firstborn. The girls taught Luigi to speak more deeper Tagalog. They play games where nobody does in Manila (Street games). 
+In doesn't stop from there.   
+Recently, Luigi went to our province in Balayan Batangas to talk and chat with some of the locals there.   
+Charming young girls like Suzanne and Kishi are now keeping tabs with Luigi.   
+These girls have in some way have a good effect on my firstborn.   
+The girls taught Luigi to speak more deeper Tagalog. They play games where nobody does in Manila (Street games).   
 And they are showing Luigi that simplicity is the way to a happy and better life.
 
 Girls like Luigi because he is harmless, decent and a real friend. 
