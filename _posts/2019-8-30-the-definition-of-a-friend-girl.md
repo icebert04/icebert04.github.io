@@ -56,8 +56,8 @@ These girls have in some way have a good effect on my firstborn.
 The girls taught Luigi to speak more deeper Tagalog. They play games where nobody does in Manila (Street games).   
 And they are showing Luigi that simplicity is the way to a happy and better life.
 
-Girls like Luigi because he is harmless, decent and a real friend. 
-Make no mistake, Luigi is still a Hyena but is formed like a Stuff Toy.
+Girls like Luigi because he is harmless, decent and a real friend.   
+Make no mistake, Luigi is still a Hyena but is formed like a Stuff Toy.   
 We all know that girls have a thing with Stuff Toys.
 
 This is a shut-out to all of the guys out there. 
