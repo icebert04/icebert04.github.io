@@ -45,8 +45,8 @@ She is so gentle, kind, courteous which had a big outcome on my son.
 We don't see her now often because they have different Aikido dojos, and it was unfortunate to miss her debut party.   
 But we know, they will cross paths again. That is for certain!  
 
-Luigi can adjust and adapt to women who are much older than him. 
-Our friends from Europe gave me feedback that they were glad to meet a fine young gentleman like Luigi.
+Luigi can adjust and adapt to women who are much older than him.   
+Our friends from Europe gave me feedback that they were glad to meet a fine young gentleman like Luigi.   
 Luigi also is a member of the Youth Ministry in our parish church in Merville Park. He is just new to the group but he is eager to talk to most of them.
 
 In doesn't stop from there. Recently, Luigi went to our province in Balayan Batangas to talk and chat with some of the locals there. Charming young girls like Suzanne and Kishi are now keeping tabs with Luigi.
