@@ -19,10 +19,10 @@ What these Gazelles really want is to have a friend that they can count on.
 How come this word **"Friend-Girl"** doesn't exist in our time?   
 How come, even up to this day, most guys don't know the meaning of the word?
 
-My son Luigi knows the meaning of the word. 
-He practices it every day. He treats girls with respect and with no malice. 
-He takes care of them and sees to it that they are protected from harm.
-Even if these girls are the prettiest and the hottest, he puts his personal interest and desire at bay.
+My son Luigi knows the meaning of the word.   
+He practices it every day. He treats girls with respect and with no malice.   
+He takes care of them and sees to it that they are protected from harm.   
+Even if these girls are the prettiest and the hottest, he puts his personal interest and desire at bay.   
 The only thing that my son is after is to be their friend.
 
 If I am a girl, I would go to a guy like Luigi in a heartbeat. 
