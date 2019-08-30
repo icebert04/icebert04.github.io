@@ -37,12 +37,12 @@ We still do keep our communication lines open. She may be far away but we still 
 In due time, if Casey can't go home to the Philippines... Luigi can fly to Adelaide to pay them a visit.   
 I'm sure her parents won't mind.
 
-Another girl that we became close with is Czarina. 
-Luigi met her in a place where it is dominated by boys... a form of martial arts called Aikido.
-Czarina is what we call his "Guardian Angel". She is patient and understanding to Luigi. 
-In fact, Czarina is loved by many in their Aikido group. 
-She is so gentle, kind, courteous which had a big outcome on my son.
-We don't see her now often because they have different Aikido dojos, and it was unfortunate to miss her debut party.
+Another girl that we became close with is Czarina.   
+Luigi met her in a place where it is dominated by boys... a form of martial arts called Aikido.   
+Czarina is what we call his **"Guardian Angel"**. She is patient and understanding to Luigi. 
+In fact, Czarina is loved by many in their Aikido group.   
+She is so gentle, kind, courteous which had a big outcome on my son.   
+We don't see her now often because they have different Aikido dojos, and it was unfortunate to miss her debut party.   
 But we know, they will cross paths again. That is for certain!  
 
 Luigi can adjust and adapt to women who are much older than him. 
