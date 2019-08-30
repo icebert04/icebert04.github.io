@@ -14,9 +14,9 @@ You can just imagine what our reaction would look like if we saw an incoming boa
 Our boat was the Soirée, the High School Dance, and other events from All-Girls school like Poveda, St. Paul, and St. Scholastica.   
 Most of us were predators ready to pounce for an attack.
 
-Little did most of us know that these Gazelles are not afraid of us. They are just afraid of our actions. 
-What these Gazelles really want is to have a friend that they can count on. 
-How come this word "Friend-Girl" doesn't exist in our time?
+Little did most of us know that these Gazelles are not afraid of us. They are just afraid of our actions.   
+What these Gazelles really want is to have a friend that they can count on.   
+How come this word **"Friend-Girl"** doesn't exist in our time?   
 How come, even up to this day, most guys don't know the meaning of the word?
 
 My son Luigi knows the meaning of the word. 
