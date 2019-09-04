@@ -8,8 +8,8 @@ Most of the time, they rely on the people that are dear to them... their family 
 But sometimes, every person needs a diary to fix themselves.   
 Sometimes, it's only you who can fix the mess that you are in.
 
-Karen is doing exactly that. Making her own "Hashtag Diary" to put herself back on the track.  
-I met Karen way way back. Back in time when she was still staying in Valle Verde. We used to hang-out in her cousin's house in Cityland. 
+Karen is doing exactly that. Making her own **"Hashtag Diary"** to put herself back on the track.   
+I met Karen way way back. Back in time when she was still staying in Valle Verde. We used to hang-out in her cousin's house in Cityland.   
 Unfortunately, I never got the chance to get to know her that well since she and her family migrated to the United States. 
 
 Good thing there is Facebook. Through this popular social media, we were able to see each other's stories and view each other's pictures. 
