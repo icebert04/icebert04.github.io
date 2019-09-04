@@ -49,9 +49,10 @@ The more pictures and videos the better. Save them, treasure them. It will be us
 Document your journey. Make it daily if you have to.   
 This diary of yours will not only guide you but it will also save you.
 
-Karen is one of a kind. She is the only person that I know who is brave enough to post to the whole world about what she feels. 
-I admire her bravery, her passion, and her tenacity. 
-Her "Hashtag Diaries" brought her back to life. 
+Karen is one of a kind.   
+She is the only person that I know who is brave enough to post to the whole world about what she feels.   
+I admire her bravery, her passion, and her tenacity.   
+Her **"Hashtag Diaries"** brought her back to life. 
 
 Karen is telling each and every one of us to... 
 Be ourself, Be courageous and transparent. Get ourself out in the open. 
