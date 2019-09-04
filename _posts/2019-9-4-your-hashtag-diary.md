@@ -54,6 +54,6 @@ She is the only person that I know who is brave enough to post to the whole worl
 I admire her bravery, her passion, and her tenacity.   
 Her **"Hashtag Diaries"** brought her back to life. 
 
-Karen is telling each and every one of us to... 
-Be ourself, Be courageous and transparent. Get ourself out in the open. 
+Karen is telling each and every one of us to...   
+Be ourself, Be courageous and transparent. Get ourself out in the open.   
 It's the only way to protect ourselves from this very cynical world.  
