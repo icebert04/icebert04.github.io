@@ -21,8 +21,9 @@ All of us here sympathized her, consoled her, and supported her.
 All she did on Facebook was to post her anger, frustration, and sadness almost every day. We just let her be.   
 Everyone grief in their own way and we should respect that. 
 
-After several years, I notice something new to Karen's activity. She was doing something different. She started doing this "Hashtag Diaries". 
-Every day, from day 1 to day 365, she posts on Facebook her opinions, her shout-out, her advice, and whatever she feels like writing. 
+After several years, I notice something new to Karen's activity.   
+She was doing something different. She started doing this **"Hashtag Diaries"**.   
+Every day, from day 1 to day 365, she posts on Facebook her opinions, her shout-out, her advice, and whatever she feels like writing.   
 This diary of hers is her way of helping herself bounce back from the catastrophic tragedy. 
 She knows she is surrounded by a loving family and great support of dependable friends, but she knows she should help herself first. 
 
