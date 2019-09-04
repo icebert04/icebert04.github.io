@@ -38,9 +38,10 @@ She doesn't care, while I overcare so much thinking if the article that I made w
 Karen's diaries are somewhat telling me to stop overthinking and start writing my heart off. 
 To just be myself and let nature takes its course. 
 
-Her diaries can also apply to you. You don't have to post in on Facebook or any social media. 
-You can keep it private if you prefer it to be that way. In can be anything. 
-It can be about your high school crush. Your plan to torture your Father-in-law. Or a diary of having a hundred girlfriends before marrying the love of your life. 
+Her diaries can also apply to you.   
+You don't have to post in on Facebook or any social media. 
+You can keep it private if you prefer it to be that way. In can be anything.   
+It can be about your high school crush. Your plan to torture your Father-in-law. Or a diary of having a hundred girlfriends before marrying the love of your life.   
 Whatever that may be, it will surely help you. This diary of yours will guide you, motivate you, and keep you on track on your progress.
 
 You can take pictures and videos while you're at it. You can upload your videos on YouTube and save all your pictures on Dropbox. 
