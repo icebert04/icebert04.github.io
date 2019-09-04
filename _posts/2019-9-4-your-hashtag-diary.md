@@ -15,9 +15,10 @@ Unfortunately, I never got the chance to get to know her that well since she and
 Good thing there is Facebook. Through this popular social media, we were able to see each other's stories and view each other's pictures.   
 I'm glad to see her happily married and having the best time of her life. 
 
-Then disaster struck. Karen's husband passed away, leaving her and her family devastated. 
-All of us here sympathized her, consoled her, and supported her.  
-All she did on Facebook was to post her anger, frustration, and sadness almost every day. We just let her be.
+Then disaster struck.   
+Karen's husband passed away, leaving her and her family devastated.   
+All of us here sympathized her, consoled her, and supported her.   
+All she did on Facebook was to post her anger, frustration, and sadness almost every day. We just let her be.   
 Everyone grief in their own way and we should respect that. 
 
 After several years, I notice something new to Karen's activity. She was doing something different. She started doing this "Hashtag Diaries". 
