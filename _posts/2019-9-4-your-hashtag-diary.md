@@ -3,8 +3,9 @@ published: true
 ---
 ![Diary](/images/Karen 17.jpg)
 
-Every person goes to some form of crisis several times in their life. Most of the time, they rely on the people that are dear to them... their family and their friends.
-But sometimes, every person needs a diary to fix themselves. 
+Every person goes to some form of crisis several times in their life.   
+Most of the time, they rely on the people that are dear to them... their family and their friends.   
+But sometimes, every person needs a diary to fix themselves.   
 Sometimes, it's only you who can fix the mess that you are in.
 
 Karen is doing exactly that. Making her own "Hashtag Diary" to put herself back on the track.  
