@@ -31,10 +31,10 @@ Every day she lashes her anguish, her loss, and anxiety into writing.
 Her diaries make her inspired to move on and go back up.   
 Little did she know that she is inspiring other people as well. Those who have encountered loss or divorce or any kind of unsurmountable problem. 
 
-Her diaries got into me too. 
-Here is a girl, who writes and doesn't give a damn on what other people think.
-Me, on the other hand, meticulously overthink so much before composing a paragraph. 
-She doesn't care, while I overcare so much thinking if the article that I made would be appreciated by my readers. 
+Her diaries got into me too.   
+Here is a girl, who writes and doesn't give a damn on what other people think.   
+Me, on the other hand, meticulously overthink so much before composing a paragraph.   
+She doesn't care, while I overcare so much thinking if the article that I made would be appreciated by my readers.   
 Karen's diaries are somewhat telling me to stop overthinking and start writing my heart off. 
 To just be myself and let nature takes its course. 
 
