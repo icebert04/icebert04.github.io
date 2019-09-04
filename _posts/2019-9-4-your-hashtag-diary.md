@@ -44,9 +44,9 @@ You can keep it private if you prefer it to be that way. In can be anything.
 It can be about your high school crush. Your plan to torture your Father-in-law. Or a diary of having a hundred girlfriends before marrying the love of your life.   
 Whatever that may be, it will surely help you. This diary of yours will guide you, motivate you, and keep you on track on your progress.
 
-You can take pictures and videos while you're at it. You can upload your videos on YouTube and save all your pictures on Dropbox. 
-The more pictures and videos the better. Save them, treasure them. It will be useful to you someday. 
-Document your journey. Make it daily if you have to. 
+You can take pictures and videos while you're at it. You can upload your videos on YouTube and save all your pictures on Dropbox.   
+The more pictures and videos the better. Save them, treasure them. It will be useful to you someday.   
+Document your journey. Make it daily if you have to.   
 This diary of yours will not only guide you but it will also save you.
 
 Karen is one of a kind. She is the only person that I know who is brave enough to post to the whole world about what she feels. 
