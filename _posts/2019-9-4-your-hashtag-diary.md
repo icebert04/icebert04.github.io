@@ -12,7 +12,7 @@ Karen is doing exactly that. Making her own **"Hashtag Diary"** to put herself b
 I met Karen way way back. Back in time when she was still staying in Valle Verde. We used to hang-out in her cousin's house in Cityland.   
 Unfortunately, I never got the chance to get to know her that well since she and her family migrated to the United States. 
 
-Good thing there is Facebook. Through this popular social media, we were able to see each other's stories and view each other's pictures. 
+Good thing there is Facebook. Through this popular social media, we were able to see each other's stories and view each other's pictures.   
 I'm glad to see her happily married and having the best time of her life. 
 
 Then disaster struck. Karen's husband passed away, leaving her and her family devastated. 
