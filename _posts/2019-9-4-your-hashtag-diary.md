@@ -27,7 +27,8 @@ Every day, from day 1 to day 365, she posts on Facebook her opinions, her shout-
 This diary of hers is her way of helping herself bounce back from the catastrophic tragedy. 
 She knows she is surrounded by a loving family and great support of dependable friends, but she knows she should help herself first. 
 
-Every day she lashes her anguish, her loss, and anxiety into writing. Her diaries make her inspired to move on and go back up. 
+Every day she lashes her anguish, her loss, and anxiety into writing.   
+Her diaries make her inspired to move on and go back up.   
 Little did she know that she is inspiring other people as well. Those who have encountered loss or divorce or any kind of unsurmountable problem. 
 
 Her diaries got into me too. 
