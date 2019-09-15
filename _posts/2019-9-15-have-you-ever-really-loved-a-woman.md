@@ -46,8 +46,9 @@ Do you want to know what happened next?
 Well, just like in the movies... they lived happily ever after.   
 They got married, produced 4 boys, which propagated to more grandchildren and greatgrandchildren. 
 
-My Grandfather's devotion to the love of his life is so overflowing that was felt by all members of the family circle. 
-Leandro's have become the ideal role model for all of us boys. Through him, we learned how to treat girls like a lady. 
+My Grandfather's devotion to the love of his life is so overflowing that was felt by all members of the family circle.   
+Leandro's have become the ideal role model for all of us boys.   
+Through him, we learned how to treat girls like a lady. 
 How to treat them right. 
 
 I have been with Leandro and Anita during my formative years. I had front row seats to their romantic book novel.
