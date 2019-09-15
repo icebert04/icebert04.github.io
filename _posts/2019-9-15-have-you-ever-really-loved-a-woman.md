@@ -29,8 +29,9 @@ It was so fast and swift and by the time Leandro found out, Anita was engaged to
 The love of his life is now gone! She is about to get married leaving him all alone.
 
 Now, most guys who are an Airforce officer in their prime could easily replace any girl. 
-After all, they are all like Tom Cruise in the movie "Top Gun". They can easily get chicks anytime.
-But Leandro is not one of them. He doesn't want any chicks. He wants his Lady. He wants the best of the best. The cream of the crop. 
+After all, they are all like Tom Cruise in the movie **"Top Gun"**. They can easily get chicks anytime.   
+But Leandro is not one of them. He doesn't want any chicks.   
+He wants his Lady. He wants the best of the best. The cream of the crop. 
 
 And so he waited and waited and waited. 
 He prayed and prayed and prayed. 
