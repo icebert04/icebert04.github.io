@@ -54,8 +54,8 @@ How to treat them right.
 I have been with Leandro and Anita during my formative years. I had front row seats to their romantic book novel.
 I was one of their avid spectators.
 
-I remember the time when me and my wife had a quarrel. When we do fight, we really shout out loud that it reached the neighbors. 
-Anita (my Lola), would quickly climb up to our room to immediately put an end to our silly misunderstanding.
+I remember the time when me and my wife had a quarrel. When we do fight, we really shout out loud that it reached the neighbors.   
+Anita (my Lola), would quickly climb up to our room to immediately put an end to our silly misunderstanding.   
 Anita even said to me this... "Francis, don't shout at your wife! Your Lolo didn't do that to me... Not even once"!
 
 I was ashamed and embarrassed. I completely forgot who I am. Where I came from. The genes that I inherited from my grandfather. 
