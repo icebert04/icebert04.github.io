@@ -78,15 +78,15 @@ We tried to please Anita. We really did.
 We were able to make her do a **"Half Smile"** to her desolate face. But that's about it.   
 We never saw the **"Complete Smile"** back when Leandro was still with her. 
 
-My Lola would always tell me this... "Francis, can you accompany me to the cemetery... I just want to see your Lolo".
+My Lola would always tell me this... "Francis, can you accompany me to the cemetery... I just want to see your Lolo".   
 I can see that Anita really miss the gentleman from Kalibo who loved her unconditionally.
 
-Yesterday was the Colonel's 100th birthday. 
-We paid tribute and honor to the man who gave a huge influence to us all.
+Yesterday was the Colonel's 100th birthday.   
+We paid tribute and honor to the man who gave a huge influence to us all.   
 My Father, my uncles, my cousins, and soon my nephews and my 2 boys will emulate and follow Leandro's lead. 
 
-I guess boys should get a point or two in Leandro's fairy tale story. 
-Don't settle for second best. Aim for the girl of your dreams. The one who will take your breathe away. 
+I guess boys should get a point or two in Leandro's fairy tale story.   
+Don't settle for second best. Aim for the girl of your dreams. The one who will take your breathe away.   
 And when you have finally found someone... that's the time that you will tell yourself that you have really—really-really ever loved a woman!
 
 
