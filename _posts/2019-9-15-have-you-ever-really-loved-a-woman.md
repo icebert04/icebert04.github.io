@@ -24,9 +24,8 @@ During those times, he met Anita. The love of his life.
 From the time that he saw her, he set to his mind that she will be his wife.   
 He sees his unborn children in her eyes. He's assured he really loves that woman. And so that's when they became sweethearts.
 
-Their careers, family, and distance from together became a stumbling block to their once fairy tale story. 
-It was so fast and swift and by the time Leandro found out, Anita was engaged to another man. 
-It wrecked him. It pillaged Leandro to the ground. 
+Their careers, family, and distance from together became a stumbling block to their once fairy tale story.   
+It was so fast and swift and by the time Leandro found out, Anita was engaged to another man. It wrecked him. It pillaged Leandro to the ground.   
 The love of his life is now gone! She is about to get married leaving him all alone.
 
 Now, most guys who are an Airforce officer in their prime could easily replace any girl. 
