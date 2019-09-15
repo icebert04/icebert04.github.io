@@ -14,10 +14,10 @@ No one really knows. My best bet is hearing their stories.
 I think that is one good way of measuring up.   
 Most of these love stories can only be found in movies, but if you look hard enough, some do happen in real life. 
 
-There this story of one ambitious young guy from Kalibo Aklan who joined the PMA (Philippine Military Academy) in hopes of getting a steady military career to help his family in the province.
-That guy was Col. Leandro R. Isberto. 
-An Airforce pilot who fought during World War 2. 
-He also was Base Commander in Nichols Air Base (Villamor Air Base). 
+There this story of one ambitious young guy from Kalibo Aklan who joined the PMA (Philippine Military Academy) in hopes of getting a steady military career to help his family in the province.   
+That guy was Col. Leandro R. Isberto.   
+An Airforce pilot who fought during World War 2.   
+He also was Base Commander in Nichols Air Base (Villamor Air Base).   
 That guy was my Lolo (Grandfather).
 
 During those times, he met Anita. The love of his life. 
