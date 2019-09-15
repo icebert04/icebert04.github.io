@@ -33,9 +33,9 @@ After all, they are all like Tom Cruise in the movie **"Top Gun"**. They can eas
 But Leandro is not one of them. He doesn't want any chicks.   
 He wants his Lady. He wants the best of the best. The cream of the crop. 
 
-And so he waited and waited and waited. 
-He prayed and prayed and prayed. 
-He hoped and hoped and hoped.
+And so he waited and waited and waited.   
+He prayed and prayed and prayed.   
+He hoped and hoped and hoped.   
 Hoping for the impossible. Hoping for a miracle.
 
 Then lightning struck. That miracle did happen. 
