@@ -73,10 +73,10 @@ Their daily chats in the garden (even if their story are repetitive).
 Even with all the wrinkles and dried skin, they are still so in love with each other.   
 They were always together.
 
-So when Leandro passed away, that is when it became difficult for Anita.
-We tried to please Anita. We really did. 
-We were able to make her do a "Half Smile" to her desolate face. But that's about it. 
-We never saw the "Complete Smile" back when Leandro was still with her. 
+So when Leandro passed away, that is when it became difficult for Anita.   
+We tried to please Anita. We really did.   
+We were able to make her do a **"Half Smile"** to her desolate face. But that's about it.   
+We never saw the **"Complete Smile"** back when Leandro was still with her. 
 
 My Lola would always tell me this... "Francis, can you accompany me to the cemetery... I just want to see your Lolo".
 I can see that Anita really miss the gentleman from Kalibo who loved her unconditionally.
