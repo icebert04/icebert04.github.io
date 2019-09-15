@@ -10,8 +10,8 @@ Or the number of children they have produced?
 How can we tell? How do we gauge it?   
 Do we have a standard barometer? Is there a way to grade it?
 
-No one really knows. My best bet is hearing their stories. 
-I think that is one good way of measuring up. 
+No one really knows. My best bet is hearing their stories.   
+I think that is one good way of measuring up.   
 Most of these love stories can only be found in movies, but if you look hard enough, some do happen in real life. 
 
 There this story of one ambitious young guy from Kalibo Aklan who joined the PMA (Philippine Military Academy) in hopes of getting a steady military career to help his family in the province.
