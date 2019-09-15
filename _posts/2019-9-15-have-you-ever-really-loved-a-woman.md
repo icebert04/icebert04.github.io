@@ -42,8 +42,8 @@ Then lightning struck. That miracle did happen.
 Leandro heard the tragic news that the fiance of his precious Anita died (May God rest on his soul).   
 Upon learning the news. Leandro quickly got up on his feet and ran towards the love of his life. 
 
-Do you want to know what happened next? 
-Well, just like in the movies... they lived happily ever after. 
+Do you want to know what happened next?   
+Well, just like in the movies... they lived happily ever after.   
 They got married, produced 4 boys, which propagated to more grandchildren and greatgrandchildren. 
 
 My Grandfather's devotion to the love of his life is so overflowing that was felt by all members of the family circle. 
