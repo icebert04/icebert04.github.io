@@ -68,9 +68,9 @@ How they laugh together. How my Lolo escorted my Lola to their car before headin
 How Leandro checks on his wife at night if she is fine before he goes to sleep.   
 It was always her first before him. 
 
-Even in their last few years on this earth... I still observed them scrupulously. 
-Their daily chats in the garden (even if their story are repetitive). 
-Even with all the wrinkles and dried skin, they are still so in love with each other. 
+Even in their last few years on this earth... I still observed them scrupulously.   
+Their daily chats in the garden (even if their story are repetitive).   
+Even with all the wrinkles and dried skin, they are still so in love with each other.   
 They were always together.
 
 So when Leandro passed away, that is when it became difficult for Anita.
