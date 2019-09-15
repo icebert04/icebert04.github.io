@@ -3,11 +3,11 @@ published: true
 ---
 ![Love](/images/Leandro 9.jpg)
 
-How can you tell if a man really loves a woman? 
-Is it based on the number of years in their relationship? 
-Or the number of travels and adventures that they have done together? 
-Or the number of children they have produced? 
-How can we tell? How do we gauge it? 
+How can you tell if a man really loves a woman?   
+Is it based on the number of years in their relationship?   
+Or the number of travels and adventures that they have done together?   
+Or the number of children they have produced?   
+How can we tell? How do we gauge it?   
 Do we have a standard barometer? Is there a way to grade it?
 
 No one really knows. My best bet is hearing their stories. 
