@@ -62,9 +62,10 @@ I was ashamed and embarrassed. I completely forgot who I am. Where I came from.
 The genes that I inherited from my grandfather.   
 We should all be good branches that bear good fruits because we all come from one good source... one tremendous root.
 
-My Lolo did really loved my Lola. I witnessed some of their fairy tale love stories. 
-How they laugh together. How my Lolo escorted my Lola to their car before heading to hear mass. 
-How Leandro checks on his wife at night if she is fine before he goes to sleep.
+My Lolo did really loved my Lola.   
+I witnessed some of their fairy tale love stories.   
+How they laugh together. How my Lolo escorted my Lola to their car before heading to hear mass.   
+How Leandro checks on his wife at night if she is fine before he goes to sleep.   
 It was always her first before him. 
 
 Even in their last few years on this earth... I still observed them scrupulously. 
