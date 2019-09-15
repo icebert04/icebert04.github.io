@@ -58,7 +58,8 @@ I remember the time when me and my wife had a quarrel. When we do fight, we real
 Anita (my Lola), would quickly climb up to our room to immediately put an end to our silly misunderstanding.   
 Anita even said to me this... "Francis, don't shout at your wife! Your Lolo didn't do that to me... Not even once"!
 
-I was ashamed and embarrassed. I completely forgot who I am. Where I came from. The genes that I inherited from my grandfather. 
+I was ashamed and embarrassed. I completely forgot who I am. Where I came from.   
+The genes that I inherited from my grandfather.   
 We should all be good branches that bear good fruits because we all come from one good source... one tremendous root.
 
 My Lolo did really loved my Lola. I witnessed some of their fairy tale love stories. 
