@@ -38,8 +38,8 @@ He prayed and prayed and prayed.
 He hoped and hoped and hoped.   
 Hoping for the impossible. Hoping for a miracle.
 
-Then lightning struck. That miracle did happen. 
-Leandro heard the tragic news that the fiance of his precious Anita died (May God rest on his soul). 
+Then lightning struck. That miracle did happen.   
+Leandro heard the tragic news that the fiance of his precious Anita died (May God rest on his soul).   
 Upon learning the news. Leandro quickly got up on his feet and ran towards the love of his life. 
 
 Do you want to know what happened next? 
