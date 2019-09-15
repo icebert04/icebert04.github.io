@@ -20,8 +20,8 @@ An Airforce pilot who fought during World War 2.
 He also was Base Commander in Nichols Air Base (Villamor Air Base).   
 That guy was my Lolo (Grandfather).
 
-During those times, he met Anita. The love of his life. 
-From the time that he saw her, he set to his mind that she will be his wife. 
+During those times, he met Anita. The love of his life.   
+From the time that he saw her, he set to his mind that she will be his wife.   
 He sees his unborn children in her eyes. He's assured he really loves that woman. And so that's when they became sweethearts.
 
 Their careers, family, and distance from together became a stumbling block to their once fairy tale story. 
