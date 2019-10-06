@@ -60,8 +60,8 @@ It could be the other way around. It could be too much of you and you forget abo
 Balance my friends. That is the key.   
 Tone yourself to be properly balanced in all departments. 
 
-Ikaw ba o sila?
-Bakit hindi ba puwedeng pareho? 
+Ikaw ba o sila?   
+Bakit hindi ba puwedeng pareho?   
 Minsan ikaw, Minsan sila... yan ang dapat na tamang sagot.
 
 You got to keep your wheels turning. 
