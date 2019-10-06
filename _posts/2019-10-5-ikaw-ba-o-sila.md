@@ -19,9 +19,9 @@ But when I started to gain following, I became more cautious of my content. I ha
 My writing has now shifted from me to them.   
 It's not as simple as it used to be. It became more complicated. And at times it is not fun anymore. 
 
-My mini Success does come with a price. A consequence that I have to bear in my everyday life. 
-Eventually, I get the attention of business owners that became my client. I monetized my skills from the content that I am making for them. 
-I wow my clients and I get compensated by my efforts. 
+My mini Success does come with a price. A consequence that I have to bear in my everyday life.   
+Eventually, I get the attention of business owners that became my client. I monetized my skills from the content that I am making for them.   
+I wow my clients and I get compensated by my efforts.   
 Suddenly, I realized that I am now on the business side.
 
 Don't get me wrong, I am very much flattered and honored with this little achievement of mine. 
