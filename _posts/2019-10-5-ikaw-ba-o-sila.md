@@ -11,12 +11,12 @@ To find the absolute definition of the real you.
 In the past few weeks, I took a break and took some time off to evaluate my purpose in life. I am not in some kind of a downturn, but I felt like that was burned out.   
 Burned out on overthinking and trying to amuse people.
 
-In the past, I only wrote about myself. It was just me and my writing.
-Everything that I wrote in Friendillion is like a personal journey of mine. 
-The people that I met along the way. And the mini-milestone that I have achieved through the month that passes. 
-It was my special diary to keep tabs of my life.  
+In the past, I only wrote about myself. It was just me and my writing.   
+Everything that I wrote in Friendillion is like a personal journey of mine.   
+The people that I met along the way. And the mini-milestone that I have achieved through the month that passes.   
+It was my special diary to keep tabs of my life.   
 But when I started to gain following, I became more cautious of my content. I have to exert more effort and time in accordance with my market niche. It has to be of their interest.
-My writing has now shifted from me to them.
+My writing has now shifted from me to them.   
 It's not as simple as it used to be. It became more complicated. And at times it is not fun anymore. 
 
 My mini Success does come with a price. A consequence that I have to bear in my everyday life. 
