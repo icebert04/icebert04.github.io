@@ -24,9 +24,9 @@ Eventually, I get the attention of business owners that became my client. I mone
 I wow my clients and I get compensated by my efforts.   
 Suddenly, I realized that I am now on the business side.
 
-Don't get me wrong, I am very much flattered and honored with this little achievement of mine. 
-It makes me feel that I am doing something good. It feels good to be valued. 
-Filling in their need and making them stand out above the rest.
+Don't get me wrong, I am very much flattered and honored with this little achievement of mine.   
+It makes me feel that I am doing something good. It feels good to be valued.   
+Filling in their need and making them stand out above the rest.   
 It feels good to be wanted. And it is overwhelming to know that you have been a part of their progress. 
 
 I may have gained following and monetize my content creation, but I felt that I lost something... I somehow lost myself.
