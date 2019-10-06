@@ -40,7 +40,8 @@ I forgot about myself. Who I really was. I need to find myself again.
 To bring out that old flame.   
 So I step back for a while and took a breather. 
 
-And indeed, it was exactly what I badly needed. Unconsciously I've have been living an unbalanced life. I got to realign myself to get back in the saddle again. 
+And indeed, it was exactly what I badly needed. Unconsciously I've have been living an unbalanced life.   
+I got to realign myself to get back in the saddle again. 
 
 That mini-break of mine really did good to me. Now I'm back and totally balanced and ready to get in the road again. 
 
