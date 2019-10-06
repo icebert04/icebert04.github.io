@@ -64,8 +64,8 @@ Ikaw ba o sila?
 Bakit hindi ba puwedeng pareho?   
 Minsan ikaw, Minsan sila... yan ang dapat na tamang sagot.
 
-You got to keep your wheels turning. 
-Like in a car, you won't be moving when you got a busted wheel. 
+You got to keep your wheels turning.   
+Like in a car, you won't be moving when you got a busted wheel.   
 Get your wheels aligned so you can get back on the road. 
 
 
