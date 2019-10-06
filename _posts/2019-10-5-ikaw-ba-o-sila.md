@@ -8,7 +8,7 @@ Every now and then, the majority goes to their rough patch.
 A slump in their career, personal life, health, and anything that can affect any individual. And when you are in that **"Lowtide season"**, it is appropriate that you should take a break and rethink yourself.   
 To find the absolute definition of the real you. 
 
-In the past few weeks, I took a break and took some time off to evaluate my purpose in life. I am not in some kind of a downturn, but I felt like that was burned out. 
+In the past few weeks, I took a break and took some time off to evaluate my purpose in life. I am not in some kind of a downturn, but I felt like that was burned out.   
 Burned out on overthinking and trying to amuse people.
 
 In the past, I only wrote about myself. It was just me and my writing.
