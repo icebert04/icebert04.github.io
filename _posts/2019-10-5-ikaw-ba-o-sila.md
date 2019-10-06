@@ -31,8 +31,9 @@ It feels good to be wanted. And it is overwhelming to know that you have been a 
 
 I may have gained following and monetize my content creation, but I felt that I lost something... I somehow lost myself.
 
-I miss the old days when I just wrote about what I felt or what I wanted to bring out in the open. 
-It's more of them now rather than me. I felt that the fire inside of me was slowly fading out. Why is it so hard to dig up inspiration when before it came out so naturally?  
+I miss the old days when I just wrote about what I felt or what I wanted to bring out in the open.   
+It's more of them now rather than me. I felt that the fire inside of me was slowly fading out.   
+Why is it so hard to dig up inspiration when before it came out so naturally?  
 
 That "See-saw" that I am in was not balanced. 
 I forgot about myself. Who I really was. I need to find myself again. 
