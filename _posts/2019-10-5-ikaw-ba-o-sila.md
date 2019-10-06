@@ -57,7 +57,7 @@ A mini reward could help.
 Too much focus on providing for your family when your health gets affected.  
 It could be the other way around. It could be too much of you and you forget about your employees and your childhood friends. 
 
-Balance my friends. That is the key. 
+Balance my friends. That is the key.   
 Tone yourself to be properly balanced in all departments. 
 
 Ikaw ba o sila?
