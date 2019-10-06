@@ -35,9 +35,9 @@ I miss the old days when I just wrote about what I felt or what I wanted to brin
 It's more of them now rather than me. I felt that the fire inside of me was slowly fading out.   
 Why is it so hard to dig up inspiration when before it came out so naturally?  
 
-That "See-saw" that I am in was not balanced. 
+That **"See-saw"** that I am in was not balanced.   
 I forgot about myself. Who I really was. I need to find myself again. 
-To bring out that old flame. 
+To bring out that old flame.   
 So I step back for a while and took a breather. 
 
 And indeed, it was exactly what I badly needed. Unconsciously I've have been living an unbalanced life. I got to realign myself to get back in the saddle again. 
