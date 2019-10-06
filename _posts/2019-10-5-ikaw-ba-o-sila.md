@@ -15,7 +15,8 @@ In the past, I only wrote about myself. It was just me and my writing.
 Everything that I wrote in Friendillion is like a personal journey of mine.   
 The people that I met along the way. And the mini-milestone that I have achieved through the month that passes.   
 It was my special diary to keep tabs of my life.   
-But when I started to gain following, I became more cautious of my content. I have to exert more effort and time in accordance with my market niche. It has to be of their interest.
+But when I started to gain following, I became more cautious of my content.   
+I have to exert more effort and time in accordance with my market niche. It has to be of their interest.
 My writing has now shifted from me to them.   
 It's not as simple as it used to be. It became more complicated. And at times it is not fun anymore. 
 
