@@ -50,7 +50,7 @@ You might think that you are doing okay, but could be blindsided by your imbalan
 It is not just taking a vacation or a breather. It is about you.   
 You need to assess yourself every now and then if you are not only happy and content, but also being aware if you are living a well-balanced life.  
 
-You might be to focus on delighting your boss or satisfying your customers. 
+You might be to focus on delighting your boss or satisfying your customers.   
 Don't forget about yourself too. Learn to love yourself and pat yourself on the back. 
 A mini reward could help.
 
