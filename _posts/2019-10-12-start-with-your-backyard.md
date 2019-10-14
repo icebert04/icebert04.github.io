@@ -55,9 +55,9 @@ It doesn't have to be Quail farming. It can be Dimsum (Siopao & Siomai) joint in
 Or if you love gardening, you can raise orchids or other plant ornamentals that you think will have your interest as well as to the market near you.   
 In summary, leave no part of the house idle just to keep the positivity and good luck charm into your home.
 
-Kennet and Jopay are having the best time of their lives. They go to the beach (or baywalk) on weekends. They also have family dinner night out on weekdays. 
+Kennet and Jopay are having the best time of their lives. They go to the beach (or baywalk) on weekends. They also have family dinner night out on weekdays.   
 The couple has obviously had other sources of income but the one that really catches their attention are these small critters that lay eggs every single day. 
-The sounds that they hear from their Quails are strikingly bliss.
-Their eggs have so many health benefits that improve metabolism, reduce blood pressure, improve allergy symptoms, and prevent chronic diseases.
-It is the ideal backyard business for any family. And when you have these amazing birds at your backyard, you have to really praise them and say thanks by saying out loud...
+The sounds that they hear from their Quails are strikingly bliss.   
+Their eggs have so many health benefits that improve metabolism, reduce blood pressure, improve allergy symptoms, and prevent chronic diseases.   
+It is the ideal backyard business for any family. And when you have these amazing birds at your backyard, you have to really praise them and say thanks by saying out loud...   
 "Hail to the Quail"!
