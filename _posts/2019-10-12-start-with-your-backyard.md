@@ -8,7 +8,7 @@ published: true
 Most of the backyard within everyone's home has its purposes. Their backyard is commonly known as their garden or a place to hang out and unwind. This is also where they held their parties with their guests. 
 
 But there is some backyard that is isolated, abandoned, and deserted.   
-Their backyard has turned into a junk pile of their unwanted things.
+Their backyard has turned into a junk pile of their unwanted things.   
 And it's not only their backyard... there are also neglected empty garage, vacated rooms, and living rooms.
 
 It is not advisable if you have an idle place in your home. 
