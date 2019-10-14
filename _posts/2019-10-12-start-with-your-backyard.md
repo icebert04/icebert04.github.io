@@ -50,9 +50,9 @@ At present, the couple had their Quail backyard business transferred to the **"B
 These Quails will also be needing more better ventilation for them to lay their eggs efficiently.   
 I don't know what the couple business projections are, but the way I see it, it looks like they are going aggressive.
 
-So for those, who have an idle backyard or an empty garage... try to do what these couples did with theirs.
-It doesn't have to be Quail farming. It can be Dimsum (Siopao & Siomai) joint in your empty garage (which I did a couple of years back).
-Or if you love gardening, you can raise orchids or other plant ornamentals that you think will have your interest as well as to the market near you.
+So for those, who have an idle backyard or an empty garage... try to do what these couples did with theirs.   
+It doesn't have to be Quail farming. It can be Dimsum (Siopao & Siomai) joint in your empty garage (which I did a couple of years back).   
+Or if you love gardening, you can raise orchids or other plant ornamentals that you think will have your interest as well as to the market near you.   
 In summary, leave no part of the house idle just to keep the positivity and good luck charm into your home.
 
 Kennet and Jopay are having the best time of their lives. They go to the beach (or baywalk) on weekends. They also have family dinner night out on weekdays. 
