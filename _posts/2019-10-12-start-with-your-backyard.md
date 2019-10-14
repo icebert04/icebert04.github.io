@@ -13,7 +13,8 @@ And it's not only their backyard... there are also neglected empty garage, vacat
 
 It is not advisable if you have an idle place in your home. 
 It becomes a negative semblance that can have a gloomy effect on you and your family.
-That is why it is recommended that you don't leave any stone unturned. In that sense, you should not have any section in your home empty. Every station must serve its objective. 
+That is why it is recommended that you don't leave any stone unturned.   
+In that sense, you should not have any section in your home empty. Every station must serve its objective. 
 
 I have friends who are exactly doing that. He converted his once empty backyard into a hobby and business rolled into one. 
 The couple stared first with their hobby of taking care of Lovebirds. They have this enclosure for these curious, energetic and charming birds who originated from Africa.
