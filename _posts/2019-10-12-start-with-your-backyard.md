@@ -3,7 +3,7 @@ published: true
 ---
 ![Quail](/images/Pugo.jpg)
 
-"Every business started small, and most of them came from their own backyard"
+**"Every business started small, and most of them came from their own backyard"**
 
 Most of the backyard within everyone's home has its purposes. Their backyard is commonly known as their garden or a place to hang out and unwind. This is also where they held their parties with their guests. 
 
