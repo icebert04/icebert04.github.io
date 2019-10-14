@@ -16,8 +16,8 @@ It becomes a negative semblance that can have a gloomy effect on you and your fa
 That is why it is recommended that you don't leave any stone unturned.   
 In that sense, you should not have any section in your home empty. Every station must serve its objective. 
 
-I have friends who are exactly doing that. He converted his once empty backyard into a hobby and business rolled into one. 
-The couple stared first with their hobby of taking care of Lovebirds. They have this enclosure for these curious, energetic and charming birds who originated from Africa.
+I have friends who are exactly doing that. He converted his once empty backyard into a hobby and business rolled into one.   
+The couple stared first with their hobby of taking care of Lovebirds. They have this enclosure for these curious, energetic and charming birds who originated from Africa.   
 It is not only their therapeutic routine, but they also make some money from the sales of the birds.
 
 Just recently, they added another business and hobby at the same backyard that they're occupied at. 
