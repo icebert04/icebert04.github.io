@@ -30,9 +30,9 @@ Quail raising in our country is promising.
 This venture can be started with a much lower capital investment compared to chicken and ducks. It also offers quick financial cycles that lead to quicker returns.   
 According to the estimates, and assuming that there is no mortality, a quail farmer can augment his income with an additional Php 4,800 for every 300 quails that he raises.
 
-My friends Kennet and Jopay has thousand of these laying birds in their backyard. 
+My friends Kennet and Jopay has thousand of these laying birds in their backyard.   
 At first, the couple was eating, consuming, and adding these quail eggs to their daily menu. 
-Then later, they pass the word out to their neighbors, friends, and relatives.
+Then later, they pass the word out to their neighbors, friends, and relatives.   
 Now, they don't just have eggs on the table but they also have extra money on their bank accounts.
 
 Being intrigued by what the couple was doing, I took the time to pay them a visit. 
