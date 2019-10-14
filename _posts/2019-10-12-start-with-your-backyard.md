@@ -21,11 +21,13 @@ The couple stared first with their hobby of taking care of Lovebirds. They have 
 It is not only their therapeutic routine, but they also make some money from the sales of the birds.
 
 Just recently, they added another business and hobby at the same backyard that they're occupied at. 
-They integrated another set of birds at that same location. This time, the intention is to make more profit. 
+They integrated another set of birds at that same location.   
+This time, the intention is to make more profit. 
 Their next set of birds is the quirky alternative poultry for backyard farming...  I'm mentioning no other than the Quail birds. 
 
 We probably know Quail for their Eggs (Pugo). But they can also be served for meat purposes. 
-Quail raising in our country is promising. This venture can be started with a much lower capital investment compared to chicken and ducks. It also offers quick financial cycles that lead to quicker returns. 
+Quail raising in our country is promising.   
+This venture can be started with a much lower capital investment compared to chicken and ducks. It also offers quick financial cycles that lead to quicker returns.   
 According to the estimates, and assuming that there is no mortality, a quail farmer can augment his income with an additional Php 4,800 for every 300 quails that he raises.
 
 My friends Kennet and Jopay has thousand of these laying birds in their backyard. 
