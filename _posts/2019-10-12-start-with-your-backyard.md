@@ -46,8 +46,8 @@ You have to believe me, the eggs were so many.
 It is like unlimited **"Kwek-Kwek"** until you drop. 
 I had too many of those eggs up to the point where I had to skip dinner. 
 
-At present, the couple had their Quail backyard business transferred to the "Bukid" (outskirts) for further expansion. 
-These Quails will also be needing more better ventilation for them to lay their eggs efficiently. 
+At present, the couple had their Quail backyard business transferred to the **"Bukid"** (outskirts) for further expansion. 
+These Quails will also be needing more better ventilation for them to lay their eggs efficiently.   
 I don't know what the couple business projections are, but the way I see it, it looks like they are going aggressive.
 
 So for those, who have an idle backyard or an empty garage... try to do what these couples did with theirs.
