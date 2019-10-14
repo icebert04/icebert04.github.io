@@ -37,9 +37,9 @@ Now, they don't just have eggs on the table but they also have extra money on th
 
 Being intrigued by what the couple was doing, I took the time to pay them a visit. 
 I went to their house early in the morning to observe their fascinating backyard business. 
-I saw Jopay carrying a pail where she puts all the eggs from the proceeds of their daily harvests. The pail was so heavy that she needs to place it on top of a stool to prevent bruises from her arm.
+I saw Jopay carrying a pail where she puts all the eggs from the proceeds of their daily harvests. The pail was so heavy that she needs to place it on top of a stool to prevent bruises from her arm.   
 Kennet, on the other hand, is doing the marketing. 
-He contacts the sellers at the marketplace to confirm their orders. He also gets calls and text messages from the locals within their town. 
+He contacts the sellers at the marketplace to confirm their orders. He also gets calls and text messages from the locals within their town.   
 So aside from delivering these eggs packed in pizza boxes, they also accept pick-ups and walk-in customers to their house. 
 
 You have to believe me, the eggs were so many. It is like unlimited "Kwek-Kwek" until you drop. 
