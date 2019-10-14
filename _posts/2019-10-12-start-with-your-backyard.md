@@ -42,7 +42,8 @@ Kennet, on the other hand, is doing the marketing.
 He contacts the sellers at the marketplace to confirm their orders. He also gets calls and text messages from the locals within their town.   
 So aside from delivering these eggs packed in pizza boxes, they also accept pick-ups and walk-in customers to their house. 
 
-You have to believe me, the eggs were so many. It is like unlimited "Kwek-Kwek" until you drop. 
+You have to believe me, the eggs were so many.   
+It is like unlimited **"Kwek-Kwek"** until you drop. 
 I had too many of those eggs up to the point where I had to skip dinner. 
 
 At present, the couple had their Quail backyard business transferred to the "Bukid" (outskirts) for further expansion. 
