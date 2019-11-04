@@ -22,7 +22,8 @@ It's a mess that you can't get out of it. It stings and will strike a wound to y
 It brings chaos to your once harmonious and tranquil mind that you have to bear when you face the world for the rest of your life.
 
 Death, whether we accept or not, is inevitable. 
-It's certain. And once it hits you and your family it will definitely put you in the ground. 
+It's certain.   
+And once it hits you and your family it will definitely put you in the ground.   
 It's a mess that you can't get out of. 
 
 In my lifetime, I have witnessed Grandparent after Grandparent who left me for good. All of them were very close to me that until now I have difficulty moving forward without them. 
