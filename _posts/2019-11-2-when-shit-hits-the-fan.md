@@ -3,11 +3,12 @@ published: true
 ---
 ![Family Picture](/images/Promise to Mama.jpg)
 
-When Shit Hits the Fan... What does it mean? 
-Just imagine a pile of feces goes straight up to the ceiling fan.  You can just imagine what the next picture will be... 
+When Shit Hits the Fan... What does it mean?   
+Just imagine a pile of feces goes straight up to the ceiling fan.  You can just imagine what the next picture will be...   
 A Total Mess!
 
-Every single person on this planet has come across this dilemma before. And for those who haven't encountered it yet, don't worry there's a shit load of mess coming in your way.
+Every single person on this planet has come across this dilemma before.   
+And for those who haven't encountered it yet, don't worry there's a shit load of mess coming in your way.   
 This mess is unavoidable. Or even negotiable. The harsh truth is there's no escaping from it.
 Everyone will go through this one way or the other.
 
