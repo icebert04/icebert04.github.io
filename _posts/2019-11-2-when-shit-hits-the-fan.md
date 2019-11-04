@@ -52,8 +52,8 @@ They are still with you. Don't take them for granted.
 Spend time with them. Every day if it needs to.   
 Because sooner or later that shit will hit the fan again.
 
-Shit will happen. To all of us, unfortunately. 
-I'm not saying this to depress you, but to highlight the fact that there are external factors that are beyond our control. 
+Shit will happen. To all of us, unfortunately.   
+I'm not saying this to depress you, but to highlight the fact that there are external factors that are beyond our control.   
 We cannot stop the world from providing a stimulus that will cause stress and anxiety, but we do have the ability to change our perception to that event. 
 
 So what do we do when that "Shit Hits the Fan"? 
