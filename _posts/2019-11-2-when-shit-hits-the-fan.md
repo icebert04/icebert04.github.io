@@ -32,9 +32,9 @@ I also witnessed my Mother succumb to Liver Cirrhosis.
 I'll tell you guys, losing a mother is unbearable. Until now, the scars that I got hasn't completely healed. 
 
 Two years ago, I lost my youngest sister (upper left in the picture) to Brain Aneurysm. 
-That's what hurt me the most. I had so many plans for her. 
-She was supposed to do this and that. She was supposed to accomplished things that most of my siblings can't.
-Now the picture in this article has holes in it. It now has a scratch in it. One member of our sibling is now gone. 
+That's what hurt me the most. I had so many plans for her.   
+She was supposed to do this and that. She was supposed to accomplished things that most of my siblings can't.   
+Now the picture in this article has holes in it. It now has a scratch in it. One member of our sibling is now gone.   
 I find it odd to look at our picture when one is not there with you anymore.
 
 Of course, I have heard advice from concerned people that I should move on. But who really believes in that shit. 
