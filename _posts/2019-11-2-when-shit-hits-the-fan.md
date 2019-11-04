@@ -26,8 +26,9 @@ It's certain.
 And once it hits you and your family it will definitely put you in the ground.   
 It's a mess that you can't get out of. 
 
-In my lifetime, I have witnessed Grandparent after Grandparent who left me for good. All of them were very close to me that until now I have difficulty moving forward without them. 
-I also witnessed my Mother succumb to Liver Cirrhosis. 
+In my lifetime, I have witnessed Grandparent after Grandparent who left me for good.   
+All of them were very close to me that until now I have difficulty moving forward without them.   
+I also witnessed my Mother succumb to Liver Cirrhosis.   
 I'll tell you guys, losing a mother is unbearable. Until now, the scars that I got hasn't completely healed. 
 
 Two years ago, I lost my youngest sister (upper left in the picture) to Brain Aneurysm. 
