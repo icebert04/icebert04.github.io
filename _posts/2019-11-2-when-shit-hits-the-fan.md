@@ -12,13 +12,13 @@ And for those who haven't encountered it yet, don't worry there's a shit load of
 This mess is unavoidable. Or even negotiable. The harsh truth is there's no escaping from it.
 Everyone will go through this one way or the other.
 
-Normally you'll see several sets of pictures of Yourself, your Mom & Dad, Grandparents, and your Siblings in an alley or the living room. Some family pictures are proudly hang up in the wall.
+Normally you'll see several sets of pictures of Yourself, your Mom & Dad, Grandparents, and your Siblings in an alley or the living room. Some family pictures are proudly hang up in the wall.   
 That was before when shit hits the fan. That was when you were young, unhurt, and completely unscratched. 
 
-But as you grow older, you will witness one by one that a member of your family has passed away or is in extremely critical condition. 
-Now your family picture is not that gleaming and lustrous as before. A loved one had faded out in that picture. 
-It's done and they are gone completely out of your life. 
-It's a mess that you can't get out of it. It stings and will strike a wound to you that will never completely heal. 
+But as you grow older, you will witness one by one that a member of your family has passed away or is in extremely critical condition.   
+Now your family picture is not that gleaming and lustrous as before. A loved one had faded out in that picture.   
+It's done and they are gone completely out of your life.   
+It's a mess that you can't get out of it. It stings and will strike a wound to you that will never completely heal.   
 It brings chaos to your once harmonious and tranquil mind that you have to bear when you face the world for the rest of your life.
 
 Death, whether we accept or not, is inevitable. 
