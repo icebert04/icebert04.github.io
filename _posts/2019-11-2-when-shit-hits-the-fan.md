@@ -56,18 +56,18 @@ Shit will happen. To all of us, unfortunately.
 I'm not saying this to depress you, but to highlight the fact that there are external factors that are beyond our control.   
 We cannot stop the world from providing a stimulus that will cause stress and anxiety, but we do have the ability to change our perception to that event. 
 
-So what do we do when that "Shit Hits the Fan"? 
-My best bet is to...
+So what do we do when that "Shit Hits the Fan"?   
+My best bet is to...   
 1.) Accept it 
-(the fact that it happened)
+(the fact that it happened)   
 
 2.) Clean up the Mess 
-(if we don't, it will kill us)
+(if we don't, it will kill us)   
 
 3.) Move on 
 (Carry on and continue with your life).
 
-The number 3 is the most difficult part. 
+The number 3 is the most difficult part.   
 But we have to continue living and existing in this world... just like the rest of us.
  
   
