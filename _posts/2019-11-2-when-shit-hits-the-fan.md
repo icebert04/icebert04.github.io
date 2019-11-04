@@ -37,10 +37,11 @@ She was supposed to do this and that. She was supposed to accomplished things th
 Now the picture in this article has holes in it. It now has a scratch in it. One member of our sibling is now gone.   
 I find it odd to look at our picture when one is not there with you anymore.
 
-Of course, I have heard advice from concerned people that I should move on. But who really believes in that shit. 
+Of course, I have heard advice from concerned people that I should move on.   
+But who really believes in that shit.   
 I don't think that solves anything. People must continue living but the pain will always remain.
 
-So what does actually? How do we solve this dilemma?
+So what does actually? How do we solve this dilemma?   
 For me, the only one who can solve that problem is you. Everyone mourns in different ways, so the best advice is to let them be and let them find themselves until they find peace in their hearts. 
 
 Treasure those you've lost in your family picture. Relive your memories with them. And thank God that he gave them to you even for a short period of time.
