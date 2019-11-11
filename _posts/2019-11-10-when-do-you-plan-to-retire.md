@@ -9,10 +9,10 @@ At what age do you want to hang your shoes and say quits?
 
 Will you base it on the number of years in the company that you are working in and maxed out on the company's distribution for your retirement plan?
 
-Or hand over your business to your children and buy a beach property somewhere so you can swim and surf all day and all night long. 
+Or hand over your business to your children and buy a beach property somewhere so you can swim and surf all day and all night long.   
 In that way, you can retire early and live the life you always wanted.
 
-When is the best time really? 
+When is the best time really?   
 Is there a number of years that we can follow? 
 When is the ideal time?
 
