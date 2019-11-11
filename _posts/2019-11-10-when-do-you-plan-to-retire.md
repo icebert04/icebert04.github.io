@@ -32,7 +32,7 @@ What on earth is he doing on the street pulling and pushing his vendor cart that
 So I took my curiosity out on him. Although I am full and stuffed from the buffet dinner that me and my family had in a nearby mall, I pulled out my wallet and bought Manong's sweet corn so that I have a valid reason to stay and communicate with the old man.   
 Being the talkative person that I am, I asked a lot of **"Probing Questions"** to get the feel and have a deeper perspective on the old man's choice of doing manual labor. 
   
-I asked him this... "Why do you have to work at your age when you should be resting"?
+I asked him this... "Why do you have to work at your age when you should be resting"?   
 He answered back by saying... "I can't stop working if I do I will trickle little by little and die".
 
 I got the sentiment that this Mais vendor is not working for money alone, but instead for a reason to keep him busy therefore not making his life idle.  
