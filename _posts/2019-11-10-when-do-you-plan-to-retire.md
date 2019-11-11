@@ -3,8 +3,8 @@ published: true
 ---
 ![Retire](/images/Retire.jpg)
 
-When do you plan to retire? 
-At 50, 64, 73, or at 102 (if you are still alive by then)? 
+When do you plan to retire?   
+At 50, 64, 73, or at 102 (if you are still alive by then)?   
 At what age do you want to hang your shoes and say quits?
 
 Will you base it on the number of years in the company that you are working in and maxed out on the company's distribution for your retirement plan?
