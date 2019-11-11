@@ -46,6 +46,6 @@ We don't see in the manual that we should retire at 60 or even 70.
 Mang Mais has a point. We should never allow ourselves to be idle.   
 We should keep our engines running and even lubricate them (with knowledge and skills) as much as possible.
 
-We went to Don Bosco church to hear mass and digested Sunday's gospel. We never expected that we will be receiving more insights from that particular night.
-Me and family acquired a lot from the old Mais cart vendor. 
+We went to Don Bosco church to hear mass and digested Sunday's gospel. We never expected that we will be receiving more insights from that particular night.   
+Me and family acquired a lot from the old Mais cart vendor.   
 Not only did he gave us his best selling Juicy Sweet Corn, he also gave us the best Juicy Advice about the thing we called Life.  
