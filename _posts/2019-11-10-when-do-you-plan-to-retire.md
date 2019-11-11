@@ -16,12 +16,12 @@ When is the best time really?
 Is there a number of years that we can follow? 
 When is the ideal time?
 
-When I was in my 30's, I was targeting to retire at the age of 50. 
+When I was in my 30's, I was targeting to retire at the age of 50.   
 I then realize that I have 2 sons who will be going to college. 
-So then I adjusted my retirement plan when I reach 60.
-At that age, my children will be independently living on their own and financially wise to the world that we live in. 
-Me and wife then can use the rest of our savings and investment for our retirement.
-Sound like a good plan right? 
+So then I adjusted my retirement plan when I reach 60.   
+At that age, my children will be independently living on their own and financially wise to the world that we live in.   
+Me and wife then can use the rest of our savings and investment for our retirement.   
+Sound like a good plan right?   
 60 is not that old and you can still do triathlon and maybe travel the world. 
 
 That was before I met Manong Mais. I call him Manong Mais (Corn) because he always sells sweet corn in front of St. John Bosco Parish Church in Makati every Sunday.
