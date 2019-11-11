@@ -35,8 +35,8 @@ Being the talkative person that I am, I asked a lot of **"Probing Questions"** t
 I asked him this... "Why do you have to work at your age when you should be resting"?   
 He answered back by saying... "I can't stop working if I do I will trickle little by little and die".
 
-I got the sentiment that this Mais vendor is not working for money alone, but instead for a reason to keep him busy therefore not making his life idle.  
-"Through sloth the roof sinks in, and through indolence the house leaks" -Ecclesiastes 10:18
+I got the sentiment that this Mais vendor is not working for money alone, but instead for a reason to keep him busy therefore not making his life idle.   
+**"Through sloth the roof sinks in, and through indolence the house leaks"** -Ecclesiastes 10:18
 
 No wonder farmers in the province are still working and very much healthy at the age of 80 or 90. 
 While people in the city succumb to different types of illness even at the early age of 40.
