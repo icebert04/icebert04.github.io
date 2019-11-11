@@ -24,9 +24,9 @@ Me and wife then can use the rest of our savings and investment for our retireme
 Sound like a good plan right?   
 60 is not that old and you can still do triathlon and maybe travel the world. 
 
-That was before I met Manong Mais. I call him Manong Mais (Corn) because he always sells sweet corn in front of St. John Bosco Parish Church in Makati every Sunday.
-Manong Mais is over 70 years of age, and if you take a closer look at our picture, you will see that he has wrinkles for the most part of his face. 
-He is wearing dentures and due for cataract surgery. He is old and weak. He is supposed to be at home relaxing.
+That was before I met Manong Mais. I call him Manong Mais (Corn) because he always sells sweet corn in front of St. John Bosco Parish Church in Makati every Sunday.   
+Manong Mais is over 70 years of age, and if you take a closer look at our picture, you will see that he has wrinkles for the most part of his face.   
+He is wearing dentures and due for cataract surgery. He is old and weak. He is supposed to be at home relaxing.   
 What on earth is he doing on the street pulling and pushing his vendor cart that weighs more than 100 kilos?
 
 So I took my curiosity out on him. Although I am full and stuffed from the buffet dinner that me and my family had in a nearby mall, I pulled out my wallet and bought Manong's sweet corn so that I have a valid reason to stay and communicate with the old man.
