@@ -43,7 +43,8 @@ While people in the city succumb to different types of illness even at the early
 We are like machines. We are made and programmed to use our mind and body until our battery dies out.   
 We don't see in the manual that we should retire at 60 or even 70. 
 
-Mang Mais has a point. We should never allow ourselves to be idle. We should keep our engines running and even lubricate them (with knowledge and skills) as much as possible.
+Mang Mais has a point. We should never allow ourselves to be idle.   
+We should keep our engines running and even lubricate them (with knowledge and skills) as much as possible.
 
 We went to Don Bosco church to hear mass and digested Sunday's gospel. We never expected that we will be receiving more insights from that particular night.
 Me and family acquired a lot from the old Mais cart vendor. 
