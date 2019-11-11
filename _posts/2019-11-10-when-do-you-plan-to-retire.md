@@ -38,9 +38,9 @@ He answered back by saying... "I can't stop working if I do I will trickle littl
 I got the sentiment that this Mais vendor is not working for money alone, but instead for a reason to keep him busy therefore not making his life idle.   
 **"Through sloth the roof sinks in, and through indolence the house leaks"** -Ecclesiastes 10:18
 
-No wonder farmers in the province are still working and very much healthy at the age of 80 or 90. 
+No wonder farmers in the province are still working and very much healthy at the age of 80 or 90.   
 While people in the city succumb to different types of illness even at the early age of 40.
-We are like machines. We are made and programmed to use our mind and body until our battery dies out.
+We are like machines. We are made and programmed to use our mind and body until our battery dies out.   
 We don't see in the manual that we should retire at 60 or even 70. 
 
 Mang Mais has a point. We should never allow ourselves to be idle. We should keep our engines running and even lubricate them (with knowledge and skills) as much as possible.
