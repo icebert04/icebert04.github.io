@@ -3,9 +3,9 @@ published: true
 ---
 ![Living](/images/Off the grid Cottage.jpg)
 
-DON'T BUY PROPERTY SA MANILA...   
-UBOS NA...   
-GO NA SA PROBINSYA!
+**DON'T BUY PROPERTY SA MANILA...**   
+**UBOS NA...**   
+**GO NA SA PROBINSYA!**
 
 How many properties do you have?   
 1, 2, 18, or 76?   
@@ -32,7 +32,7 @@ Upkeep and maintenance are relatively cheaper. No need for a maid, gardener, and
 
 And by doing that you have more extra money to invest in other things... one of which is buying cheap property in your province. 
 
-It may not be "Uso" or Trending yet here in the Philippines, but "Living Off The Grid" has become popular in Western countries.   
+It may not be **"Uso"** or Trending yet here in the Philippines, but "Living Off The Grid" has become popular in Western countries.   
 These people look for cheap and idle properties on the outskirts. Then they build their own dream vacation house with a lot of space left to consume.   
 Did you hear what I'm saying?... Space, lots of it.   
 We can never have that in the city.
@@ -56,10 +56,10 @@ Believe me, there are lots of cheap properties out there. All you have to do is 
 So would you invest in one expensive property or...   
 Would you rather maintain one small one in the city, invest your extra cash flow in semi-passive income streams, and get that Off The Grid Dream property that will immeasurably benefit you and your family.
    
-Get the property, and "Live Off The Grid".   
+Get the property, and **"Live Off The Grid"**.   
 You'll be hearing only the sounds of nature. You have more control over how you spend your days.   
 You get the privacy to simply enjoy the simplest things in life.   
 There's a very powerful attraction to the idea of abandoning the shackles and expectations of modern living and returning to a more natural state of living.
 
-To summarize, just think about this... "Breath of Fresh Air".   
+To summarize, just think about this... **"Breath of Fresh Air"**.   
 It's a thing that we are deprived of and longing for it for so many years.
