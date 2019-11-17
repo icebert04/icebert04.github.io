@@ -12,9 +12,9 @@ How many properties do you have?
 Some of you don't have even one. Some of you might be renting your whole lifetime.   
 There's nothing to be ashamed with that, properties are ridiculously expensive in the city, most especially in Manila.
 
-When there is not much Lateral Property left in Metro Manila, end-users and the working middle class have not enough option but to go for Vertical Properties. 
-And besides, would anyone choose to acquire (or afford for that matter) a property in a posh village such as Forbes Park, Ayala Alabang Village, Corinthian Garden, etc. and used all of their net worth in a 300 to 500 square meter piece of land?
-The amount that you will be investing in would be 120 to 200 million pesos.
+When there is not much Lateral Property left in Metro Manila, end-users and the working middle class have not enough option but to go for Vertical Properties.   
+And besides, would anyone choose to acquire (or afford for that matter) a property in a posh village such as Forbes Park, Ayala Alabang Village, Corinthian Garden, etc. and used all of their net worth in a 300 to 500 square meter piece of land?   
+The amount that you will be investing in would be 120 to 200 million pesos.   
 If you are Bill Gates or Mark Zuckerberg who has lots of money at their disposal then that's fine, but to most of us, we would rather invest our hard-earned money on multiple income streams.
 
 Make no mistake, owning a property is considered to be one of the most secure investment you could ever make. It offers you a secure income stream and capital growth.
