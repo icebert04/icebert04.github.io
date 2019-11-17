@@ -3,13 +3,13 @@ published: true
 ---
 ![Living](/images/Off the grid Cottage.jpg)
 
-DON'T BUY PROPERTY SA MANILA...
-UBOS NA...
+DON'T BUY PROPERTY SA MANILA...   
+UBOS NA...   
 GO NA SA PROBINSYA!
 
-How many properties do you have? 
-1, 2, 18, or 76?
-Some of you don't have even one. Some of you might be renting your whole lifetime. 
+How many properties do you have?   
+1, 2, 18, or 76?   
+Some of you don't have even one. Some of you might be renting your whole lifetime.   
 There's nothing to be ashamed with that, properties are ridiculously expensive in the city, most especially in Manila.
 
 When there is not much Lateral Property left in Metro Manila, end-users and the working middle class have not enough option but to go for Vertical Properties. 
