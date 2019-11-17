@@ -61,5 +61,5 @@ You'll be hearing only the sounds of nature. You have more control over how you 
 You get the privacy to simply enjoy the simplest things in life.   
 There's a very powerful attraction to the idea of abandoning the shackles and expectations of modern living and returning to a more natural state of living.
 
-To summarize, just think about this... "Breath of Fresh Air".
+To summarize, just think about this... "Breath of Fresh Air".   
 It's a thing that we are deprived of and longing for it for so many years.
