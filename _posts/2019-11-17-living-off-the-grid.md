@@ -38,12 +38,12 @@ Did you hear what I'm saying?... Space, lots of it.
 We can never have that in the city.
 
 In the province, you have space to buy your own Equestrian Horse for your daughter to ride on the whole afternoon. 
-Or your son can do Motorcross Bike riding in that same property. 
+Or your son can do Motorcross Bike riding in that same property.   
 You and your spouse can now do your Organic Farm from the cheap property to you acquired.
 
-You can set Solar Panels for a cheaper and more reliable electricity source. 
-You can chop woods from your trees on your premises and have night bonfire with your loved ones along with your favorite steak, cheese, and wine. 
-Or set some Hammock on some of your fruit-bearing trees and go Moon Sightseeing while playing the guitar.
+You can set Solar Panels for a cheaper and more reliable electricity source.   
+You can chop woods from your trees on your premises and have night bonfire with your loved ones along with your favorite steak, cheese, and wine.   
+Or set some Hammock on some of your fruit-bearing trees and go Moon Sightseeing while playing the guitar.   
 You can have unlimited pets and farm animals to your liking. Whether you want to breed Dogs or Cats, have your own Rabbitry, a Lovebird sanctuary, or even a lagoon for your Koi Fishes where your friends and visitors can swim in it. 
 
 That all are possible because you have extra space. It will be your sanctuary for life.
