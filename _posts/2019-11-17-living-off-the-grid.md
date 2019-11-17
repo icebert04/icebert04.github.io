@@ -26,8 +26,8 @@ You have to build the dream house that you want (which is also steep). Then buy 
 There's also upkeep, maintenance, and renovation. Not to mention property taxes.   
 All of those can limit your freedom and flexibility. 
 
-My suggestion is this, buy a small property that is within your budget for you and your family. A property that suits your needs. 
-A condo unit is also an option for the reason that it is cheaper and you can lock your door and not worry about intruders when you go on vacation. 
+My suggestion is this, buy a small property that is within your budget for you and your family. A property that suits your needs.   
+A condo unit is also an option for the reason that it is cheaper and you can lock your door and not worry about intruders when you go on vacation.   
 Upkeep and maintenance are relatively cheaper. No need for a maid, gardener, and roof repainter. 
 
 And by doing that you have more extra money to invest in other things... one of which is buying cheap property in your province. 
