@@ -17,11 +17,13 @@ And besides, would anyone choose to acquire (or afford for that matter) a proper
 The amount that you will be investing in would be 120 to 200 million pesos.   
 If you are Bill Gates or Mark Zuckerberg who has lots of money at their disposal then that's fine, but to most of us, we would rather invest our hard-earned money on multiple income streams.
 
-Make no mistake, owning a property is considered to be one of the most secure investment you could ever make. It offers you a secure income stream and capital growth.
+Make no mistake, owning a property is considered to be one of the most secure investment you could ever make.   
+It offers you a secure income stream and capital growth.
 But I prefer that when you used your property, it will be part of your semi-investment plan and not you handling it as an end-user, in that way you will have more extra cash flow to routinely invest in other investment vehicles. 
 
-Buying an expensive property in Manila is not the end of it. You have to build the dream house that you want (which is also steep). Then buy the fancy furnitures and appliances to go with the beautiful house of yours. 
-There's also upkeep, maintenance, and renovation. Not to mention property taxes. 
+Buying an expensive property in Manila is not the end of it.   
+You have to build the dream house that you want (which is also steep). Then buy the fancy furnitures and appliances to go with the beautiful house of yours.   
+There's also upkeep, maintenance, and renovation. Not to mention property taxes.   
 All of those can limit your freedom and flexibility. 
 
 My suggestion is this, buy a small property that is within your budget for you and your family. A property that suits your needs. 
