@@ -32,9 +32,9 @@ Upkeep and maintenance are relatively cheaper. No need for a maid, gardener, and
 
 And by doing that you have more extra money to invest in other things... one of which is buying cheap property in your province. 
 
-It may not be "Uso" or Trending yet here in the Philippines, but "Living Off The Grid" has become popular in Western countries. 
-These people look for cheap and idle properties on the outskirts. Then they build their own dream vacation house with a lot of space left to consume.
-Did you hear what I'm saying?... Space, lots of it. 
+It may not be "Uso" or Trending yet here in the Philippines, but "Living Off The Grid" has become popular in Western countries.   
+These people look for cheap and idle properties on the outskirts. Then they build their own dream vacation house with a lot of space left to consume.   
+Did you hear what I'm saying?... Space, lots of it.   
 We can never have that in the city.
 
 In the province, you have space to buy your own Equestrian Horse for your daughter to ride on the whole afternoon. 
