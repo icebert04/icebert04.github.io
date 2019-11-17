@@ -48,17 +48,17 @@ You can have unlimited pets and farm animals to your liking. Whether you want to
 
 That all are possible because you have extra space. It will be your sanctuary for life.
 
-Just make sure that the property that you will buy won't be that far away from your city that you are working in. 
-If you are living in Manila, look for properties near it such as upland Cavite (where the weather is more colder), Batangas and Laguna. 
-Or you can go up north and invest in up-and-coming provinces such as Tarlac, Zambales, Nueva Ecija, Aurora, Pangasinan, and the most visited Benguet province. 
+Just make sure that the property that you will buy won't be that far away from your city that you are working in.   
+If you are living in Manila, look for properties near it such as upland Cavite (where the weather is more colder), Batangas and Laguna.   
+Or you can go up north and invest in up-and-coming provinces such as Tarlac, Zambales, Nueva Ecija, Aurora, Pangasinan, and the most visited Benguet province.   
 Believe me, there are lots of cheap properties out there. All you have to do is look. 
 
-So would you invest in one expensive property or...
+So would you invest in one expensive property or...   
 Would you rather maintain one small one in the city, invest your extra cash flow in semi-passive income streams, and get that Off The Grid Dream property that will immeasurably benefit you and your family.
    
-Get the property, and "Live Off The Grid".
-You'll be hearing only the sounds of nature. You have more control over how you spend your days. 
-You get the privacy to simply enjoy the simplest things in life.
+Get the property, and "Live Off The Grid".   
+You'll be hearing only the sounds of nature. You have more control over how you spend your days.   
+You get the privacy to simply enjoy the simplest things in life.   
 There's a very powerful attraction to the idea of abandoning the shackles and expectations of modern living and returning to a more natural state of living.
 
 To summarize, just think about this... "Breath of Fresh Air".
