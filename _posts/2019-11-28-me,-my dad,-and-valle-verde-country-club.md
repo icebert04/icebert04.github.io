@@ -46,8 +46,8 @@ I mean our place to his home is only 13 kilometers away but it seems so far far 
 It's depressing I know, but I don't know what really happened.   
 Both of us tried but still, we can't overcome our distance away from each other. Like there is a big wall that separates the two us.
 
-The sad part is even my kids (Luigi and Lorenzo) also don't get to see their Grandfather that often. They also see him during parties and family gatherings. 
-I was hopeless. To the point of almost giving up. 
+The sad part is even my kids (Luigi and Lorenzo) also don't get to see their Grandfather that often. They also see him during parties and family gatherings.   
+I was hopeless. To the point of almost giving up.   
 I'm prepared to raise the white flag and declare that at least we had a good run in the past. 
 But no, something must be done. There must be some way where me and my kids reconnect again with the person who I admire immensely. 
 
