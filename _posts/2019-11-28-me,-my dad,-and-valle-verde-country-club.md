@@ -11,8 +11,8 @@ During my pre-puberty years, all I did was imitate what he did.
 From shaving properly, to dressing up presentably, and being so organized on each and every field that I know of.   
 Everything that he did, I was always there to follow and act like him.
 
-The point at issue is, I don't get to see my Dad very often.
-His work demands him more time away from his family. 
+The point at issue is, I don't get to see my Dad very often.   
+His work demands him more time away from his family.   
 He travels regularly mostly through South East Asia. And I don't get to see him that often.
 And by the time my Dad gets home, he will only stay for one day or two then off he goes again to the airport for his next assignment.
 
