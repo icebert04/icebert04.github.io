@@ -72,5 +72,5 @@ In fact, you should fight for it.
 Find a way to reconnect and get them together with you again.   
 By hook or by crook, you have to dig up deeper and look for something that will pave magic to your dying relationship.
 
-I found mine. Valle Verde Country Club gave me something that I almost lost.
+I found mine. Valle Verde Country Club gave me something that I almost lost.   
 The man that I idolize the most... my Father!  
