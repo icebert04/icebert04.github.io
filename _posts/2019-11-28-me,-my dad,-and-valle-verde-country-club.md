@@ -21,7 +21,7 @@ My father and mother separated when I was a year old. So it was just me and our 
 Not that I am complaining. We did pretty okay.   
 I grew up being a well-rounded person in my Dad's neighborhood. 
 
-My father is a hard-working man. Some people say that he is a "Workaholic".
+My father is a hard-working man. Some people say that he is a **"Workaholic"**.   
 He is a good provider. Sent me to a good school and equipped me with everything that I need.
 My weekly allowance was more than enough that I was able to save some money for things that kids of my age can't buy on their own.
 
