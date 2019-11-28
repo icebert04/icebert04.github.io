@@ -27,9 +27,9 @@ My weekly allowance was more than enough that I was able to save some money for 
 
 So in summary, I basically grew up not having enough quality time to bond with my Father.
 
-Good thing that there was Valle Verde Country Club. 
-Valle Verde Country Club (or VVCC) is a prestigious proprietary membership club that provides sports, recreational, and dining services to members and guests.
-Me and my Dad use the swimming pool often and do multiple laps. And then after, we go relax and chill at their cozy restaurant and have a few beers.
+Good thing that there was **Valle Verde Country Club**.   
+Valle Verde Country Club (or VVCC) is a prestigious proprietary membership club that provides sports, recreational, and dining services to members and guests.   
+Me and my Dad use the swimming pool often and do multiple laps. And then after, we go relax and chill at their cozy restaurant and have a few beers.   
 It is our sanctuary where we find a definitive reason not just to exercise but to catch up on things. 
 
 My father is efficient at "Killing two birds with one stone".
