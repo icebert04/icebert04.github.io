@@ -39,11 +39,11 @@ It's only my Daddy who jogs his way there from home.
 I have to say, I was impressed with my Dad on being so thoughtful about visiting me and being physically fit at the same time.   
 He is really my real-life Super Hero.
 
-Several years after, for some reason I can't explain, me and my Dad drifted apart. 
-He is semi-retired now, but it's funny that when you think that you know that you can spend more time with your father is that when you don't get to see him often.
-It's weird I know.
-I mean our place to his home is only 13 kilometers away but it seems so far far away.
-It's depressing I know, but I don't know what really happened. 
+Several years after, for some reason I can't explain, me and my Dad drifted apart.   
+He is semi-retired now, but it's funny that when you think that you know that you can spend more time with your father is that when you don't get to see him often.   
+It's weird I know.   
+I mean our place to his home is only 13 kilometers away but it seems so far far away.   
+It's depressing I know, but I don't know what really happened.   
 Both of us tried but still, we can't overcome our distance away from each other. Like there is a big wall that separates the two us.
 
 The sad part is even my kids (Luigi and Lorenzo) also don't get to see their Grandfather that often. They also see him during parties and family gatherings. 
