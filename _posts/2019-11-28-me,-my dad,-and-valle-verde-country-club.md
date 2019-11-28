@@ -63,8 +63,8 @@ All of us enjoyed our company together.
 In that place, we found our sanctuary. There is no one to disturb us. There is no reason to hurry.   
 We slowed down the time and just bonded. 
 
-When you love somebody so dearly, you have to do everything to make something happen. 
-I'm overjoyed that there is Valle Verde Country Club at our disposal.  
+When you love somebody so dearly, you have to do everything to make something happen.   
+I'm overjoyed that there is Valle Verde Country Club at our disposal.   
 It is our shrine, our temple, and our place to just be together.
 
 So to all of you out there. Don't give up on love just yet. 
