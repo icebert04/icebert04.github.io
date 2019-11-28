@@ -67,9 +67,9 @@ When you love somebody so dearly, you have to do everything to make something ha
 I'm overjoyed that there is Valle Verde Country Club at our disposal.   
 It is our shrine, our temple, and our place to just be together.
 
-So to all of you out there. Don't give up on love just yet. 
-In fact, you should fight for it. 
-Find a way to reconnect and get them together with you again.
+So to all of you out there. Don't give up on love just yet.   
+In fact, you should fight for it.   
+Find a way to reconnect and get them together with you again.   
 By hook or by crook, you have to dig up deeper and look for something that will pave magic to your dying relationship.
 
 I found mine. Valle Verde Country Club gave me something that I almost lost.
