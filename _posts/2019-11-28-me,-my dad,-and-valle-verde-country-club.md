@@ -55,8 +55,8 @@ I had to rely again on the only thing that connected us before.
 I have to call the services of the exclusive club in Pasig City.   
 I need to open the door of the old but reliable Valle Verde Country Club.
 
-You know what? It worked! 
-The 4 of us reconnected. Me, my 2 boys, and my Father swam rigorously and exhilaratingly in the pool. Then we had quality dinner afterwards. 
+You know what? It worked!   
+The 4 of us reconnected. Me, my 2 boys, and my Father swam rigorously and exhilaratingly in the pool. Then we had quality dinner afterwards.   
 It was bliss!
 
 All of us enjoyed our company together. In that place, we found our sanctuary. There is no one to disturb us. There is no reason to hurry. 
