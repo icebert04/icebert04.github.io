@@ -3,8 +3,6 @@ published: true
 ---
 ![Dad](/images/VVCC.jpg)
 
-![Dad](/images/VVCC.jpg)
-
 Everyone had idolized their parents at some point in their life. Growing up beside them all of these years has certainly had that influential effect.   
 I'm mindful that everyone has different relationships with their parents. 
 Mine just happens to be my Father who I look up to and aspire to be. 
