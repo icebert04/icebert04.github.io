@@ -49,7 +49,8 @@ Both of us tried but still, we can't overcome our distance away from each other.
 The sad part is even my kids (Luigi and Lorenzo) also don't get to see their Grandfather that often. They also see him during parties and family gatherings.   
 I was hopeless. To the point of almost giving up.   
 I'm prepared to raise the white flag and declare that at least we had a good run in the past. 
-But no, something must be done. There must be some way where me and my kids reconnect again with the person who I admire immensely. 
+But no, something must be done.   
+There must be some way where me and my kids reconnect again with the person who I admire immensely. 
 
 I had to rely again on the only thing that connected us before.   
 I have to call the services of the exclusive club in Pasig City.   
