@@ -51,7 +51,8 @@ I was hopeless. To the point of almost giving up.
 I'm prepared to raise the white flag and declare that at least we had a good run in the past. 
 But no, something must be done. There must be some way where me and my kids reconnect again with the person who I admire immensely. 
 
-I had to rely again on the only thing that connected us before. I have to call the services of the exclusive club in Pasig City.
+I had to rely again on the only thing that connected us before.   
+I have to call the services of the exclusive club in Pasig City.   
 I need to open the door of the old but reliable Valle Verde Country Club.
 
 You know what? It worked! 
