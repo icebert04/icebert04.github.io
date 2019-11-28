@@ -17,8 +17,8 @@ He travels regularly mostly through South East Asia. And I don't get to see him 
 And by the time my Dad gets home, he will only stay for one day or two then off he goes again to the airport for his next assignment.
 
 It's hard for a kid to see his idol go, especially if I am the only one staying at home. 
-My father and mother separated when I was a year old. So it was just me and our helper who roams around the house.
-Not that I am complaining. We did pretty okay.
+My father and mother separated when I was a year old. So it was just me and our helper who roams around the house.   
+Not that I am complaining. We did pretty okay.   
 I grew up being a well-rounded person in my Dad's neighborhood. 
 
 My father is a hard-working man. Some people say that he is a "Workaholic".
