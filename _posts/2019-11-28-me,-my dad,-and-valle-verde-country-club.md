@@ -32,11 +32,11 @@ Valle Verde Country Club (or VVCC) is a prestigious proprietary membership club 
 Me and my Dad use the swimming pool often and do multiple laps. And then after, we go relax and chill at their cozy restaurant and have a few beers.   
 It is our sanctuary where we find a definitive reason not just to exercise but to catch up on things. 
 
-My father is efficient at "Killing two birds with one stone".
+My father is efficient at **"Killing two birds with one stone"**.   
 Whenever we have night camping in our school at La Salle Greenhills. 
 All of my classmate's Father goes to our campus by car. 
-It's only my Daddy who jogs his way there from home.
-I have to say, I was impressed with my Dad on being so thoughtful about visiting me and being physically fit at the same time.
+It's only my Daddy who jogs his way there from home.   
+I have to say, I was impressed with my Dad on being so thoughtful about visiting me and being physically fit at the same time.   
 He is really my real-life Super Hero.
 
 Several years after, for some reason I can't explain, me and my Dad drifted apart. 
