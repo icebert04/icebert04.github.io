@@ -3,7 +3,7 @@ published: true
 ---
 ![Bike](/images/Bike 4.jpg)
 
-HACKING MY WAY OUT OF MANILA'S TRAFFIC
+**HACKING MY WAY OUT OF MANILA'S TRAFFIC**
 
 Yes, I'm saying farewell to my car and giving my warm welcome to my bike... at least during the workweek.
 
