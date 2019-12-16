@@ -7,7 +7,7 @@ published: true
 
 Yes, I'm saying farewell to my car and giving my warm welcome to my bike... at least during the workweek.
 
-When most people drive their car during the workweek and take their bike out on the weekends, I do exactly the opposite.
+When most people drive their car during the workweek and take their bike out on the weekends, I do exactly the opposite.   
 I drive my bike when I go to work and use my car only on the weekends and holidays.
 
 You might be wondering why, but for those who didn't know, I live in a place where it is considered the "Worst Traffic in South East Asia". 
