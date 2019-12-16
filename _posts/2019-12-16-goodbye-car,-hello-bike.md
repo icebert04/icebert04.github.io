@@ -10,10 +10,10 @@ Yes, I'm saying farewell to my car and giving my warm welcome to my bike... at l
 When most people drive their car during the workweek and take their bike out on the weekends, I do exactly the opposite.   
 I drive my bike when I go to work and use my car only on the weekends and holidays.
 
-You might be wondering why, but for those who didn't know, I live in a place where it is considered the "Worst Traffic in South East Asia". 
-Metro Manila is set to take the dubious honor as the world's worst city for drivers. 
+You might be wondering why, but for those who didn't know, I live in a place where it is considered the **"Worst Traffic in South East Asia"**.   
+Metro Manila is set to take the dubious honor as the world's worst city for drivers.   
 It takes around 10-15 minutes for a motorist to cover just 1 kilometer in the Philippine capital.
-Poor Urban Planning, High Population, Lack of Disciplined and Educated Drivers, Limited Railway System, etc., has caused our country total chaos.
+Poor Urban Planning, High Population, Lack of Disciplined and Educated Drivers, Limited Railway System, etc., has caused our country total chaos.   
 And because of that, the Philippines is now losing 3.5 billion pesos a day due to traffic congestion.
 
 It's not only our economy is affected but the people as well. The majority of the employees, students, and all people who go out regularly are gravely afflicted by it.
