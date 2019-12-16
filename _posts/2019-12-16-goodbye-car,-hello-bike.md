@@ -52,5 +52,5 @@ And above all, people would get to spend more time with their loved ones. They w
 If you don't believe me, I dare you to dust off the cobwebs off your bike then take it out for a spin. 
 Just try it out first, and let your bike do the talking.
 
-Just say Goodbye to your most precious car for a while. And say your warm Greetings to your once forgotten bike. 
-In no time, you will notice that the 2 wheeled vehicle is the "Game Changer" on your life that will definitely give a big impact not only on your career but on your personal life as well.
+Just say Goodbye to your most precious car for a while. And say your warm Greetings to your once forgotten bike.   
+In no time, you will notice that the 2 wheeled vehicle is the **"Game Changer"** on your life that will definitely give a big impact not only on your career but on your personal life as well.
