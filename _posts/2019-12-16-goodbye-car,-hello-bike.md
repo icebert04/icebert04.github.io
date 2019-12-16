@@ -31,7 +31,7 @@ Not only does my bike saves me a lot of time, it also gives me better health.
 Take note that I bike 8 km going to work and another 8 km going back. That is 16 km of aerobic exercise and burned calories.   
 Most people don't have the time to exercise on a weekday or maybe they are just too tired to make one. Having no or little exercise gives them more additional stress and anxiety.
 
-Me, not only do I bike every day from Monday to Friday, but I sometimes use my daily 2 hours of extra time to do laps on our swimming pool. 
+Me, not only do I bike every day from Monday to Friday, but I sometimes use my daily 2 hours of extra time to do laps on our swimming pool.   
 I swim at least 2-3 times a week, giving me a new set of exercises for my body and muscles. 
 
 Riding a bike is also an Adventure. 
