@@ -22,9 +22,10 @@ Then after work, they arrived home just a few hours before midnight.
 They don't get to see their kids that much because it was spent on transportation time. Their kids too have the same dilemma leaving no time for them to play as they confront stress at a very young age.   
 It's crazy! Employees are stressed out commuting so early in the morning and mind you, they haven't even reached their office yet which is a hell more of quantified tension.
 
-I personally don't want to feel that stress. So instead of taking my car out and just get stuck in traffic, I would rather ride my bike and get to my point of destination in no time.
-My home to my work is only 8 km away. If I drive my car, I need to cumulate an allowance of 2 hours just by going there. Then add 1 more hour going home. That is a total of 3 hours away from my family.
-My bike, on the other hand, only takes me 30 minutes going to the office and another 30 minutes going back. That is a total of 1 hour. So that saved me 2 hours extra time for me giving me more quality time for my loved ones.
+I personally don't want to feel that stress. So instead of taking my car out and just get stuck in traffic, I would rather ride my bike and get to my point of destination in no time.   
+My home to my work is only 8 km away. If I drive my car, I need to cumulate an allowance of 2 hours just by going there. Then add 1 more hour going home. That is a total of 3 hours away from my family.   
+My bike, on the other hand, only takes me 30 minutes going to the office and another 30 minutes going back. That is a total of 1 hour.   
+So that saved me 2 hours extra time for me giving me more quality time for my loved ones.
 
 Not only does my bike saves me a lot of time, it also gives me better health. Take note that I bike 8 km going to work and another 8 km going back. That is 16 km of aerobic exercise and burned calories. 
 Most people don't have the time to exercise on a weekday or maybe they are just too tired to make one. Having no or little exercise gives them more additional stress and anxiety.
