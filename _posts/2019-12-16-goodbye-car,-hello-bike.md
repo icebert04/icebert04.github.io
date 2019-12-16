@@ -34,9 +34,9 @@ Most people don't have the time to exercise on a weekday or maybe they are just 
 Me, not only do I bike every day from Monday to Friday, but I sometimes use my daily 2 hours of extra time to do laps on our swimming pool.   
 I swim at least 2-3 times a week, giving me a new set of exercises for my body and muscles. 
 
-Riding a bike is also an Adventure. 
-You get to wonder at the Full Moon while you're peddling along. 
-You can get to stop for a while and eat street food like Fishball, Kikiam or Isaw.
+Riding a bike is also an Adventure.   
+You get to wonder at the Full Moon while you're peddling along.   
+You can get to stop for a while and eat street food like Fishball, Kikiam or Isaw.   
 You also feel the wind breeze genuinely when you are biking. An ideal way for you to connect back to nature.
 
 One more thing, by the way, it also saves my car from deteriorating rapidly. I don't need to spend so much money on gasoline. 
