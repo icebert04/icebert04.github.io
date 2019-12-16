@@ -39,7 +39,7 @@ You get to wonder at the Full Moon while you're peddling along.
 You can get to stop for a while and eat street food like Fishball, Kikiam or Isaw.   
 You also feel the wind breeze genuinely when you are biking. An ideal way for you to connect back to nature.
 
-One more thing, by the way, it also saves my car from deteriorating rapidly. I don't need to spend so much money on gasoline. 
+One more thing, by the way, it also saves my car from deteriorating rapidly. I don't need to spend so much money on gasoline.   
 So in some way, I am also helping our Mother Nature by not exposing Carbon Dioxide in an already toxicated city. 
 
 Ever since I bought my Starter Bike (Road Bike), my life became more lively and more pleasant.
