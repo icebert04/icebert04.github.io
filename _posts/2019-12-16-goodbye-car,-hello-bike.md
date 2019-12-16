@@ -27,7 +27,8 @@ My home to my work is only 8 km away. If I drive my car, I need to cumulate an a
 My bike, on the other hand, only takes me 30 minutes going to the office and another 30 minutes going back. That is a total of 1 hour.   
 So that saved me 2 hours extra time for me giving me more quality time for my loved ones.
 
-Not only does my bike saves me a lot of time, it also gives me better health. Take note that I bike 8 km going to work and another 8 km going back. That is 16 km of aerobic exercise and burned calories. 
+Not only does my bike saves me a lot of time, it also gives me better health.   
+Take note that I bike 8 km going to work and another 8 km going back. That is 16 km of aerobic exercise and burned calories.   
 Most people don't have the time to exercise on a weekday or maybe they are just too tired to make one. Having no or little exercise gives them more additional stress and anxiety.
 
 Me, not only do I bike every day from Monday to Friday, but I sometimes use my daily 2 hours of extra time to do laps on our swimming pool. 
