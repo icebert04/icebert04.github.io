@@ -16,10 +16,10 @@ It takes around 10-15 minutes for a motorist to cover just 1 kilometer in the Ph
 Poor Urban Planning, High Population, Lack of Disciplined and Educated Drivers, Limited Railway System, etc., has caused our country total chaos.   
 And because of that, the Philippines is now losing 3.5 billion pesos a day due to traffic congestion.
 
-It's not only our economy is affected but the people as well. The majority of the employees, students, and all people who go out regularly are gravely afflicted by it.
+It's not only our economy is affected but the people as well. The majority of the employees, students, and all people who go out regularly are gravely afflicted by it.   
 Most people who go to work need to leave their homes still dark at night (around 5 am) in order to get to their office on time.
-Then after work, they arrived home just a few hours before midnight. 
-Then don't get to see their kids that much because it was spent on transportation time. Their kids too have the same dilemma leaving no time for them to play as they confront stress at a very young age.
+Then after work, they arrived home just a few hours before midnight.   
+They don't get to see their kids that much because it was spent on transportation time. Their kids too have the same dilemma leaving no time for them to play as they confront stress at a very young age.   
 It's crazy! Employees are stressed out commuting so early in the morning and mind you, they haven't even reached their office yet which is a hell more of quantified tension.
 
 I personally don't want to feel that stress. So instead of taking my car out and just get stuck in traffic, I would rather ride my bike and get to my point of destination in no time.
