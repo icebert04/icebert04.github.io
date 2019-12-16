@@ -43,8 +43,9 @@ One more thing, by the way, it also saves my car from deteriorating rapidly. I d
 So in some way, I am also helping our Mother Nature by not exposing Carbon Dioxide in an already toxicated city. 
 
 Ever since I bought my Starter Bike (Road Bike), my life became more lively and more pleasant.
-If only more people would do what I do, then Manila's traffic won't be as bad as it is now. 
-Our economy would be thriving. Companies would be making more money from their well-rested and not stressed employees. Our government doesn't need to build more additional roads and can now give their attention to subways and other mass public transportation that could help our daily commuters.
+If only more people would do what I do, then Manila's traffic won't be as bad as it is now.   
+Our economy would be thriving. Companies would be making more money from their well-rested and not stressed employees.   
+Our government doesn't need to build more additional roads and can now give their attention to subways and other mass public transportation that could help our daily commuters.
 
 And above all, people would get to spend more time with their loved ones. They will be more physically healthy. More content and happy in life.
 
