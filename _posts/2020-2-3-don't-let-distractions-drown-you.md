@@ -7,8 +7,8 @@ So how was the start of New Year for you? Not so good I bet...
 Most people had a bad month in January. In just a span of 4 weeks, there were calamities from different places.   
 The Australia Bushfire, the Airplane Crash in Afghanistan, Flashfloods in Indonesia, Kobe Bryant's death in a Helicopter Crash, the almost War between Iran and the USA, and of course, our country didn't take any exemptions.
 
-First, there was the big Earthquake in Mindanao. 
-Then the Taal Volcano Phreatic Explosion. A few days after lowering the Alert Level of the Taal Volcano, the Wuhan Corona Virus penetrated our country.
+First, there was the big Earthquake in Mindanao.   
+Then the Taal Volcano Phreatic Explosion. A few days after lowering the Alert Level of the Taal Volcano, the Wuhan Corona Virus penetrated our country.   
 That was just all in 1 month... Geesh!
 
 During the 2019 New Year festive, all of us were filled with optimism and hope for the coming 2020. 
