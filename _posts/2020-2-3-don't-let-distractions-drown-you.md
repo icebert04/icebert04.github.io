@@ -23,8 +23,9 @@ Let's start over and decide that our 2020 will start on the Love Month of Februa
 
 We should not let any kind of Distractions to demolish our goals. No matter how hard it is and how painful it gets, we still have time to rebound and make things great.
 
-My January started with me and my family getting all sick from the Christmas cold weather. Then our province (Batangas) got badly hit by Ashfall from the 2nd most active volcano in the Philippines.
-Now we have to defend ourselves from the deadly Corona Virus. 
+My January started with me and my family getting all sick from the Christmas cold weather.   
+Then our province (Batangas) got badly hit by Ashfall from the 2nd most active volcano in the Philippines.   
+Now we have to defend ourselves from the deadly Corona Virus.   
 All of these tragic events took time away from my schedule and definitely delayed my goals for the year. 
 
 But it didn't really bothered me anyway. I don't let Distractions destroy me. In fact, I let these disasters define me. Made me stronger and wiser to move forward. 
