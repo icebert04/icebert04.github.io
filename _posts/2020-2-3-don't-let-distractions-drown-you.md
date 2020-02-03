@@ -28,9 +28,10 @@ Then our province (Batangas) got badly hit by Ashfall from the 2nd most active v
 Now we have to defend ourselves from the deadly Corona Virus.   
 All of these tragic events took time away from my schedule and definitely delayed my goals for the year. 
 
-But it didn't really bothered me anyway. I don't let Distractions destroy me. In fact, I let these disasters define me. Made me stronger and wiser to move forward. 
+But it didn't really bothered me anyway. I don't let Distractions destroy me.   
+In fact, I let these disasters define me. Made me stronger and wiser to move forward.   
 So while all of these tragic events were happening,
-I have to adapt and slow some businesses that are affected by it. 
+I have to adapt and slow some businesses that are affected by it.   
 With that more free time, I devoted my free hours to work on other things that are not affected by these disastrous circumstances.
 
 I looked for a quiet place. Got my cat. Pulled out my laptop. And started writing. 
