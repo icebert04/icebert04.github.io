@@ -32,7 +32,7 @@ But it didn't really bothered me anyway. I don't let Distractions destroy me.
 In fact, I let these disasters define me. Made me stronger and wiser to move forward.   
 So while all of these tragic events were happening,
 I have to adapt and slow some businesses that are affected by it.   
-With that more free time, I devoted my free hours to work on other things that are not affected by these disastrous circumstances.
+With that I have more free time, I devoted my free hours to work on other things that are not affected by these disastrous circumstances.
 
 I looked for a quiet place. Got my cat. Pulled out my laptop. And started writing.   
 I started by writing campaign materials for my existing clients in the United States. I continued my Web Development projects.   
@@ -46,7 +46,7 @@ Don't let them go hanging out in the cold. Continue what you are doing best no m
 
 So if you are a Violinist with a YouTube channel.   
 Get your Violin. Grab your videocam and start uploading those videos.   
-Your fans are thirst for your music.
+Your fans hysterically thirst for your music.
 
 If you make quality and tasty Vegan Donuts.   
 Go back to baking. Fire up your oven and start notifying your customers that you are back.   
