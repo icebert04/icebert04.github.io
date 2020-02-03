@@ -3,8 +3,8 @@ published: true
 ---
 ![Start](/images/Begin Again.jpg)
 
-So how was the start of New Year for you? Not so good I bet...
-Most people had a bad month in January. In just a span of 4 weeks, there were calamities from different places. 
+So how was the start of New Year for you? Not so good I bet...   
+Most people had a bad month in January. In just a span of 4 weeks, there were calamities from different places.   
 The Australia Bushfire, the Airplane Crash in Afghanistan, Flashfloods in Indonesia, Kobe Bryant's death in a Helicopter Crash, the almost War between Iran and the USA, and of course, our country didn't take any exemptions.
 
 First, there was the big Earthquake in Mindanao. 
