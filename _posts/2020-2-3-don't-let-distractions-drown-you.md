@@ -53,7 +53,8 @@ Go back to baking. Fire up your oven and start notifying your customers that you
 Go and satisfy their hunger.
 
 It doesn't matter who you are. It doesn't matter what line of work or profession you are in. 
-People will be looking for you. They will be surprised if you stop doing what you are doing. There is no reason for you to halt. You may slow down sure, but never get your feet off the gas pedal. 
+People will be looking for you. They will be surprised if you stop doing what you are doing. There is no reason for you to halt.   
+You may slow down sure, but never get your feet off the gas pedal.   
 All of us are unique. We are all created differently with exceptional skills that we carry from the day that we were born.
 
 Distractions can slow you down, but don't let it stop you. 
