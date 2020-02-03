@@ -11,10 +11,10 @@ First, there was the big Earthquake in Mindanao.
 Then the Taal Volcano Phreatic Explosion. A few days after lowering the Alert Level of the Taal Volcano, the Wuhan Corona Virus penetrated our country.   
 That was just all in 1 month... Geesh!
 
-During the 2019 New Year festive, all of us were filled with optimism and hope for the coming 2020. 
+During the 2019 New Year festive, all of us were filled with optimism and hope for the coming 2020.   
 Our resolutions were all listed and scheduled according to plan. Little did we knew then...
 
-We were distracted by all of these catastrophes. We were buried with all of these unfortunate incidents. 
+We were distracted by all of these catastrophes. We were buried with all of these unfortunate incidents.   
 We are drowning and can hardly breathe. What do we need to do? 
 
 This I say to you. It's time to wake up, get up, and GO! 
