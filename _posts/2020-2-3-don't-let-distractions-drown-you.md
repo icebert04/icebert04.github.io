@@ -57,10 +57,10 @@ People will be looking for you. They will be surprised if you stop doing what yo
 You may slow down sure, but never get your feet off the gas pedal.   
 All of us are unique. We are all created differently with exceptional skills that we carry from the day that we were born.
 
-Distractions can slow you down, but don't let it stop you. 
-Take 1 step back in order for you to move 2 steps forward. 
-Always remember that when one door closes, another opens.
-You are too talented, too skilled, and too smart to let these distractions demoralize you. 
+Distractions can slow you down, but don't let it stop you.   
+Take 1 step back in order for you to move 2 steps forward.   
+Always remember that when one door closes, another opens.   
+You are too talented, too skilled, and too smart to let these distractions demoralize you.   
 You are way much better than that. Don't ever forget that.
 
 As I write this article, typing every single word on my relaxing Rattan sofa... I look down at my Siamese cat, petting her and murmuring to her and saying that "I am beginning again". 
