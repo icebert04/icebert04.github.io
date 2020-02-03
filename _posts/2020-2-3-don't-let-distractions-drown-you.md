@@ -63,7 +63,8 @@ Always remember that when one door closes, another opens.
 You are too talented, too skilled, and too smart to let these distractions demoralize you.   
 You are way much better than that. Don't ever forget that.
 
-As I write this article, typing every single word on my relaxing Rattan sofa... I look down at my Siamese cat, petting her and murmuring to her and saying that "I am beginning again". 
+As I write this article, typing every single word on my relaxing Rattan sofa...   
+I look down at my Siamese cat, petting her and murmuring to her and saying that **"I am beginning again"**. 
 
 We all have a purpose in this life of ours. Mine is to write and tell stories in hopes to encourage and influence my readers to somehow uplift their lives and change it for the better. 
 
