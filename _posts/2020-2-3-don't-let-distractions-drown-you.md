@@ -17,8 +17,8 @@ Our resolutions were all listed and scheduled according to plan. Little did we k
 We were distracted by all of these catastrophes. We were buried with all of these unfortunate incidents.   
 We are drowning and can hardly breathe. What do we need to do? 
 
-This I say to you. It's time to wake up, get up, and GO! 
-Full steam ahead baby!
+This I say to you. It's time to wake up, get up, and GO!   
+Full steam ahead baby!   
 Let's start over and decide that our 2020 will start on the Love Month of February. We still have hope people.
 
 We should not let any kind of Distractions to demolish our goals. No matter how hard it is and how painful it gets, we still have time to rebound and make things great.
