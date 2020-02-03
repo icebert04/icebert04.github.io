@@ -34,9 +34,9 @@ So while all of these tragic events were happening,
 I have to adapt and slow some businesses that are affected by it.   
 With that more free time, I devoted my free hours to work on other things that are not affected by these disastrous circumstances.
 
-I looked for a quiet place. Got my cat. Pulled out my laptop. And started writing. 
-I started by writing campaign materials for my existing clients in the United States. I continued my Web Development projects. 
-And now I am writing to you guys. It took a while, but I am back. 
+I looked for a quiet place. Got my cat. Pulled out my laptop. And started writing.   
+I started by writing campaign materials for my existing clients in the United States. I continued my Web Development projects.   
+And now I am writing to you guys. It took a while, but I am back.   
 I feel that I have this responsibility to give some written inspiration to my loyal readers. I owe them that. 
 
 In this time of crisis, people need any kind of inspiration in whatever forms. 
