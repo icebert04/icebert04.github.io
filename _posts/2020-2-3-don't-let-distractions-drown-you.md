@@ -68,8 +68,8 @@ I look down at my Siamese cat, petting her and murmuring to her and saying that 
 
 We all have a purpose in this life of ours. Mine is to write and tell stories in hopes to encourage and influence my readers to somehow uplift their lives and change it for the better. 
 
-I do hope that you will have a better February. And if you feel that you are still drowning, just keep on kicking your way upward.
+I do hope that you will have a better February. And if you feel that you are still drowning, just keep on kicking your way upward.   
 You're too amazing to live a miserable life. You can control your life and take charge of it. You just got to believe!
 
-Here's to you! Here's to us! Here's to a better month of February!
+Here's to you! Here's to us! Here's to a better month of February!   
 Happy New Year!
