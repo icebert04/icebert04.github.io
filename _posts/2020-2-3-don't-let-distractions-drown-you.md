@@ -39,17 +39,18 @@ I started by writing campaign materials for my existing clients in the United St
 And now I am writing to you guys. It took a while, but I am back.   
 I feel that I have this responsibility to give some written inspiration to my loyal readers. I owe them that. 
 
-In this time of crisis, people need any kind of inspiration in whatever forms. 
-If you have a little bit of a following, you should take care of them. They are your responsibility.
-There is a reason why they followed you in the first place.
+In this time of crisis, people need any kind of inspiration in whatever forms.   
+If you have a little bit of a following, you should take care of them. They are your responsibility.   
+There is a reason why they followed you in the first place.   
 Don't let them go hanging out in the cold. Continue what you are doing best no matter what life brings you. 
 
-So if you are a Violinist with a YouTube channel. 
-Get your Violin. Grab your videocam and start uploading those videos.
+So if you are a Violinist with a YouTube channel.   
+Get your Violin. Grab your videocam and start uploading those videos.   
 Your fans are thirst for your music.
 
-If you make quality and tasty Vegan Donuts. 
-Go back to baking. Fire up your oven and start notifying your customers that you are back. Go and satisfy their hunger.
+If you make quality and tasty Vegan Donuts.   
+Go back to baking. Fire up your oven and start notifying your customers that you are back.   
+Go and satisfy their hunger.
 
 It doesn't matter who you are. It doesn't matter what line of work or profession you are in. 
 People will be looking for you. They will be surprised if you stop doing what you are doing. There is no reason for you to halt. You may slow down sure, but never get your feet off the gas pedal. 
