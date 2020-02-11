@@ -16,8 +16,8 @@ Recently, I received a message from Belgium. Her name is Mael. Mael is such a do
 So Mael called and indicated that she is coming over with a partner. 
 We assumed that it's going to be her boyfriend or husband. But lo and behold, she came in with an unexpected partner... Mael came in with her Mother.
 
-I was shocked! It's not that we never experienced guests who are family, but we rarely received guests that are not lovers. 
-Mael and her "Mum" spent one night with us then took off first thing in the morning for their flight to Palawan. 
+I was shocked! It's not that we never experienced guests who are family, but we rarely received guests that are not lovers.   
+Mael and her **"Mum"** spent one night with us then took off first thing in the morning for their flight to Palawan.   
 During their stay in our place, we noticed that they are the happiest traveling partners that we have ever received. 
 They are so close together, we even thought that they were sisters.
 
