@@ -12,7 +12,7 @@ We accept guests from different forms and sizes.
 From newlyweds, to senior citizen retirees, to boyfriend-girlfriend types, we even have individuals who bring along their mistresses.   
 They always come in twos... always as lovers.
 
-Recently, I received a message from Belgium. Her name is Mael. Mael is such a doll. She got the smile that could melt any guy's heart. 
+Recently, I received a message from Belgium. Her name is Mael. Mael is such a doll. She got the smile that could melt any guy's heart.   
 So Mael called and indicated that she is coming over with a partner. 
 We assumed that it's going to be her boyfriend or husband. But lo and behold, she came in with an unexpected partner... Mael came in with her Mother.
 
