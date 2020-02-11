@@ -30,8 +30,8 @@ I was never close to my Mother. She and My Dad separated when I was still an inf
 I spent most of my school time in my Dad's place. Then off to my Mom's place on the weekend. But I rarely see her.   
 She is always busy doing something else. It's her Mom (my Grandmother) who takes care of me over the weekend.
 
-It's only later on my Mom's life where I get to bond with her. My Mother bought a big house in Quezon City and invited me to stay with her. It was an offer that I can't resist.
-During those times, my Mom and I bonded and catch up on a lot of things. We spent a lot of time in the dining table talking about life in general. 
+It's only later on my Mom's life where I get to bond with her. My Mother bought a big house in Quezon City and invited me to stay with her. It was an offer that I can't resist.   
+During those times, my Mom and I bonded and catch up on a lot of things. We spent a lot of time in the dining table talking about life in general.   
 My Mom also taught me to give importance to Travel (A thing that I don't prioritize in).
 
 In the past, I was used to spend most of my savings on materials things. My Mother taught me otherwise. 
