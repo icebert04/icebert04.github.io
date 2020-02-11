@@ -41,17 +41,18 @@ I didn't believe her at first. I knew back then that all of that is just unneces
 I was wrong. My Mom and I traveled to many places, both local and foreign. As we moved from one place to another, I started to notice that my Mother was right.   
 Traveling broadened my horizon. It gave me a deeper perspective on life. It was one of the best real-life education that I received outside of my traditional schooling. 
 
-But the most important fact is that I get to spend quality time together with my Mom. She passed away 8 years ago but I will forever cherish our time together, most especially our travels together. 
+But the most important fact is that I get to spend quality time together with my Mom. She passed away 8 years ago but I will forever cherish our time together, most especially our travels together.   
 Whenever I feel lonely and start to miss her, I just close my eyes and think of all the places that we traveled together. There were so many of them. So many places and memories to revisit.
 
-The Belgium girl Mael, me, and soon my kids will forever be lucky and fortunate that we have spent time with the best person in the world. 
+The Belgium girl Mael, me, and soon my kids will forever be lucky and fortunate that we have spent time with the best person in the world.   
 Creating beautiful memoirs that will last a lifetime.
 
 I do hope that you do that too. Call your mother now before it's too late. 
-It doesn't need to be expensive. You can even invite her for dinner for starters. 
+It doesn't need to be expensive. You can even invite her for dinner for starters.   
 Go to places that you both like. Take lots of photos. Shoot videos if you must. 
 
-Life is too short. Your mother can be here today and gone tomorrow. Don't procrastinate. Do it now. 
+Life is too short. Your mother can be here today and gone tomorrow.   
+Don't procrastinate. Do it now. 
 
-And once you followed my advice. You will come thank me one day and say that I am truly right. 
-You will now fully believe that the Best Travel Partner is your Mother!
+And once you followed my advice. You will come thank me one day and say that I am truly right.   
+You will now fully believe that the **Best Travel Partner is your Mother**!
