@@ -7,9 +7,9 @@ published: true
 
 Is traveling with your parents a good idea? Allow me to share this story...
 
-We accept guests from our Rental Property almost every day. Whether they are foreign or local, they mostly come in pairs. And why not, traveling with your special someone is the most ideal travel plan (not to mention romantic). 
+We accept guests from our Rental Property almost every day. Whether they are foreign or local, they mostly come in pairs. And why not, traveling with your special someone is the most ideal travel plan (not to mention romantic).   
 We accept guests from different forms and sizes. 
-From newlyweds, to senior citizen retirees, to boyfriend-girlfriend types, we even have individuals who bring along their mistresses. 
+From newlyweds, to senior citizen retirees, to boyfriend-girlfriend types, we even have individuals who bring along their mistresses.   
 They always come in twos... always as lovers.
 
 Recently, I received a message from Belgium. Her name is Mael. Mael is such a doll. She got the smile that could melt any guy's heart. 
