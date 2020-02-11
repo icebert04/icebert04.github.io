@@ -22,7 +22,8 @@ During their stay in our place, we noticed that they are the happiest traveling 
 They are so close together, we even thought that they were sisters.
 
 People nowadays are so fixated with the honeymoon travel plan that sometimes they forget somebody behind. 
-Like their family member for instance. Wouldn't it be nice if you get to travel with the person who brought you to this world? The lady who carried you for 9 straight months. 
+Like their family member for instance.   
+Wouldn't it be nice if you get to travel with the person who brought you to this world? The lady who carried you for 9 straight months.   
 The woman who breastfeed you, bathe you, and nurtured you from beginning to end. 
 
 I was never close to my Mother. She and My Dad separated when I was still an infant. 
