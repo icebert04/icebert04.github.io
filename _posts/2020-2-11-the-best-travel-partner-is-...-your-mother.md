@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Mom](/images/Travel Partner.jpg)
