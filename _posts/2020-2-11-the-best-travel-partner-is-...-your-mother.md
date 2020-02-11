@@ -38,7 +38,7 @@ In the past, I was used to spend most of my savings on materials things. My Moth
 She said that Traveling is by far the best thing that each individual should give time in. 
 I didn't believe her at first. I knew back then that all of that is just unnecessary expense.
 
-I was wrong. My Mom and I traveled to many places, both local and foreign. As we moved from one place to another, I started to notice that my Mother was right.
+I was wrong. My Mom and I traveled to many places, both local and foreign. As we moved from one place to another, I started to notice that my Mother was right.   
 Traveling broadened my horizon. It gave me a deeper perspective on life. It was one of the best real-life education that I received outside of my traditional schooling. 
 
 But the most important fact is that I get to spend quality time together with my Mom. She passed away 8 years ago but I will forever cherish our time together, most especially our travels together. 
