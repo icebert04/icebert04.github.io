@@ -26,8 +26,8 @@ Like their family member for instance.
 Wouldn't it be nice if you get to travel with the person who brought you to this world? The lady who carried you for 9 straight months.   
 The woman who breastfeed you, bathe you, and nurtured you from beginning to end. 
 
-I was never close to my Mother. She and My Dad separated when I was still an infant. 
-I spent most of my school time in my Dad's place. Then off to my Mom's place on the weekend. But I rarely see her. 
+I was never close to my Mother. She and My Dad separated when I was still an infant.   
+I spent most of my school time in my Dad's place. Then off to my Mom's place on the weekend. But I rarely see her.   
 She is always busy doing something else. It's her Mom (my Grandmother) who takes care of me over the weekend.
 
 It's only later on my Mom's life where I get to bond with her. My Mother bought a big house in Quezon City and invited me to stay with her. It was an offer that I can't resist.
