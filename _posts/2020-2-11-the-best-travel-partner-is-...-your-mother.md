@@ -34,7 +34,7 @@ It's only later on my Mom's life where I get to bond with her. My Mother bought 
 During those times, my Mom and I bonded and catch up on a lot of things. We spent a lot of time in the dining table talking about life in general.   
 My Mom also taught me to give importance to Travel (A thing that I don't prioritize in).
 
-In the past, I was used to spend most of my savings on materials things. My Mother taught me otherwise. 
+In the past, I was used to spend most of my savings on materials things. My Mother taught me otherwise.   
 She said that Traveling is by far the best thing that each individual should give time in. 
 I didn't believe her at first. I knew back then that all of that is just unnecessary expense.
 
