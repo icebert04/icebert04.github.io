@@ -47,7 +47,7 @@ If you think you are too old or too busy to create one Agri project for you... t
 Not only did you able to help our economy but you will also get to bring home their fresh produce.
 Teach your children if you must. Whether it's Rabbitry, Insect cultivation, or Urban farming.
 
-Trust me, I grew up in a family where there is so much food to go around that you have to invite other people to come in in order to consume all of it. 
+Trust me, I grew up in a family where there is so much food to go around that you have to invite other people to come in in order to consume all of it.   
 Our home had too much mangoes that we have to give away some of them. When you have lands and make good use of it, it could really benefit you and your family.
 
 And for those who don't have any.... you don't need to worry. You can plant a few vegetables in recyclable pots and pans in your small balcony. Good enough to go with your favorite pasta dishes.
