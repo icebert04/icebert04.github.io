@@ -43,7 +43,7 @@ Until now, I never stop doing Agricultural business ventures. May it be mine alo
 As far as I know, Agriculture is the only business that never gets obsolete. No matter how advanced we get, agriculture will always be a necessity for mankind.   
 We eat 3 times a day (sometimes more). If we didn't give priority to Agriculture, what will we become of us?
 
-If you think you are too old or too busy to create one Agri project for you... then why don't you help a local farmer. 
+If you think you are too old or too busy to create one Agri project for you... then why don't you help a local farmer.   
 Not only did you able to help our economy but you will also get to bring home their fresh produce.
 Teach your children if you must. Whether it's Rabbitry, Insect cultivation, or Urban farming.
 
