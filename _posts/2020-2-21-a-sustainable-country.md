@@ -24,12 +24,12 @@ If the government won't help us, why don't we help ourselves?
 We have the means to convert our idle lands to something useful. It doesn't need to be on a large commercial scale.   
 A land for personal consumption would suffice. 
 
-Just look around you. We have food everywhere. 
-Do you know that I saw lots of empty building attics and empty lots in EDSA while I was riding the MRT train?
+Just look around you. We have food everywhere.   
+Do you know that I saw lots of empty building attics and empty lots in EDSA while I was riding the MRT train?   
 Imagine if we convert those building rooftops for Cherry Tomato and Eggplant farm areas.
-Or create Chicken cages for laying our favorite brown eggs. 
-If we can sustain these, it will possible to eliminate the greedy middlemen for overpricing the supposedly cheap farm produce.
-Sometimes I wonder why strawberries from Benguet province cost so much when is not that really far from Manila? We need to change this corrupt and disgraceful system.
+Or create Chicken cages for laying our favorite brown eggs.   
+If we can sustain these, it will possible to eliminate the greedy middlemen for overpricing the supposedly cheap farm produce.   
+Sometimes I wonder why strawberries from Benguet province cost so much when is not that really far from Manila? We need to change this corrupt and disgraceful system.   
 It's up to us ordinary citizens to improve that. We should not allow this freaky old fashioned system to continue to the next generation.
 
 My family on my Mom's side (Martinez Clan) was fortunate to have multiple Agricultural lands in the province of Batangas. There were varieties of farm from each family member. 
