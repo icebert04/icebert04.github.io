@@ -17,7 +17,7 @@ Wouldn't it be nice if the food that we are eating is potent and organic? Giving
 The Philippines has been blessed with rich lands and abundant of rich marine life. However, we failed to take advantage of these. 
 We barely export our products and the sad part of it we need to import some basic commodities (like rice) from other countries where supposedly we have more than enough to provide to our countrymen.
 
-We don't also get enough support from our government and some farmers are forced to sell their lands at a cheap price to convert it to more residential properties to our skyrocketing population. 
+We don't also get enough support from our government and some farmers are forced to sell their lands at a cheap price to convert it to more residential properties to our skyrocketing population.   
 The lack of subsidy and education has diverted the attention of most farmers and landowners to other income-producing assets.
 
 If the government won't help us, why don't we help ourselves? 
