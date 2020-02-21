@@ -20,8 +20,8 @@ We barely export our products and the sad part of it we need to import some basi
 We don't also get enough support from our government and some farmers are forced to sell their lands at a cheap price to convert it to more residential properties to our skyrocketing population.   
 The lack of subsidy and education has diverted the attention of most farmers and landowners to other income-producing assets.
 
-If the government won't help us, why don't we help ourselves? 
-We have the means to convert our idle lands to something useful. It doesn't need to be on a large commercial scale. 
+If the government won't help us, why don't we help ourselves?   
+We have the means to convert our idle lands to something useful. It doesn't need to be on a large commercial scale.   
 A land for personal consumption would suffice. 
 
 Just look around you. We have food everywhere. 
