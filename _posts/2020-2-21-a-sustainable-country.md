@@ -33,7 +33,7 @@ Sometimes I wonder why strawberries from Benguet province cost so much when is n
 It's up to us ordinary citizens to improve that. We should not allow this freaky old fashioned system to continue to the next generation.
 
 My family on my Mom's side (Martinez Clan) was fortunate to have multiple Agricultural lands in the province of Batangas. There were varieties of farm from each family member. 
-But most of those are sugarcane plantation back in the day.
+But most of those are sugarcane plantation back in the day.   
 But slowly, most of these lands were sold, mortgaged, and even abandoned.
 The newer generation never got the interest to continue what their Grandparents started.
 
