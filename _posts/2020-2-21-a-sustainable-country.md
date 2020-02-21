@@ -37,7 +37,7 @@ But most of those are sugarcane plantation back in the day.
 But slowly, most of these lands were sold, mortgaged, and even abandoned.
 The newer generation never got the interest to continue what their Grandparents started.
 
-I made it a point to save some of those Agri lands. Not only for me but for my children and my future grandchildren.
+I made it a point to save some of those Agri lands. Not only for me but for my children and my future grandchildren.   
 Until now, I never stop doing Agricultural business ventures. May it be mine alone, partnership, or even be-friending strangers who have a promising Agri project that needs boosting and more exposure on the internet. 
 
 As far as I know, Agriculture is the only business that never gets obsolete. No matter how advanced we get, agriculture will always be a necessity for mankind.
