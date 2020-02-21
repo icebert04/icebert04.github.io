@@ -10,7 +10,7 @@ Believe me, it took almost half an hour just to unload these farm produce out of
 
 These produce by the way will last for more than a week for me and my family. Not only we save some money, but we are secured to know that we are eating fresh and organic food.
 
-Wouldn't it be nice if all of us have "Free Food" from our source of land not so far away from our home?  
+Wouldn't it be nice if all of us have **"Free Food"** from our source of land not so far away from our home?  
 Wouldn't it be nice that we don't have to go to the grocery that often?   
 Wouldn't it be nice if the food that we are eating is potent and organic? Giving us the healthy lifestyle that we badly needed.
 
