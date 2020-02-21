@@ -5,7 +5,7 @@ published: true
 
 I arrived home in Manila with 1 sack of rice, 6 kilos each of pork and chicken, 4 kilos of seafood variety, 3/4 sack full of green bananas, 2 boxes of quail eggs, 1/2 sack of sweet corn,  1 box of romaine lettuce, and other fruits and vegetables.
 
-All of these came from my province in Batangas. Not all of them came from my land though. Some were given as gifts from fellow farmers and some were bought at a very low price.
+All of these came from my province in Batangas. Not all of them came from my land though. Some were given as gifts from fellow farmers and some were bought at a very low price.   
 Believe me, it took almost half an hour just to unload these farm produce out of our car.
 
 These produce by the way will last for more than a week for me and my family. Not only we save some money, but we are secured to know that we are eating fresh and organic food.
