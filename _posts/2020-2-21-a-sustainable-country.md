@@ -40,7 +40,7 @@ The newer generation never got the interest to continue what their Grandparents 
 I made it a point to save some of those Agri lands. Not only for me but for my children and my future grandchildren.   
 Until now, I never stop doing Agricultural business ventures. May it be mine alone, partnership, or even be-friending strangers who have a promising Agri project that needs boosting and more exposure on the internet. 
 
-As far as I know, Agriculture is the only business that never gets obsolete. No matter how advanced we get, agriculture will always be a necessity for mankind.
+As far as I know, Agriculture is the only business that never gets obsolete. No matter how advanced we get, agriculture will always be a necessity for mankind.   
 We eat 3 times a day (sometimes more). If we didn't give priority to Agriculture, what will we become of us?
 
 If you think you are too old or too busy to create one Agri project for you... then why don't you help a local farmer. 
