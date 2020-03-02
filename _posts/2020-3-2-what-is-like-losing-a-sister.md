@@ -62,8 +62,9 @@ I double-checked if there are still some documents to fulfill. Then we gave our 
 As she walks further to her designated parking spot. I stood there in a distance, observing her from afar.
 As she fades out from my sight little by little, so goes my tears going down my cheeks.
 
-I guess that is the role of the "Kuya". 
-You make sure that your beloved sisters are in a happy place. You set aside your personal grief and desolation.
+I guess that is the role of the **"Kuya"**. 
+You make sure that your beloved sisters are in a happy place.   
+You set aside your personal grief and desolation.
 You make sure that they are protected and away from harm.
 
 I lost a sister and I'm going to lose another. But my love for them is undying. 
