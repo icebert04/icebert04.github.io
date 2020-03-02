@@ -45,7 +45,7 @@ As we ate and bonded in a restaurant of our choosing, it came to my mind that th
 Meryl won't be leaving for Canada if we still have the majority of lands and businesses. Our connections are not as lively and helpful as it once was.   
 We don't have much choice but to use the only thing that people can't take away from us...
 
-1.) Our Skills => Applying our skills to the fullest to attain mid-level to high paying salary and earnings. 
+1.) Our Skills => Applying our skills to the fullest to attain mid-level to high paying salary and earnings.   
 With our skill set, we can secure new properties and businesses. Redeeming not of we lost but for our own personal glory.
 
 2.) Our Dignity => Being helpful to others is what we do best. We don't ask anything in return or brag about it. We just do it because it is who we are.
