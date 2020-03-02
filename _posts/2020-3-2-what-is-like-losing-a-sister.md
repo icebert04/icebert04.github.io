@@ -25,10 +25,10 @@ Meryl is the 2nd to the youngest in the family. The most generous that my Mother
 If you think that her irresistible dimple amuses you, wait till you get to personally know her.
 Her sweetness is overflowing, but her endless of thoughtfulness is what truly defines her.
 
-Of all the 6 siblings, only me and Meryl are the favorite of our Grandmother (we call her Tita Caring). 
+Of all the 6 siblings, only me and Meryl are the favorite of our Grandmother (we call her Tita Caring).   
 I took my curiosity to a certain extent to find out why. 
-People say we are the favorites because of our kindness and our utmost thoughtfulness towards other people's feelings.
-I don't know about me, but I can vouch for my sister. 
+People say we are the favorites because of our kindness and our utmost thoughtfulness towards other people's feelings.   
+I don't know about me, but I can vouch for my sister.   
 Meryl goes out of her way to help people. Most of the time she sacrifices her personal time, her love life, and even her career to help those people who some say doesn't deserve that kind of assistance.
 
 Meryl doesn't care. She just goes on her way helping the security guards, the side street sweepers, the lost and confused, the spoiled and rotten, and the people who we consider borderline evil.
