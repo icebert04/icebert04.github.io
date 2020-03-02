@@ -34,11 +34,11 @@ Meryl goes out of her way to help people. Most of the time she sacrifices her pe
 Meryl doesn't care. She just goes on her way helping the security guards, the side street sweepers, the lost and confused, the spoiled and rotten, and the people who we consider borderline evil.   
 She is even willing to offer her sacrificial hand even if it gets bitten repeatedly.
 
-And now she is leaving. It's hard not to beg for her to stay. And so Meryl called me one time and said this...
-"Hi Kuya, I'm planning to leave for Canada soon. Can you help me with the necessary requirements?"
-
+And now she is leaving. It's hard not to beg for her to stay.   
+And so Meryl called me one time and said this...
+**"Hi Kuya, I'm planning to leave for Canada soon. Can you help me with the necessary requirements?"**
 Instead of arguing, disagreeing, and silently sabotaging her plans, I replied by saying this...
-"Sure baby, Your wish is my command!"
+**"Sure baby, Your wish is my command!"**
 
 And so we did, we went to complete her travel and work documents. Then we ate lunch after.
 As we ate and bonded in a restaurant of our choosing, it came to my mind that the cards that are dealt to me and my dearest sister is not as good as it once were.
