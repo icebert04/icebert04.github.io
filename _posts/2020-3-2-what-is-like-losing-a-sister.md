@@ -40,9 +40,9 @@ And so Meryl called me one time and said this...
 Instead of arguing, disagreeing, and silently sabotaging her plans, I replied by saying this...
 **"Sure baby, Your wish is my command!"**
 
-And so we did, we went to complete her travel and work documents. Then we ate lunch after.
-As we ate and bonded in a restaurant of our choosing, it came to my mind that the cards that are dealt to me and my dearest sister is not as good as it once were.
-Meryl won't be leaving for Canada if we still have the majority of lands and businesses. Our connections are not as lively and helpful as it once was. 
+And so we did, we went to complete her travel and work documents. Then we ate lunch after.   
+As we ate and bonded in a restaurant of our choosing, it came to my mind that the cards that are dealt to me and my dearest sister is not as good as it once were.   
+Meryl won't be leaving for Canada if we still have the majority of lands and businesses. Our connections are not as lively and helpful as it once was.   
 We don't have much choice but to use the only thing that people can't take away from us...
 
 1.) Our Skills => Applying our skills to the fullest to attain mid-level to high paying salary and earnings. 
