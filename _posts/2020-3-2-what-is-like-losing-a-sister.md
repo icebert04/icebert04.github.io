@@ -8,11 +8,10 @@ They are so sweet, kind, and always there for you whenever you need them.
 They are like fairies and fairy godmothers who will do their best to grant your every wish. You will always get their support no matter what.
 
 So when I lost my youngest sister due to Aneurysm, the world suddenly came to a halt. 
-She is the sweetest thing that came to my ever dull life. 
+She is the sweetest thing that came to my ever dull life.   
 We sing a lot, play the guitar, share books, and regularly watch movies on the big screen.
-Until her last few years before her sudden death, Roberta (I call her Roberts) was always there for me.
-In fact, she was my Social Media Manager even before Friendillion came to existence. She was the first one to Like, Comment and Share even when my article (or Facebook post) was not that good. 
-The youngest of the brood supported the eldest every step of the way... believing in my potential and what I could have become.
+Until her last few years before her sudden death, Roberta (I call her Roberts) was always there for me.   
+In fact, she was my Social Media Manager even before Friendillion came to existence. She was the first one to Like, Comment and Share even when my article (or Facebook post) was not that good. The youngest of the brood supported the eldest every step of the way... believing in my potential and what I could have become.   
 A part of me died witnessing my dearest sister being buried underground.
 
 3 challenging years after, after somewhat recovering from a terrible storm. I am experiencing it again... the pain and suffering are going back again.
