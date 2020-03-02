@@ -48,7 +48,7 @@ We don't have much choice but to use the only thing that people can't take away 
 1.) Our Skills => Applying our skills to the fullest to attain mid-level to high paying salary and earnings.   
 With our skill set, we can secure new properties and businesses. Redeeming not of we lost but for our own personal glory.
 
-2.) Our Dignity => Being helpful to others is what we do best. We don't ask anything in return or brag about it. We just do it because it is who we are.
+2.) Our Dignity => Being helpful to others is what we do best. We don't ask anything in return or brag about it. We just do it because it is who we are.   
 We've always been respected and valued for what we believe in and how we live our life.
 
 I know Meryl will do fine because of her solid Skills and Dignity. 
