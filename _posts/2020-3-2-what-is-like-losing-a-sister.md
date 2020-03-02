@@ -31,7 +31,7 @@ People say we are the favorites because of our kindness and our utmost thoughtfu
 I don't know about me, but I can vouch for my sister.   
 Meryl goes out of her way to help people. Most of the time she sacrifices her personal time, her love life, and even her career to help those people who some say doesn't deserve that kind of assistance.
 
-Meryl doesn't care. She just goes on her way helping the security guards, the side street sweepers, the lost and confused, the spoiled and rotten, and the people who we consider borderline evil.
+Meryl doesn't care. She just goes on her way helping the security guards, the side street sweepers, the lost and confused, the spoiled and rotten, and the people who we consider borderline evil.   
 She is even willing to offer her sacrificial hand even if it gets bitten repeatedly.
 
 And now she is leaving. It's hard not to beg for her to stay. And so Meryl called me one time and said this...
