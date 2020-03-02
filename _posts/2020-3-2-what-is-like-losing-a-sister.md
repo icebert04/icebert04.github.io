@@ -52,7 +52,7 @@ With our skill set, we can secure new properties and businesses. Redeeming not o
 We've always been respected and valued for what we believe in and how we live our life.
 
 I know Meryl will do fine because of her solid Skills and Dignity. 
-Wherever she goes, people will respect and love her. 
+Wherever she goes, people will respect and love her.   
 She values her work and profession just almost the same that she gives importance to her family members.
 She will be an Asset of whatever country she goes to. 
 
