@@ -37,6 +37,7 @@ She is even willing to offer her sacrificial hand even if it gets bitten repeate
 And now she is leaving. It's hard not to beg for her to stay.   
 And so Meryl called me one time and said this...
 **"Hi Kuya, I'm planning to leave for Canada soon. Can you help me with the necessary requirements?"**
+
 Instead of arguing, disagreeing, and silently sabotaging her plans, I replied by saying this...
 **"Sure baby, Your wish is my command!"**
 
