@@ -56,7 +56,8 @@ Wherever she goes, people will respect and love her.
 She values her work and profession just almost the same that she gives importance to her family members.
 She will be an Asset of whatever country she goes to. 
 
-After our lunch, I accompanied Meryl to the mall parking lot. I double-checked if there are still some documents to fulfill. Then we gave our temporary goodbyes.
+After our lunch, I accompanied Meryl to the mall parking lot.   
+I double-checked if there are still some documents to fulfill. Then we gave our temporary goodbyes.
 
 As she walks further to her designated parking spot. I stood there in a distance, observing her from afar.
 As she fades out from my sight little by little, so goes my tears going down my cheeks.
