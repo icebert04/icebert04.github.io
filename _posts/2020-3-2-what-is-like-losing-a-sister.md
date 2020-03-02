@@ -14,11 +14,12 @@ Until her last few years before her sudden death, Roberta (I call her Roberts) w
 In fact, she was my Social Media Manager even before Friendillion came to existence. She was the first one to Like, Comment and Share even when my article (or Facebook post) was not that good. The youngest of the brood supported the eldest every step of the way... believing in my potential and what I could have become.   
 A part of me died witnessing my dearest sister being buried underground.
 
-3 challenging years after, after somewhat recovering from a terrible storm. I am experiencing it again... the pain and suffering are going back again.
+3 challenging years after, after somewhat recovering from a terrible storm.   
+I am experiencing it again... the pain and suffering are going back again.   
 This time it's my other sister who is leaving me. 
 Meryl has declared that she wants to migrate to another country and stay there for good.
-She said that she is prime to maximize her Nursing career to its fullest. 
-I grasp for oxygen when I've heard the news. I said to myself... "This can't be happening"!
+She said that she is prime to maximize her Nursing career to its fullest.   
+I grasp for oxygen when I've heard the news. I said to myself... **"This can't be happening"**!
 
 Meryl is the 2nd to the youngest in the family. The most generous that my Mother ever produced. 
 If you think that her irresistible dimple amuses you, wait till you get to personally know her.
