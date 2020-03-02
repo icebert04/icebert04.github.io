@@ -67,7 +67,7 @@ You make sure that your beloved sisters are in a happy place.
 You set aside your personal grief and desolation.
 You make sure that they are protected and away from harm.
 
-I lost a sister and I'm going to lose another. But my love for them is undying. 
-No matter how far they are, No matter how difficult it gets, 
+I lost a sister and I'm going to lose another. But my love for them is undying.   
+No matter how far they are, No matter how difficult it gets,   
 I'll make sure that they are aware that I'm always there for them... my forever babies!  
 
