@@ -28,7 +28,7 @@ In due time, the COVID-19 will subside. We will get out of this and bounce back.
 Everything will go back to normal. Business as usual.
 
 The question is...
-"When will we ever learn"?
+**"When will we ever learn"?**
 
 We people are stubborn in nature. Time and time again we always show our dogged determination not to change our attitude or position on something, even in spite of good reasons to do so.
 We wait for something bad to happen, We get hurt, then that's the only time we react. 
