@@ -24,7 +24,8 @@ The elders, the infants, and those who have health conditions are critically in 
 
 It's very scary I know. But like most experts say that
 **"It will all get worse before it gets better".**
-In due time, the COVID-19 will subside. We will get out of this and bounce back.
+
+In due time, the COVID-19 will subside. We will get out of this and bounce back.   
 Everything will go back to normal. Business as usual.
 
 The question is...
