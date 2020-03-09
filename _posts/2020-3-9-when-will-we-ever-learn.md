@@ -4,7 +4,8 @@ published: true
 ![Outbreak](/images/Cov19.jpg)
 
 As I wait for the train at Magallanes station, I discreetly observed the people around me. 
-Then I realized the great number of these people. A horde of the working class who take this very train out of necessity. 
+Then I realized the great number of these people.   
+A horde of the working class who take this very train out of necessity. 
 Metro Manila is one of the most densely populated cities in the world with an estimated population of 21.3 million.
 That doesn't include those who lived in nearby provinces like Cavite, Bulacan, etc.
 And with the current local transmission of the dreaded COVID-19 virus, it just a matter of time that our government will declare an Alert Level 1 and initiate a lockdown. 
