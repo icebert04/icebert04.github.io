@@ -32,7 +32,7 @@ The question is...
 **"When will we ever learn"?**
 
 We people are stubborn in nature. Time and time again we always show our dogged determination not to change our attitude or position on something, even in spite of good reasons to do so.   
-We wait for something bad to happen, We get hurt, then that's the only time we react. 
+We wait for something bad to happen, We get hurt, then that's the only time we react.   
 We have to experience any bad things that come our way before we learn our lesson.
 
 Some people do learn but unfortunately, most do not.
