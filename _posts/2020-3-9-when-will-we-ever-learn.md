@@ -22,7 +22,7 @@ Stocks are plunging, Air flights have fallen sharply, factories are closing down
 The world's health is in jeopardy. As of today, there are 110,00 cases and close to 4,000 deaths as we speak.
 The elders, the infants, and those who have health conditions are critically in danger.
 
-It's very scary I know. But like most experts say that
+It's very scary I know. But like most experts say that   
 **"It will all get worse before it gets better".**
 
 In due time, the COVID-19 will subside. We will get out of this and bounce back.   
