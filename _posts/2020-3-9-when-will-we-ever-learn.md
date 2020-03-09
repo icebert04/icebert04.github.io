@@ -11,7 +11,8 @@ And with the current local transmission of the dreaded COVID-19 virus, it just a
 By the time that happens those other people who are infected will be spreading the disease in their respective provinces.   
 Our country and its citizen will be massively overwhelmed.
 
-I'm not trying to scare you but we have seen and read proof and evidence to foreign countries that were gravely hit before us. Progressive countries like South Korea and Italy. There is also Japan, Singapore, and the United States.
+I'm not trying to scare you but we have seen and read proof and evidence to foreign countries that were gravely hit before us.   
+Progressive countries like South Korea and Italy. There is also Japan, Singapore, and the United States.   
 Even the powerhouse economic country like China succumb to this almost invisible virus which we all know is the source of all of it. 
 
 Everybody is taking a hit. The world's economy is down. 
