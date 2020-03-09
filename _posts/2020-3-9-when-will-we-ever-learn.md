@@ -16,15 +16,14 @@ Progressive countries like South Korea and Italy. There is also Japan, Singapore
 Even the powerhouse economic country like China succumb to this almost invisible virus which we all know is the source of all of it. 
 
 Everybody is taking a hit. The world's economy is down. 
-We might go into recession or going currently into it as we speak.
+We might go into recession or going currently into it as we speak.   
 Stocks are plunging, Air flights have fallen sharply, factories are closing down, Tourism is witnessing a dip, and it is snarling supply chains and disrupting companies.
 
 The world's health is in jeopardy. As of today, there are 110,00 cases and close to 4,000 deaths as we speak.
 The elders, the infants, and those who have health conditions are critically in danger.
 
 It's very scary I know. But like most experts say that
-"It will all get worse before it gets better".
-
+**"It will all get worse before it gets better".**
 In due time, the COVID-19 will subside. We will get out of this and bounce back.
 Everything will go back to normal. Business as usual.
 
