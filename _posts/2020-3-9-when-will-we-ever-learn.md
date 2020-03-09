@@ -51,8 +51,8 @@ But instead, we see this...
 Grabbing the neighbor's territories and assets for their own selves. 
 Producing mass weapons for their own created civil war. 
 
-Too much hatred, too much viciousness, living in a no remorse state of mind.
-Greed has taken the most of us. We have to surround ourselves with material things mistakenly thinking that it will impress the people around you.
+Too much hatred, too much viciousness, living in a no remorse state of mind.   
+Greed has taken the most of us. We have to surround ourselves with material things mistakenly thinking that it will impress the people around you.   
 But in fact, it has caused a domino effect where it was passed on from the next person to the next creating a highly insecure and volatile world.
 
 We know based on history that we never learn. From the Bible's Noah's Ark, The Spanish Influenza Pandemic,
