@@ -55,10 +55,12 @@ Too much hatred, too much viciousness, living in a no remorse state of mind.
 Greed has taken the most of us. We have to surround ourselves with material things mistakenly thinking that it will impress the people around you.   
 But in fact, it has caused a domino effect where it was passed on from the next person to the next creating a highly insecure and volatile world.
 
-We know based on history that we never learn. From the Bible's Noah's Ark, The Spanish Influenza Pandemic,
+We know based on history that we never learn.   
+From the Bible's Noah's Ark, The Spanish Influenza Pandemic,
 World War 1 and 2. And now this... the COVID-19 crisis.
 
-Just imagine if this existing coronavirus pulled us out from our comfort zone. We lost our jobs and our businesses.
+Just imagine if this existing coronavirus pulled us out from our comfort zone.   
+We lost our jobs and our businesses.
 There is not enough food to buy in the city that we live in.
 
 And since we love ourselves so dearly, we are forced to move out to our provinces. The once-forgotten place is now our new home.
