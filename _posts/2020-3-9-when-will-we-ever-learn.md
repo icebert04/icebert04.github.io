@@ -68,12 +68,13 @@ The once-forgotten place is now our new home.
 We are now living amongst the trees. We are starting to realize the benefit of our trees. We get their juicy fruit and eat it.   
 Our kids climb up on it with a cheering face. We put shelter on it while it protects us from the heat of the sun and the blaze of the wind from the storm.
 
-Then we walk towards the nearest river. We cleanse our bodies and quench our thirst. The sounds of the water give us calm and tranquility.
+Then we walk towards the nearest river. We cleanse our bodies and quench our thirst.   
+The sounds of the water give us calm and tranquility.
 
 At night, we set some wood from the trees that we live in and create a fire to have our supper. After the feast, we then realize the real beauty of what our creator made for us.
 
 We look at the full moon and her radiance light puts us to sleep happily and soundly.
 
 I believe, we the stubborn people, must witness this. 
-How mother nature truly loves us.
-If we do this and got to reawaken by the beauty of it then maybe, just maybe... "We Will Finally Learn"!
+How mother nature truly loves us.   
+If we do this and got to reawaken by the beauty of it then maybe, just maybe... **"We Will Finally Learn"!**
