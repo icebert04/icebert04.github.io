@@ -77,4 +77,5 @@ We look at the full moon and her radiance light puts us to sleep happily and sou
 
 I believe, we the stubborn people, must witness this. 
 How mother nature truly loves us.   
-If we do this and got to reawaken by the beauty of it then maybe, just maybe... **"We Will Finally Learn"!**
+If we do this and got to reawaken by the beauty of it then maybe, just maybe...   
+**"We Will Finally Learn"!**
