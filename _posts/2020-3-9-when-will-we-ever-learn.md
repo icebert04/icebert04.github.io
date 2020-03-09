@@ -46,8 +46,8 @@ Humans may overpopulate the Earth's carrying capacity and disrupt its natural ec
 It's nature's instinctive way to balance the population caused solely by us... the stubborn people! 
 
 Regardless of our religion is, we have seen a great number of signs that we should change. 
-Not only to love humankind but mother nature as well. Protecting the wild and endangered animals instead of killing it and making a profit from it.
-But instead, we see this...
+Not only to love humankind but mother nature as well. Protecting the wild and endangered animals instead of killing it and making a profit from it.   
+But instead, we see this...   
 Grabbing the neighbor's territories and assets for their own selves. 
 Producing mass weapons for their own created civil war. 
 
