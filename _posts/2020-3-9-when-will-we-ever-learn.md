@@ -63,8 +63,9 @@ Just imagine if this existing coronavirus pulled us out from our comfort zone.
 We lost our jobs and our businesses.
 There is not enough food to buy in the city that we live in.
 
-And since we love ourselves so dearly, we are forced to move out to our provinces. The once-forgotten place is now our new home.
-We are now living amongst the trees. We are starting to realize the benefit of our trees. We get their juicy fruit and eat it. 
+And since we love ourselves so dearly, we are forced to move out to our provinces.   
+The once-forgotten place is now our new home.   
+We are now living amongst the trees. We are starting to realize the benefit of our trees. We get their juicy fruit and eat it.   
 Our kids climb up on it with a cheering face. We put shelter on it while it protects us from the heat of the sun and the blaze of the wind from the storm.
 
 Then we walk towards the nearest river. We cleanse our bodies and quench our thirst. The sounds of the water give us calm and tranquility.
