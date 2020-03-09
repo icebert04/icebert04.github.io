@@ -36,10 +36,10 @@ We have to experience any bad things that come our way before we learn our lesso
 
 Some people do learn but unfortunately, most do not.
 
-We may survive this COVID-19 disease but how about the next one. 
+We may survive this COVID-19 disease but how about the next one.   
 What if a new strain of virus comes back 11 years after but with a higher mortality rate. More lethal and more dangerous.
 
-And if the virus won't kill us, maybe the "Often Ignored" Climate Change will.
+And if the virus won't kill us, maybe the **"Often Ignored"** Climate Change will.   
 In other words (or in boxing terms), if we are able to avoid the noxious uppercut, then the destructive left hook will.
 
 Humans may overpopulate the Earth's carrying capacity and disrupt its natural ecosystems, but in the end, we will be set back to balance by brutal force of nature.
