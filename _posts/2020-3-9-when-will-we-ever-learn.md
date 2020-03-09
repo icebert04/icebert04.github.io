@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Outbreak](/images/Cov19.jpg)
