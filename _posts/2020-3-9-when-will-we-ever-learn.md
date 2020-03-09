@@ -42,7 +42,7 @@ What if a new strain of virus comes back 11 years after but with a higher mortal
 And if the virus won't kill us, maybe the **"Often Ignored"** Climate Change will.   
 In other words (or in boxing terms), if we are able to avoid the noxious uppercut, then the destructive left hook will.
 
-Humans may overpopulate the Earth's carrying capacity and disrupt its natural ecosystems, but in the end, we will be set back to balance by brutal force of nature.
+Humans may overpopulate the Earth's carrying capacity and disrupt its natural ecosystems, but in the end, we will be set back to balance by brutal force of nature.   
 It's nature's instinctive way to balance the population caused solely by us... the stubborn people! 
 
 Regardless of our religion is, we have seen a great number of signs that we should change. 
