@@ -64,19 +64,19 @@ I am doing that as we speak. I kiss my wife at least 8 times a day and tell her 
 I get to talk to my eldest about his **"Crushes with Girls"** and more importantly his directions in life.   
 My youngest son who is Autistic is my solace and everyday comfort. Just by simply hugging him, tickling him, and sharing laughter together erase all my stress and anxiety from this crazy virus crisis. 
 
-Soon this will be over. The COVID-19 virus that we all dreaded will diminish. 
-Everything will go back to normal. 
+Soon this will be over. The COVID-19 virus that we all dreaded will diminish.   
+Everything will go back to normal.   
 Schools will re-open. Malls will invite people to come in. 
 Streets will be busy.
 
-Until that time up to this present day, you should ask yourself... 
+Until that time up to this present day, you should ask yourself...   
 What have I done lately? Was it meaningful for me? 
 Was I able to spend time with my family? 
 
-The COVID-19 came to existence to let our "Dying Mother Earth" rest for a while.
+The COVID-19 came to existence to let our **"Dying Mother Earth**" rest for a while.   
 That doesn't mean that you should rest too.
 
-There is a saying that "In the midst of every Crisis, lies Great Opportunity"
+There is a saying that **"In the midst of every Crisis, lies Great Opportunity"**   
 Don't let that opportunity slip right through you. Grab it and seize it.
 
 This could be a live changer that you all been looking for.
