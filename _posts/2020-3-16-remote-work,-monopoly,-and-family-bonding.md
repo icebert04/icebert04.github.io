@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ![Monopoly](/images/Monopoly.jpg)
 
