@@ -3,9 +3,9 @@ published: true
 ---
 ![Monopoly](/images/Monopoly.jpg)
 
-As of today, most of us are in community quarantine (or to most people commonly known as a "Lockdown").
+As of today, most of us are in community quarantine (or to most people commonly known as a **"Lockdown"**).   
 Schools are closed. Malls have shut their doors. Streets are empty.
-Our Government and Health Officials are strongly encouraging "Social Distancing".
+Our Government and Health Officials are strongly encouraging **"Social Distancing".**   
 Panic is everywhere. Tissues and Alcohol are running out. Fake news in social media is rampant. 
 Your actions and choices are limited. There is not much to do but to follow strict orders and isolate yourself from the mass people that could be infected virus carriers.
 
