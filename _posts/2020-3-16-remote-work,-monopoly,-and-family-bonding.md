@@ -7,7 +7,8 @@ As of today, most of us are in community quarantine (or to most people commonly 
 Schools are closed. Malls have shut their doors. Streets are empty.
 Our Government and Health Officials are strongly encouraging **"Social Distancing".**   
 Panic is everywhere. Tissues and Alcohol are running out. Fake news in social media is rampant. 
-Your actions and choices are limited. There is not much to do but to follow strict orders and isolate yourself from the mass people that could be infected virus carriers.
+Your actions and choices are limited.   
+There is not much to do but to follow strict orders and isolate yourself from the mass people that could be infected virus carriers.
 
 Indeed the COVID-19 has disrupted our lives and brought fear into our homes. 
 
