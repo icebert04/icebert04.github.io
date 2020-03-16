@@ -55,13 +55,13 @@ Me and my family play these kinds of games to get some time off from Technology 
 Sure Mobile Legends, NBA2k20, and Netflix's Kingdom 2 are addictive. But these mediums are also taking away our quality time with our loved ones.   
 Read a book, play the guitar, and let these board games bring you back to basics and teach you the true meaning of happiness.
 
-FAMILY BONDING => When was the last time that you said "I Love You" to your dear husband? 
-When was the last time that you had a long and meaningful talk with your daughter?
-Not much I bet. We must confess that we all are. 
-That is why we should maximize this "Community Quarantine"  for us to take that time to show our loved ones how immensely valuable they are to us. 
+**FAMILY BONDING** => When was the last time that you said **"I Love You"** to your dear husband? 
+When was the last time that you had a long and meaningful talk with your daughter?   
+Not much I bet. We must confess that we all are.   
+That is why we should maximize this **"Community Quarantine"** for us to take that time to show our loved ones how immensely valuable they are to us. 
 
-I am doing that as we speak. I kiss my wife at least 8 times a day and tell her how much I love her.
-I get to talk to my eldest about his "Crushes with Girls" and more importantly his directions in life.
+I am doing that as we speak. I kiss my wife at least 8 times a day and tell her how much I love her.   
+I get to talk to my eldest about his **"Crushes with Girls"** and more importantly his directions in life.   
 My youngest son who is Autistic is my solace and everyday comfort. Just by simply hugging him, tickling him, and sharing laughter together erase all my stress and anxiety from this crazy virus crisis. 
 
 Soon this will be over. The COVID-19 virus that we all dreaded will diminish. 
