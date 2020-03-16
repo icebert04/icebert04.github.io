@@ -19,7 +19,8 @@ Our role as ordinary citizens is to commit to ourselves to **"Flatten the Curve"
 If we do our part by not going out frequently and limiting Social Contact, then we can reduce the rates of transmission so it won’t soar exponentially and overwhelm our health systems.   
 Delaying and Slowing down the Spread is the Key to combat this virus... or at least to keep it at bay.
 
-So what now? You might ask that particular question that you could be bored to death in your very home.   
+So what now?   
+You might ask that particular question that you could be bored to death in your very home.   
 Here's what I'll say to you...   
 "Think of Something"!   
 Think of something good that can benefit you and your family during this time of isolation.
