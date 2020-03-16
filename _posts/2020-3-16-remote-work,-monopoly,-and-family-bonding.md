@@ -26,9 +26,8 @@ There are lots of things that you can do during your spare time.
 You can acquire a new skill on the internet. Renew your faith with God. Continue the hobby that you started. Do Yoga and cook more healthy organic food. or Watch all the shows on Netflix.   
 The choice is all yours.
 
-For me, it is simply this...
-"Remote Work, Monopoly, and lots and lots of Family Bonding"
-
+For me, it is simply this...   
+**"Remote Work, Monopoly, and lots and lots of Family Bonding"**
 
 REMOTE WORK => It's quite obvious that we still need to earn money and bring food on the table. 
 My Remote work is my way of providing these necessities to my family.
