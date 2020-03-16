@@ -44,16 +44,15 @@ Here is some remote work that is in demand...
 -Advertising and PR (especially in Social Media)   
 -etc, etc.
 
-Either this will be a career change to you after this virus crisis or a supplementary income to you on the weekends, it is totally up to you.
+Either this will be a career change to you after this virus crisis or a supplementary income to you on the weekends, it is totally up to you.   
 Either way, the new skill that you have acquired has become a weapon in your armory that can use anytime you need it.
 
-MONOPOLY => We live in a technology and fast pace world. 
+**MONOPOLY** => We live in a technology and fast pace world.   
 And the one thing that this COVID-19 is telling us is to slow down a little and go back to basics. Appreciate the things back in the '80s. 
-Old things like Monopoly and other board games. 
-Me and my family play these kinds of games to get some time off from Technology and Netflix.
-Through these board games, we get to bond as a family. 
+Old things like Monopoly and other board games.   
+Me and my family play these kinds of games to get some time off from Technology and Netflix.   Through these board games, we get to bond as a family. 
 
-Sure Mobile Legends, NBA2k20, and Netflix's Kingdom 2 are addictive. But these mediums are also taking away our quality time with our loved ones.
+Sure Mobile Legends, NBA2k20, and Netflix's Kingdom 2 are addictive. But these mediums are also taking away our quality time with our loved ones.   
 Read a book, play the guitar, and let these board games bring you back to basics and teach you the true meaning of happiness.
 
 FAMILY BONDING => When was the last time that you said "I Love You" to your dear husband? 
