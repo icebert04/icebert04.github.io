@@ -29,18 +29,19 @@ The choice is all yours.
 For me, it is simply this...   
 **"Remote Work, Monopoly, and lots and lots of Family Bonding"**
 
-REMOTE WORK => It's quite obvious that we still need to earn money and bring food on the table. 
-My Remote work is my way of providing these necessities to my family.
-I'm just fortunate that I have been doing this remote work even before the COVID-19 came into play.
+**REMOTE WORK** => It's quite obvious that we still need to earn money and bring food on the table. 
+My Remote work is my way of providing these necessities to my family.   
+I'm just fortunate that I have been doing this remote work even before the COVID-19 came into play.   
 Instead of bragging my skills to you, I rather suggest that you get some too. I advise you to learn something new on the Internet. 
-Here is some remote work that is in demand...
--Medical Transcriptionist
--Video and Photo Editing
--Software Engineer
--ESL Tutor (English as a Second Language)
--Writer
--Graphic Designer
--Advertising and PR (especially in Social Media)
+
+Here is some remote work that is in demand...   
+-Medical Transcriptionist   
+-Video and Photo Editing   
+-Software Engineer   
+-ESL Tutor (English as a Second Language)   
+-Writer   
+-Graphic Designer   
+-Advertising and PR (especially in Social Media)   
 -etc, etc.
 
 Either this will be a career change to you after this virus crisis or a supplementary income to you on the weekends, it is totally up to you.
