@@ -11,11 +11,11 @@ Your actions and choices are limited. There is not much to do but to follow stri
 
 Indeed the COVID-19 has disrupted our lives and brought fear into our homes. 
 
-But what can do really? 
-If you are not a Doctor or Nurse or a Scientist who will invent the vaccine that will give remedy to this alarming disease, then the only thing that we can do is to "Stay Home" and wait it out until this "Virus Crisis" subsides.
+But what can do really?   
+If you are not a Doctor or Nurse or a Scientist who will invent the vaccine that will give remedy to this alarming disease, then the only thing that we can do is to **"Stay Home"** and wait it out until this **"Virus Crisis"** subsides.
 
-Our role as ordinary citizens is to commit to ourselves to "Flatten the Curve". 
-If we do our part by not going out frequently and limiting Social Contact, then we can reduce the rates of transmission so it won’t soar exponentially and overwhelm our health systems. 
+Our role as ordinary citizens is to commit to ourselves to **"Flatten the Curve"**.   
+If we do our part by not going out frequently and limiting Social Contact, then we can reduce the rates of transmission so it won’t soar exponentially and overwhelm our health systems.   
 Delaying and Slowing down the Spread is the Key to combat this virus... or at least to keep it at bay.
 
 So what now? You might ask that particular question that you could be bored to death in your very home. 
