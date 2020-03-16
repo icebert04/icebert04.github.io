@@ -81,7 +81,7 @@ That doesn't mean that you should rest too.
 There is a saying that **"In the midst of every Crisis, lies Great Opportunity"**   
 Don't let that opportunity slip right through you. Grab it and seize it.
 
-This could be a live changer that you all been looking for.
+This could be a **"Life Changer"** that you all been looking for.
 
 
 
