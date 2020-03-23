@@ -3,13 +3,14 @@ published: true
 ---
 ![Freedom](/images/Flee.jpg)
 
-Community Quarantine, Enhanced Community Quarantine, or Total Lockdown?
-Does it really matter? It's all still the same.
+Community Quarantine, Enhanced Community Quarantine, or Total Lockdown?   
+Does it really matter? It's all still the same.   
 The bottom line is we are deprived. 
-Deprived of our freedom. Deprived of our rights. Deprived to flee like a bird.
-With the emergence of the COVID-19... we lost our jobs, kids can't go to campus, we can't meet our friends, heck... we even can't eat out or watch a movie.
+Deprived of our freedom. Deprived of our rights. Deprived to flee like a bird.   
+With the emergence of the COVID-19... we lost our jobs, kids can't go to campus, we can't meet our friends, heck... we even can't eat out or watch a movie.   
 It's has placed ourselves out of our comfort zones. 
-It has disrupted our lives. Never in our minds that we thought that something like this will happen... but it did.
+It has disrupted our lives.   
+Never in our minds that we thought that something like this will happen... but it did.
 
 But it is not the end of the world (not yet). And no matter how horrifying this "Virus Crisis" is, believe it or not, there is an end to it.
 In my last article, I wrote to you about what to do while we are in containment. How to keep ourselves busy and happy in amid of these crazy circumstances. 
