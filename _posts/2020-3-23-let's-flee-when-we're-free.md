@@ -34,11 +34,11 @@ Now we have the chance to change it.
 In fact, we have a multitude of hours in our homes to think about **"Redoing"** our lives.
 Now is the perfect time to do it. 
 
-Do you want to resign, fine. Then go ahead and do it. 
-Start that business that you've been wanting to do back in time when you are thinking about it during the entire duration of your boring employment.
-Not happy with the place and environment that you are living in, then leave. 
-What are you waiting for? Go to the beach, start your Scuba Diving business, Or launch your Cuban Resto in the tourist spot that you want to stay for the rest of your lives.
-Been wanting to tell the guy that you are in love with, Go and tell him. We don't live in the dark ages anymore. 
+Do you want to resign, fine. Then go ahead and do it.   
+Start that business that you've been wanting to do back in time when you are thinking about it during the entire duration of your boring employment.   
+Not happy with the place and environment that you are living in, then leave.   
+What are you waiting for? Go to the beach, start your Scuba Diving business, Or launch your Cuban Resto in the tourist spot that you want to stay for the rest of your lives.   
+Been wanting to tell the guy that you are in love with, Go and tell him. We don't live in the dark ages anymore.   
 If you don't talk to him, you might lose him. Make the bold move.
 
 Even before the Corona Virus, we were trapped inside and deprived of things that we truly desire because of our fears, our doubts, and our past mistakes. 
