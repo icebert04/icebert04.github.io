@@ -22,7 +22,7 @@ Haven't you thought of that? What are you going to do then?
 Obviously, the majority of us will go back to work and attend to our business. 
 After all, we need to get back and replenish what we lost.
 
-But even when this "Virus Crisis" even started, some of us were complaining about our jobs and businesses. 
+But even when this **"Virus Crisis"** even started, some of us were complaining about our jobs and businesses.   
 We hated our work and despise our boss. Our business is going downhill or stuck at mediocrity.
 
 If not that, we were having problems with relationships with the ones that we loved.
