@@ -56,10 +56,10 @@ Share more inspiring stories to motivate people.
 That is my plan when I get out of this dark cave.   
 Launch the new and improved **"Friendillion 2.0"** and be more assertive to be an instrument that will move people's hearts and improve people's lives.
 
-I'm am conceptualizing as we speak. 
-Making a concrete plan on where to concentrate on first. Doing long hours of research and contemplating my course of action.
-This long period of isolation will produce me a stunning Formula 1 race car engine that can reach the distance and rack up more checkered flags.
-It will be one of my "Mission in Life".
+I'm am conceptualizing as we speak.   
+Making a concrete plan on where to concentrate on first. Doing long hours of research and contemplating my course of action.   
+This long period of isolation will produce me a stunning Formula 1 race car engine that can reach the distance and rack up more checkered flags.   
+It will be one of my **"Mission in Life"**.
 
 I believe you too should create your "Mission in Life". 
 You should think now. You have a good chance to make your life even better than before. 
