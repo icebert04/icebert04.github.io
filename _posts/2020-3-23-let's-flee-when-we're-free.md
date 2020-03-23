@@ -16,7 +16,7 @@ But it is not the end of the world (not yet). And no matter how horrifying this 
 In my last article, I wrote to you about what to do while we are in containment. How to keep ourselves busy and happy in amid of these crazy circumstances.   
 That article was written specifically **"During"** our time of crisis.
 
-What I am writing now is "After" this crisis ends. When they release us from our cages and free us from prison.
+What I am writing now is **"After"** this crisis ends. When they release us from our cages and free us from prison.   
 Haven't you thought of that? What are you going to do then?
 
 Obviously, the majority of us will go back to work and attend to our business. 
