@@ -12,9 +12,9 @@ It's has placed ourselves out of our comfort zones.
 It has disrupted our lives.   
 Never in our minds that we thought that something like this will happen... but it did.
 
-But it is not the end of the world (not yet). And no matter how horrifying this "Virus Crisis" is, believe it or not, there is an end to it.
-In my last article, I wrote to you about what to do while we are in containment. How to keep ourselves busy and happy in amid of these crazy circumstances. 
-That article was written specifically "During" our time of crisis.
+But it is not the end of the world (not yet). And no matter how horrifying this **"Virus Crisis"** is, believe it or not, there is an end to it.   
+In my last article, I wrote to you about what to do while we are in containment. How to keep ourselves busy and happy in amid of these crazy circumstances.   
+That article was written specifically **"During"** our time of crisis.
 
 What I am writing now is "After" this crisis ends. When they release us from our cages and free us from prison.
 Haven't you thought of that? What are you going to do then?
