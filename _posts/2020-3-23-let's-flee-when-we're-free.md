@@ -50,11 +50,11 @@ Just think about what will happen to this creature (that we generally call "The 
 These cheetahs won't just run wild and free. They will go beyond boundaries. Explore more landscapes. And do things that they never imagine.   
 It's natural instincts for an animal to burst that well-kept energy. 
 
-I myself felt like that Cheetah. I haven't used much of my speed and talents before this outbreak started. 
+I myself felt like that Cheetah. I haven't used much of my speed and talents before this outbreak started.   
 I felt like I have something more to give. I have so much narration to tell. 
-Share more inspiring stories to motivate people. 
-That is my plan when I get out of this dark cave. 
-Launch the new and improved "Friendillion 2.0" and be more assertive to be an instrument that will move people's hearts and improve people's lives.
+Share more inspiring stories to motivate people.   
+That is my plan when I get out of this dark cave.   
+Launch the new and improved **"Friendillion 2.0"** and be more assertive to be an instrument that will move people's hearts and improve people's lives.
 
 I'm am conceptualizing as we speak. 
 Making a concrete plan on where to concentrate on first. Doing long hours of research and contemplating my course of action.
