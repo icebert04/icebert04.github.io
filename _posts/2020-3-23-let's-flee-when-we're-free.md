@@ -29,9 +29,9 @@ If not that, we were having problems with relationships with the ones that we lo
 Or our health was in jeopardy. Or we were lonely and depressed even before the Corona Virus.
 We were trapped in our cages right even before all of this madness. 
 
-Don't fret. Don't cry. There is one thing you have lots of it at this very moment, you now have...  "TIME"!
-Now we have the chance to change it. 
-In fact, we have a multitude of hours in our homes to think about "Redoing" our lives.
+Don't fret. Don't cry. There is one thing you have lots of it at this very moment, you now have...  **"TIME"!**   
+Now we have the chance to change it.   
+In fact, we have a multitude of hours in our homes to think about **"Redoing"** our lives.
 Now is the perfect time to do it. 
 
 Do you want to resign, fine. Then go ahead and do it. 
