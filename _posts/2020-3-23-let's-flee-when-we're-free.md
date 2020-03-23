@@ -61,9 +61,9 @@ Making a concrete plan on where to concentrate on first. Doing long hours of res
 This long period of isolation will produce me a stunning Formula 1 race car engine that can reach the distance and rack up more checkered flags.   
 It will be one of my **"Mission in Life"**.
 
-I believe you too should create your "Mission in Life". 
+I believe you too should create your **"Mission in Life"**.   
 You should think now. You have a good chance to make your life even better than before. 
-The new and improved... "You"!
+The new and improved... **"You"**!
 
 Just think that you are a Thoroughbred Race Horse. 
 You are just an average racehorse before. Hardly winning any events. 
