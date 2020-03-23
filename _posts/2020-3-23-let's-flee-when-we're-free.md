@@ -43,7 +43,7 @@ If you don't talk to him, you might lose him. Make the bold move.
 
 Even before the Corona Virus, we were trapped inside and deprived of things that we truly desire because of our fears, our doubts, and our past mistakes. 
 
-Let's use and maximize this what we call "Lockdown" to recharge our batteries, to tune up our engine, and to make a complete shift to the happiness that we long desire.
+Let's use and maximize this what we call **"Lockdown"** to recharge our batteries, to tune up our engine, and to make a complete shift to the happiness that we long desire.
 
 Just imagine that we are the Cheetah from North Africa who is caged for a long period of time. 
 Just think about what will happen to this creature (that we generally call "The Fastest Animal in the Planet") would do after they are set free.
