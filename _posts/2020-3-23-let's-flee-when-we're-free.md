@@ -65,12 +65,12 @@ I believe you too should create your **"Mission in Life"**.
 You should think now. You have a good chance to make your life even better than before. 
 The new and improved... **"You"**!
 
-Just think that you are a Thoroughbred Race Horse. 
-You are just an average racehorse before. Hardly winning any events. 
-Now is your chance to improve yourself. Rethink and do a course of action to make yourself competitive.
+Just think that you are a Thoroughbred Race Horse.   
+You are just an average racehorse before. Hardly winning any events.   
+Now is your chance to improve yourself. Rethink and do a course of action to make yourself competitive.   
 And when the time that you are set to race again. 
-You are much ready. You have gained that courage, that new skill that you thought you didn't have in you. 
-You said to yourself... "It's time for me to win this time"!
+You are much ready. You have gained that courage, that new skill that you thought you didn't have in you.   
+You said to yourself... **"It's time for me to win this time"**!
 
 You are now at the Starting Gate amongst the other horses. You are all set to race. You then close your eyes and ponder on the open race track that you are going to set your hooves into.
 And when that gate opens, you will burst that new speed of yours and win your first ever Grand Derby Cup.
