@@ -46,8 +46,8 @@ Even before the Corona Virus, we were trapped inside and deprived of things that
 Let's use and maximize this what we call **"Lockdown"** to recharge our batteries, to tune up our engine, and to make a complete shift to the happiness that we long desire.
 
 Just imagine that we are the Cheetah from North Africa who is caged for a long period of time. 
-Just think about what will happen to this creature (that we generally call "The Fastest Animal in the Planet") would do after they are set free.
-These cheetahs won't just run wild and free. They will go beyond boundaries. Explore more landscapes. And do things that they never imagine.
+Just think about what will happen to this creature (that we generally call "The Fastest Animal in the Planet") would do after they are set free.   
+These cheetahs won't just run wild and free. They will go beyond boundaries. Explore more landscapes. And do things that they never imagine.   
 It's natural instincts for an animal to burst that well-kept energy. 
 
 I myself felt like that Cheetah. I haven't used much of my speed and talents before this outbreak started. 
