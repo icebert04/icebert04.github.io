@@ -25,7 +25,7 @@ After all, we need to get back and replenish what we lost.
 But even when this **"Virus Crisis"** even started, some of us were complaining about our jobs and businesses.   
 We hated our work and despise our boss. Our business is going downhill or stuck at mediocrity.
 
-If not that, we were having problems with relationships with the ones that we loved.
+If not that, we were having problems with relationships with the ones that we loved.   
 Or our health was in jeopardy. Or we were lonely and depressed even before the Corona Virus.
 We were trapped in our cages right even before all of this madness. 
 
