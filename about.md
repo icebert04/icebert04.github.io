@@ -53,7 +53,7 @@ $ Generate more Repetitive Sales
 My strengths lie in "Building Relationships".  
 Healthy business relationships are the foundation of any successful business. 
 
-Your Customers will love you. Influencers will align with you. And Competitors will become friends.
+Customers will love you. Influencers will align with you. And Competitors will become friends.
 
 
 
