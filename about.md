@@ -39,9 +39,9 @@ Through that, I've discovered the real definition of Friendillion... Helping Peo
 
 ## Why Help the Small?
 
-Like them, I too started from scratch. I know how these small businesses feel when you are just starting out. Why they have the chance to get ahead in the race.  
+Like them, I too started from scratch. I know how these small businesses feel when they are just starting out. Why they have the chance to get ahead in the race.  
 
-My goal is to help these small SME's to grow your business through
+My goal is to help these small SME's to grow their business through
 
 ```sh
 $ Creating Quality Content on their Facebook Page
@@ -50,7 +50,7 @@ $ Generate more Repetitive Sales
 ```
 
      
-My strengths lie in "Building Relationships"!   
+My strengths lie in "Building Relationships".  
 Healthy business relationships are the foundation of any successful business. 
 
 Your Customers will love you. Influencers will align with you. And Competitors will become friends.
