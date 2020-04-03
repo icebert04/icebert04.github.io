@@ -11,8 +11,8 @@ published: true
 
 ["Le Delice Restaurant"](http://ledelice.net/)
 
-A European themed restaurant inside the premises of Merville Park, Parañaque.
-They sell different varities of sausages, dairy products, deli groceries, and an array of great wine selection.
+A European themed restaurant inside the premises of Merville Park, Parañaque.   
+They sell different varities of sausages, dairy products, deli groceries, and an array of great wine selection.   
 This cozy restaurant is beisde the club's swimming pool where you can have your favorite menu (International Favorites or Asian Delights) right in there terrace.
 
 ---------------------------------------------------------------------------------------
