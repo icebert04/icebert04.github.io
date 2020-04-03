@@ -1,7 +1,7 @@
 ---
 layout: page
-title: About the Author
-permalink: /about/
+title: Sponsors
+permalink: /sponsors/
 published: true
 ---
 
