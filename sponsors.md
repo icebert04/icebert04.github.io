@@ -9,6 +9,8 @@ published: true
 
 ![Le Delice](/images/Le Delice 2.jpg)  
 
+["Le Delice Restaurant"](http://ledelice.net/)
+
 
 Interested in sponsoring Friendillion.com? 
 Shoot me an _Email_ at [icebert04@gmail.com](mailto:icebert04@gmail.com)
