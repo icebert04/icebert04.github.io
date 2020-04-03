@@ -7,7 +7,7 @@ published: true
 
 Hi! My name is Francis Isberto. The Creator of Friendillion.
 
-I'm a Writer, serial Entrepreneur, and a Content Marketing Consultant. 
+I'm a Writer, Serial Entrepreneur, and a Content Marketing Consultant. 
 
 
 ![Francis and Nia](/images/Friendillion 2.jpg)  
@@ -17,11 +17,12 @@ I built Friendillion primarily as my personal journal of gaining new friends.
 What I never expected was people started to like my posts and articles. They said it is inspiring and has somewhat changed their lives. 
 
 
-## Here's why I started to become Popular 
+## The Day "Friendillion" became "Trending"! 
 
-Last March, I posted an article titled "THE THING CALLED MATERIALISM" on my Facebook page. That post went viral.   
+Last March 1,2019, I posted an article titled "THE THING CALLED MATERIALISM" on my Facebook page. That post went viral.   
 That post reached 2,877,912 and 782,130 engagements.   
-It gathered 27 thousand Likes, 3.1 thousand Comments, and 17 thousand Shares.   
+
+It gathered 27,000 Likes, 3,100 Comments, and 17,000 Shares.   
 I didn’t pay anything nor used Facebook Ads. Everything is organic!
 
 See link for reference...
@@ -36,19 +37,22 @@ In my own small way, I was able to help them with their lives.
 Through that, I've discovered the real definition of Friendillion... Helping People!
 
 
-## Here's how I offer my Help
+## Why Help the Small?
 
-I will help grow your business through
+Like them, I too started from scratch. I know how these small businesses feel when you are just starting out. Why they have the chance to get ahead in the race.  
+
+My goal is to help these small SME's to grow your business through
 
 ```sh
-$ Boosting your Facebook Page
-$ Get your Customers Engaged
-$ Generate more Sales
+$ Creating Quality Content on their Facebook Page
+$ Get their Customers Hook-up & Engaged
+$ Generate more Repetitive Sales
 ```
 
      
 My strengths lie in "Building Relationships"!   
-Healthy business relationships are the foundation of any successful business.   
+Healthy business relationships are the foundation of any successful business. 
+
 Your Customers will love you. Influencers will align with you. And Competitors will become friends.
 
 
