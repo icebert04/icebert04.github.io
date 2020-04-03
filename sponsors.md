@@ -7,6 +7,7 @@ published: true
 
 ## We are grateful for the wonderful sponsors who help sustain the FRIENDILLION Community.
 
+![Le Delice](/images/Le Delice 2.jpg)  
 
 
 Interested in sponsoring Friendillion.com? 
