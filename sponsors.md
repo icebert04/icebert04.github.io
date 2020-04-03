@@ -5,7 +5,7 @@ permalink: /sponsors/
 published: true
 ---
 
-## We are grateful for wonderful sponsors who help sustain the FRIENDILLION Community.
+## We are grateful for the wonderful sponsors who help sustain the FRIENDILLION Community.
 
 
 
