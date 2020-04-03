@@ -5,12 +5,11 @@ permalink: /sponsors/
 published: true
 ---
 
-## Fell Free to Contact me
+## Community sponsors emoji heart
 
-Don't be shy to message me. There's no such thing as too small to do business.   
-Just remember, that I too started from small...
+We are grateful for wonderful sponsors who help sustain the FRIENDILLION Community.
 
-
+Interested in sponsoring Friendillion.com? 
 Shoot me an _Email_ at [icebert04@gmail.com](mailto:icebert04@gmail.com)
 
 You can also reach me through my social media sites...  
