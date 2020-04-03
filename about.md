@@ -19,7 +19,7 @@ What I never expected was people started to like my posts and articles. They sai
 
 ## The Day "Friendillion" became "Trending"! 
 
-Last March 1,2019, I posted an article titled "THE THING CALLED MATERIALISM" on my Facebook page. That post went viral.   
+Last March 1, 2019... I posted an article titled "THE THING CALLED MATERIALISM" on my Facebook page. That post went viral.   
 That post reached 2,877,912 and 782,130 engagements.   
 
 It gathered 27,000 Likes, 3,100 Comments, and 17,000 Shares.   
