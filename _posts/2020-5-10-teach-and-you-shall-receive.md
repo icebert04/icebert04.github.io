@@ -21,9 +21,9 @@ Our government said that they have it under control. They told us to just wait f
 Well, it's been months since we have gone out and be normal beings. It feels likes decades since we receive our last paycheck.   
 If our government won't help us, we might as well help ourselves. Besides, we need to put food on our table. We do need to eat after all.
 
-Almost everyone is shifting to the "New Norm".
-What was unpopular before became the most beloved and in demand in our society today... the WFH or "Work From Home" occupation.
-People from different fields like lawyers, mechanical engineers, Business CEO, accountants, chef & restaurant owners, and even sports athlete are now finding new ways of making a living.
+Almost everyone is shifting to the **"New Norm"**.   
+What was unpopular before became the most beloved and in demand in our society today... the WFH or **"Work From Home"** occupation.   
+People from different fields like lawyers, mechanical engineers, Business CEO, accountants, chef & restaurant owners, and even sports athlete are now finding new ways of making a living.   
 They rather do something than being stagnant.
 
 So the "New Norm" of today is either people are Learning something or Teaching something. Rather than being idle at home, these bored professionals are now going online finding ways either to gain knowledge to find a new career or to show their expertise and being paid at it.
