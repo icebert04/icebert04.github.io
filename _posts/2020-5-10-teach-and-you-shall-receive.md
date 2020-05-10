@@ -26,9 +26,10 @@ What was unpopular before became the most beloved and in demand in our society t
 People from different fields like lawyers, mechanical engineers, Business CEO, accountants, chef & restaurant owners, and even sports athlete are now finding new ways of making a living.   
 They rather do something than being stagnant.
 
-So the "New Norm" of today is either people are Learning something or Teaching something. Rather than being idle at home, these bored professionals are now going online finding ways either to gain knowledge to find a new career or to show their expertise and being paid at it.
+So the **"New Norm"** of today is either people are Learning something or Teaching something.   
+Rather than being idle at home, these bored professionals are now going online finding ways either to gain knowledge to find a new career or to show their expertise and being paid at it.
 
-And for those who are having trouble finding the right source for learning or earning... I have great news for you. There is a platform for you that has both (learning & earning).
+And for those who are having trouble finding the right source for learning or earning... I have great news for you. There is a platform for you that has both (learning & earning).   
 That platform is Plutwo.
 
 Plutwo works both ways.
