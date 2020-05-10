@@ -3,13 +3,14 @@ published: true
 ---
 ![Expert](/images/Plutwo 2.png)
 
-How are you guys doing? My apologies if it took a long time to write another article for you.
-Like you, I was disturbed with this unanticipated pandemic crisis. 
+How are you guys doing?   
+My apologies if it took a long time to write another article for you.
+Like you, I was disturbed with this unanticipated pandemic crisis.   
 But we need to stay strong. We need to keep moving forward.
 We need to help each other.
 
 
-So in this piece of writing is something about "Working From Home". Maybe this could inspire you to do something unique and different in this abnormal world.
+So in this piece of writing is something about **"Working From Home".** Maybe this could inspire you to do something unique and different in this abnormal world.   
 Good luck and please be safe and healthy always!
 
 -------------------------------------------------------------------------------------
