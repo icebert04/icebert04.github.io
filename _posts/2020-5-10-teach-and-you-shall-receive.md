@@ -32,12 +32,12 @@ Rather than being idle at home, these bored professionals are now going online f
 And for those who are having trouble finding the right source for learning or earning... I have great news for you. There is a platform for you that has both (learning & earning).   
 That platform is Plutwo.
 
-Plutwo works both ways.
+Plutwo works both ways.   
 For those who want to learn, members can pick their teachers and their specific niche & topics. There are a variety of teachers and experts to choose from...
 there is Women in Tech, VC at 47 Ventures, Data Engineer at Microsoft, Yoga 7 days mind & body challenge, Freelancing through Fiverr, a fully-funded exchange semester at US University, Fundraising for Startups, and so on and so forth.
 
-And for those who want to earn, Plutwo allows experts and/or teachers to run/sell live streaming sessions, build an audience, and make money.
-For example, if you charge a fee for a few dollars and get an audience of 50, you can easily earn $180 for just in an hour.
+And for those who want to earn, Plutwo allows experts and/or teachers to run/sell live streaming sessions, build an audience, and make money.   
+For example, if you charge a fee for a few dollars and get an audience of 50, you can easily earn $180 for just in an hour.   
 Not bad for a side-hustle gig isn't it?
 
 Every human being with skills & know-how is incentivized to do bite-sized online learning sessions at a global scale, build their following and directly monetize it.
