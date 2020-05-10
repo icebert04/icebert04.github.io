@@ -15,10 +15,10 @@ Good luck and please be safe and healthy always!
 
 -------------------------------------------------------------------------------------
 
-We now live in desperate times. We have consummated most of our resources. And it is crunch time. We're close to a matter of life and death.
+We now live in desperate times. We have consummated most of our resources. And it is crunch time. We're close to a matter of life and death.   
 Ever since the COVID-19 hit our streets, we were deprived of our freedom.
-Our government said that they have it under control. They told us to just wait for the tide to come down and everything will go back to normal.
-Well, it's been months since we have gone out and be normal beings. It feels likes decades since we receive our last paycheck.
+Our government said that they have it under control. They told us to just wait for the tide to come down and everything will go back to normal.   
+Well, it's been months since we have gone out and be normal beings. It feels likes decades since we receive our last paycheck.   
 If our government won't help us, we might as well help ourselves. Besides, we need to put food on our table. We do need to eat after all.
 
 Almost everyone is shifting to the "New Norm".
