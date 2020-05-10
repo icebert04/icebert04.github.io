@@ -40,15 +40,15 @@ And for those who want to earn, Plutwo allows experts and/or teachers to run/sel
 For example, if you charge a fee for a few dollars and get an audience of 50, you can easily earn $180 for just in an hour.   
 Not bad for a side-hustle gig isn't it?
 
-Every human being with skills & know-how is incentivized to do bite-sized online learning sessions at a global scale, build their following and directly monetize it.
+Every human being with skills & know-how is incentivized to do bite-sized online learning sessions at a global scale, build their following and directly monetize it.   
 The globe is yours so to speak. You can have students from every corner of the world inside your 16" Macbook Pro monitor screen.
 
-Plutwo views individuality as a feature and allows everyone to become an entrepreneur.
-Heck, even an auto mechanic or a gardener can become an influence on this new platform.
-This company never rest on their heels. In just 45 days since their launch, they have garnered 7000 learner signups. Over 500 experts are on the waiting list. Plus they have conducted sessions with participation from 18 different countries.
+Plutwo views individuality as a feature and allows everyone to become an entrepreneur.   
+Heck, even an auto mechanic or a gardener can become an influence on this new platform.   
+This company never rest on their heels. In just 45 days since their launch, they have garnered 7000 learner signups. Over 500 experts are on the waiting list. Plus they have conducted sessions with participation from 18 different countries.   
 And they haven't spread their wings yet.
 
-The good thing about this site is it is a live online-streaming platform where local experts can give sessions and have "Meaningful Interactions" with their students.
+The good thing about this site is it is a live online-streaming platform where local experts can give sessions and have**"Meaningful Interactions"** with their students.   
 By way of conducting hassle-free online classes, there is a possibility for event organizers to grab this opportunity and turn this into a goldmine.
 
 Event Organizers, Event Managers, & Teachers can easily share content and deliver lectures live to the students using the presentation feature of Plutwo.
