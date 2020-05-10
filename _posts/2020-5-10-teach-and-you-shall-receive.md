@@ -60,12 +60,12 @@ A panel of teachers can answer the queries of students from the comfort of their
 Instructors can also schedule a discussion for students to interact and share their opinions about a certain aspect of the class or course.   
 So you see, everything is in **"Real-Time"** where you get immediate results in a heartbeat.
 
-Plutwo is a "Passion Economy Product".
-They understand that most people are in crisis so they make their courses affordable (price is normally less than $10).
+Plutwo is a **"Passion Economy Product"**.   
+They understand that most people are in crisis so they make their courses affordable (price is normally less than $10).   
 They don't just help people gain new skills and making a career out of it, they also help experts in different fields to share their knowledge and effectively monetize it through their platform.
 So in the foreseeable future, we could see experts taking advantage of this new tool as a means of fully sustaining themselves.
 
-As the world moves towards work from home and remote learning, Plutwo can become a "Savior" for individuals who want to share knowledge and make money from the comfort of their home.
+As the world moves towards work from home and remote learning, Plutwo can become a **"Savior"** for individuals who want to share knowledge and make money from the comfort of their home.   
 It will be also a safe haven from learners who want to get access to high-quality content which is easily accessible and affordable.
 
-The "New Norm" may not be as bad after all... especially when you have the dependable Plutwo around.
+The **"New Norm"** may not be as bad after all... especially when you have the dependable Plutwo around.
