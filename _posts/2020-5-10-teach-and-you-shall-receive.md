@@ -51,14 +51,14 @@ And they haven't spread their wings yet.
 The good thing about this site is it is a live online-streaming platform where local experts can give sessions and have**"Meaningful Interactions"** with their students.   
 By way of conducting hassle-free online classes, there is a possibility for event organizers to grab this opportunity and turn this into a goldmine.
 
-Event Organizers, Event Managers, & Teachers can easily share content and deliver lectures live to the students using the presentation feature of Plutwo.
-Several features like live chat, handout, polling, and reaction make the whole experience just like a real-life classroom. The only difference is students will be logging in wearing their pajamas.
+Event Organizers, Event Managers, & Teachers can easily share content and deliver lectures live to the students using the presentation feature of Plutwo.   
+Several features like live chat, handout, polling, and reaction make the whole experience just like a real-life classroom. The only difference is students will be logging in wearing their pajamas.   
 With this, teachers can take real-time questions in the chat or through the microphone and make the session interactive by starting a poll to analyze the concepts of the class.
 
-The platform also has built-in tools for organizers e.g a live panel discussion, an AMA session, a presentation setting, a fireside chat, etc.
-A panel of teachers can answer the queries of students from the comfort of their homes so the knowledge is transferred effectively.
-Instructors can also schedule a discussion for students to interact and share their opinions about a certain aspect of the class or course.
-So you see, everything is in "Real-Time" where you get immediate results in a heartbeat.
+The platform also has built-in tools for organizers e.g a live panel discussion, an AMA session, a presentation setting, a fireside chat, etc.   
+A panel of teachers can answer the queries of students from the comfort of their homes so the knowledge is transferred effectively.   
+Instructors can also schedule a discussion for students to interact and share their opinions about a certain aspect of the class or course.   
+So you see, everything is in **"Real-Time"** where you get immediate results in a heartbeat.
 
 Plutwo is a "Passion Economy Product".
 They understand that most people are in crisis so they make their courses affordable (price is normally less than $10).
