@@ -3,6 +3,17 @@ published: true
 ---
 ![Expert](/images/Plutwo 2.png)
 
+How are you guys doing? My apologies if it took a long time to write another article for you.
+Like you, I was disturbed with this unanticipated pandemic crisis. 
+But we need to stay strong. We need to keep moving forward.
+We need to help each other.
+
+
+So in this piece of writing is something about "Working From Home". Maybe this could inspire you to do something unique and different in this abnormal world.
+Good luck and please be safe and healthy always!
+
+-------------------------------------------------------------------------------------
+
 We now live in desperate times. We have consummated most of our resources. And it is crunch time. We're close to a matter of life and death.
 Ever since the COVID-19 hit our streets, we were deprived of our freedom.
 Our government said that they have it under control. They told us to just wait for the tide to come down and everything will go back to normal.
