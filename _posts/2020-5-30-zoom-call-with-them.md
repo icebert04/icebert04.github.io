@@ -1,4 +1,4 @@
 ---
-published: false
+published: true
 ---
 ![Zoom](/images/Zoom Call.jpg)
