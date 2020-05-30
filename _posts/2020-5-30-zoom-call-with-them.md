@@ -46,9 +46,10 @@ I brought my road bike so that I can do my other errands like buying fruits that
 As I drove by in this prodigious memorial park, I show the beauty of the trees and its landscapes. It reminded me of how beautiful Metro Manila was during the time of the Enhance Community Quarantine.   
 Our skies were free from pollution. Our oceanfront in Manila Bay is sky blue. And the mountains from our nearest provinces have become visible since the Spanish era.
 
-I know that economy is important, but let's not forget what put us through this pandemic. If we can maintain and take care of our environment, we can have less stress and better living condition for all of us. 
+I know that economy is important, but let's not forget what put us through this pandemic.   
+If we can maintain and take care of our environment, we can have less stress and better living condition for all of us. 
 
-As I sat there on the ground with my bike, I started to ponder and let the calmness and serenity of my surroundings sink into me.
+As I sat there on the ground with my bike, I started to ponder and let the calmness and serenity of my surroundings sink into me.   
 I commenced my individual prayer to each and every one.  Then after my prayer, I continued sitting there in the grass completely in silence. 
 
 I reminisced about the good times that we had. Told them our current crisis that we are having at this moment. And again continued sitting there. 
