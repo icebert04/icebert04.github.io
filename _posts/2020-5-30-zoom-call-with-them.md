@@ -3,9 +3,9 @@ published: true
 ---
 ![Zoom](/images/Zoom Call.jpg)
 
-With the unexpected rise of the dreaded COVID-19 virus that leads to a global pandemic, we were forced to be lockdown in our homes for an indefinite time. 
-Isolation only bothered us for a while, because we are social animals and we always find ways to connect with those people whom before was part of our normal daily routine. 
-Through modern video communications tools and apps like Zoom, Messenger, Microsoft Team, Google Hangouts, Skype, and even Slack... we were able to connect with these important people not only through voice but face recognition as well.
+With the unexpected rise of the dreaded COVID-19 virus that leads to a global pandemic, we were forced to be lockdown in our homes for an indefinite time.   
+Isolation only bothered us for a while, because we are social animals and we always find ways to connect with those people whom before was part of our normal daily routine.   
+Through modern video communications tools and apps like Zoom, Messenger, Microsoft Team, Google Hangouts, Skype, and even Slack... we were able to connect with these important people not only through voice but face recognition as well.   
 Knowing that these apps delivering crystal-clear, face-to-face video, high-quality sharing makes us more than satisfied and clearly has become a daily part of our lives. 
 
 This new innovative technology has help both the employer and the employee to continue to "Work From Home".
