@@ -40,10 +40,10 @@ I'm talking about our loved ones who left us in the COVID world. Those who are b
 Believe me or not, the dead ones can help you too.
 
 Recently, I went to Manila Memorial Park in Sucat Parañaque to visit those who passed away. 
-My Grandparents (both Father and Mother side), My Mom, and my youngest Sister. Some of my other relatives were there too.
+My Grandparents (both Father and Mother side), My Mom, and my youngest Sister. Some of my other relatives were there too.   
 I brought my road bike so that I can do my other errands like buying fruits that are hard to find, and also so that I can maintain my immune system up and strong. 
 
-As I drove by in this prodigious memorial park, I show the beauty of the trees and its landscapes. It reminded me of how beautiful Metro Manila was during the time of the Enhance Community Quarantine. 
+As I drove by in this prodigious memorial park, I show the beauty of the trees and its landscapes. It reminded me of how beautiful Metro Manila was during the time of the Enhance Community Quarantine.   
 Our skies were free from pollution. Our oceanfront in Manila Bay is sky blue. And the mountains from our nearest provinces have become visible since the Spanish era.
 
 I know that economy is important, but let's not forget what put us through this pandemic. If we can maintain and take care of our environment, we can have less stress and better living condition for all of us. 
