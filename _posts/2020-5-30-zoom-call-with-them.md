@@ -58,8 +58,10 @@ You may call me crazy, dramatic, or delusional but the dead listen too.
 Sometimes they also respond but in a different way. They show up in your dreams once in a while (subconsciously and innermost thoughts).   
 In other words, they have their own version of Zoom. They know how to communicate and it's really helpful and beneficial.
 
-Communication is the key to greatly reduce stress and anxiety in your life. Improving your social support is linked to better mental health in general, since having reliable friends and loving family members can act as a “buffer” for feelings of anxiety and low mood.
+Communication is the key to greatly reduce stress and anxiety in your life.   
+Improving your social support is linked to better mental health in general, since having reliable friends and loving family members can act as a **“Buffer”** for feelings of anxiety and low mood.   
 It helps you feel more secure thus helps you to keep you moving forward.
 
-So continue using Zoom. It is very useful. 
-And if you know how to expand your mind and understanding, you can feel overjoyed that you communicated deeply to those who care for you... both the living and the dead.
+So continue using Zoom. It is very useful.   
+And if you know how to expand your mind and understanding, you can feel overjoyed that you communicated deeply to those who care for you...   
+both the living and the dead.
