@@ -27,15 +27,16 @@ In fact, sometimes it is much better than our world before COVID because people 
 You can call it out of boredom, loneliness, or anxiety all you want.   
 The bottom line remains the same. People are now are **"Connecting"**.
 
-And now that our government is slowly opening and lifting quarantine to stop the bleeding to our subsiding economy. We now have slight freedom to move around. 
-People going back to their office and business. Streets are getting busier. And most of us are trying to bring our lives back to normal.
+And now that our government is slowly opening and lifting quarantine to stop the bleeding to our subsiding economy. We now have slight freedom to move around.   
+People going back to their office and business. Streets are getting busier.   
+And most of us are trying to bring our lives back to normal.
 
-Through these COVID constraints, we have become more sociable than ever. Through talking and conversing we were able to lessen our stress and anxiety. 
-Our "Mental Health" has improved and has kept our confidence on the right track. 
+Through these COVID constraints, we have become more sociable than ever. Through talking and conversing we were able to lessen our stress and anxiety.   
+Our **"Mental Health"** has improved and has kept our confidence on the right track. 
 
-But if you feel you need to talk and vent out your frustrations and fears. There is another group where you can video conference. 
-In fact, you can also Zoom call them regularly. That is if you are open-minded to talk to them. 
-I'm talking about our loved ones who left us in the COVID world. Those who are buried 6 feet under.
+But if you feel you need to talk and vent out your frustrations and fears. There is another group where you can video conference.   
+In fact, you can also Zoom call them regularly. That is if you are open-minded to talk to them.   
+I'm talking about our loved ones who left us in the COVID world. Those who are buried 6 feet under.   
 Believe me or not, the dead ones can help you too.
 
 Recently, I went to Manila Memorial Park in Sucat Parañaque to visit those who passed away. 
