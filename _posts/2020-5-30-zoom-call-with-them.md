@@ -13,10 +13,10 @@ Now, more than ever, with increased globalization, remote workers, and internati
 Whether that’s for weekly team meetings or presenting project briefs, video can significantly enhance your relationship with team members and increase the efficiency and accuracy of completed tasks.   
 Conference calls allow multiple attendees to log in to the same call from wherever they are in the world. While this is essential for remote teams to conduct their daily tasks, it’s also a useful tool for full company updates and connections. 
 
-But it's not only for business purposes. Video communication apps like Zoom can also be used for personal reasons.
-You can video call your Lolo from Cebu while he is eating danggit and dried mango at his breakfast table.
-Have a video group call with the whole De La Salle basketball them at brunch. 
-Call your car mechanic in the afternoon and allow him to show you the improvements and modifications that he has done with your big bike.
+But it's not only for business purposes. Video communication apps like Zoom can also be used for personal reasons.   
+You can video call your Lolo from Cebu while he is eating danggit and dried mango at his breakfast table.   
+Have a video group call with the whole De La Salle basketball them at brunch.   
+Call your car mechanic in the afternoon and allow him to show you the improvements and modifications that he has done with your big bike.   
 Then later at night, before going to sleep, let your girlfriend video call you and talk the whole night until the wee hours in the morning. 
 
 We may be isolated from these extraordinary people, but with these technologies, we were able to keep track of them like they are right in front of us. 
