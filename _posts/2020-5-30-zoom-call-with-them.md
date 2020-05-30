@@ -8,9 +8,9 @@ Isolation only bothered us for a while, because we are social animals and we alw
 Through modern video communications tools and apps like Zoom, Messenger, Microsoft Team, Google Hangouts, Skype, and even Slack... we were able to connect with these important people not only through voice but face recognition as well.   
 Knowing that these apps delivering crystal-clear, face-to-face video, high-quality sharing makes us more than satisfied and clearly has become a daily part of our lives. 
 
-This new innovative technology has help both the employer and the employee to continue to "Work From Home".
-Now, more than ever, with increased globalization, remote workers, and international teams, effective communication via video conferencing is an essential tool in the day-to-day workflow of many businesses.
-Whether that’s for weekly team meetings or presenting project briefs, video can significantly enhance your relationship with team members and increase the efficiency and accuracy of completed tasks.
+This new innovative technology has help both the employer and the employee to continue to **"Work From Home"**.   
+Now, more than ever, with increased globalization, remote workers, and international teams, effective communication via video conferencing is an essential tool in the day-to-day workflow of many businesses.   
+Whether that’s for weekly team meetings or presenting project briefs, video can significantly enhance your relationship with team members and increase the efficiency and accuracy of completed tasks.   
 Conference calls allow multiple attendees to log in to the same call from wherever they are in the world. While this is essential for remote teams to conduct their daily tasks, it’s also a useful tool for full company updates and connections. 
 
 But it's not only for business purposes. Video communication apps like Zoom can also be used for personal reasons.
