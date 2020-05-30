@@ -19,13 +19,13 @@ Have a video group call with the whole De La Salle basketball them at brunch.
 Call your car mechanic in the afternoon and allow him to show you the improvements and modifications that he has done with your big bike.   
 Then later at night, before going to sleep, let your girlfriend video call you and talk the whole night until the wee hours in the morning. 
 
-We may be isolated from these extraordinary people, but with these technologies, we were able to keep track of them like they are right in front of us. 
-I guess what I am trying to say that you can't keep a good man down. 
-I mean even COVID-19 can't keep us at bay with our beloved friends and families. All we have to do is adjust. 
-Can't go out, Fine. Go to Zoom and call your entire "Barkada". Simple as that. 
-In fact, sometimes it is much better than our world before COVID because people are now more "Sociable" than ever.
-You can call it out of boredom, loneliness, or anxiety all you want. 
-The bottom line remains the same. People are now are "Connecting".
+We may be isolated from these extraordinary people, but with these technologies, we were able to keep track of them like they are right in front of us.   
+I guess what I am trying to say that you can't keep a good man down.   
+I mean even COVID-19 can't keep us at bay with our beloved friends and families. All we have to do is adjust.   
+Can't go out, Fine. Go to Zoom and call your entire **"Barkada"**. Simple as that.   
+In fact, sometimes it is much better than our world before COVID because people are now more **"Sociable"** than ever.   
+You can call it out of boredom, loneliness, or anxiety all you want.   
+The bottom line remains the same. People are now are **"Connecting"**.
 
 And now that our government is slowly opening and lifting quarantine to stop the bleeding to our subsiding economy. We now have slight freedom to move around. 
 People going back to their office and business. Streets are getting busier. And most of us are trying to bring our lives back to normal.
