@@ -54,7 +54,8 @@ I commenced my individual prayer to each and every one.  Then after my prayer, I
 
 I reminisced about the good times that we had. Told them our current crisis that we are having at this moment. And again continued sitting there. 
 
-You may call me crazy, dramatic, or delusional but the dead listen too. Sometimes they also respond but in a different way. They show up in your dreams once in a while (subconsciously and innermost thoughts). 
+You may call me crazy, dramatic, or delusional but the dead listen too.   
+Sometimes they also respond but in a different way. They show up in your dreams once in a while (subconsciously and innermost thoughts).   
 In other words, they have their own version of Zoom. They know how to communicate and it's really helpful and beneficial.
 
 Communication is the key to greatly reduce stress and anxiety in your life. Improving your social support is linked to better mental health in general, since having reliable friends and loving family members can act as a “buffer” for feelings of anxiety and low mood.
