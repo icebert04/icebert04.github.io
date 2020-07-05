@@ -6,23 +6,23 @@ published: true
 Ever wonder why we Filipinos are so loving?
 Where do we get our "Warm Hospitality" on treating strangers as part of our family?
 
-For starters... Cariñoso is a Spanish word for Affectionate.
+For starters... Cariñoso is a Spanish word for Affectionate.   
 Until now, we Filipinos still use that word whenever we converse or give compliments.
 So meaning to say, we inherited that trait from the people of Spain.
 
-I know some of you still view Spain as a bad image because of how they treated our ancestors during their 300+ years of colonization.
+I know some of you still view Spain as a bad image because of how they treated our ancestors during their 300+ years of colonization.   
 But that was before and that was War Time. It's a lot different now.
 
-Through the years we met a lot of people from different nationalities each carrying their flags and unique character.
+Through the years we met a lot of people from different nationalities each carrying their flags and unique character.   
 Americans are generous, French peeps are gorgeous, and Germans always remind us that not all of them are Adolf Hitler (Hitler is Austrian).
 
-But Spanish people are on the top of my list (sorry to my other foreign friends). ✌
-Why?
-Here's David, a local from Pamplona. He and his friend visited me here in Manila for a few days before they head out to Camiguin.
-Believe me, from the time that he arrived until the time he departed it was "Pure Chaotic Fun".
+But Spanish people are on the top of my list (sorry to my other foreign friends). ✌   
+Why?   
+Here's David, a local from Pamplona. He and his friend visited me here in Manila for a few days before they head out to Camiguin.   
+Believe me, from the time that he arrived until the time he departed it was **"Pure Chaotic Fun"**.   
 We had cerveza and puro. We had endless talks about our countries and shockingly realizing that we have a lot in common.
 
-That "Beso-Beso" mannerism that we do when we meet our family members and relatives... we got it from them.
+That **"Beso-Beso"** mannerism that we do when we meet our family members and relatives... we got it from them.   
 Not only that we still carry some of their language, but we are devoted Catholics where we honor Christian values and holidays such as Semana Santa (Holy Week) and Nochebuena (Christmas Eve).
 
 The word "Respeto" (respect) and "Palabra de Honor" (word of honor) are so deep-rooted in our veins that are still inherited even to the new generations of today.
