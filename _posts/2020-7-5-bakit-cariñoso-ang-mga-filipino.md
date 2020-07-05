@@ -16,7 +16,7 @@ But that was before and that was War Time. It's a lot different now.
 Through the years we met a lot of people from different nationalities each carrying their flags and unique character.   
 Americans are generous, French peeps are gorgeous, and Germans always remind us that not all of them are Adolf Hitler (Hitler is Austrian).
 
-But Spanish people are on the top of my list (sorry to my other foreign friends). ✌   
+But Spanish people are on the top of my list (sorry to my other foreign friends).  ✌   
 Why?   
 Here's David, a local from Pamplona. He and his friend visited me here in Manila for a few days before they head out to Camiguin.   
 Believe me, from the time that he arrived until the time he departed it was **"Pure Chaotic Fun"**.   
@@ -40,7 +40,7 @@ To him, every day is fiesta (party). If you meet him, you will fully understand 
 And to David, if you're reading this... tengo un mensaje para ti.
 
 Después de Covid, mi familia y yo te visitaremos en Camiguin. Pero podríamos ir a cagayan de oro primero y luego ir directamente a ti.   
-A partir de ahora, me estoy condicionando por toda la bebida de cerveza... jajajaja. 🤣
+A partir de ahora, me estoy condicionando por toda la bebida de cerveza... jajajaja.  🤣
 
 Pero en serio, gracias por ser un buen amigo para nosotros!   
 Usted ha sido una buena influencia para nosotros Filipinos! 🇵🇭
@@ -49,4 +49,4 @@ Usted ha sido una buena influencia para nosotros Filipinos! 🇵🇭
 
 And to the rest of my fellow Filipinos out there...   
 just remember the word **"Cariñoso"**.   
-Just look in the mirror... you will see that you have it in you! ♥
+Just look in the mirror... you will see that you have it in you!  ♥
