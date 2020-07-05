@@ -7,7 +7,7 @@ Ever wonder why we Filipinos are so loving?
 Where do we get our "Warm Hospitality" on treating strangers as part of our family?
 
 For starters... Cariñoso is a Spanish word for Affectionate.   
-Until now, we Filipinos still use that word whenever we converse or give compliments.
+Until now, we Filipinos still use that word whenever we converse or give compliments.   
 So meaning to say, we inherited that trait from the people of Spain.
 
 I know some of you still view Spain as a bad image because of how they treated our ancestors during their 300+ years of colonization.   
@@ -28,7 +28,7 @@ Not only that we still carry some of their language, but we are devoted Catholic
 The word **"Respeto"** (respect) and **"Palabra de Honor"** (word of honor) are so deep-rooted in our veins that are still inherited even to the new generations of today.
 
 As I observed David as he genuinely hugs each and every person that I introduced to him... I then get a grasp of who we really are.   
-Even though we are aware that we Filipinos have these unique characteristics that only we in the world have... some of those positive traits that we carry are inherited from our Spanish brothers. 🇪🇸
+Even though we are aware that we Filipinos have these unique characteristics that only we in the world have... some of those positive traits that we carry are inherited from our Spanish brothers. 
 
 If you want proof, I advised you to travel to Spain (after the COVID of course).   
 South American countries like Argentina, Mexico, and Peru also shares that same values.   
@@ -43,7 +43,7 @@ Después de Covid, mi familia y yo te visitaremos en Camiguin. Pero podríamos i
 A partir de ahora, me estoy condicionando por toda la bebida de cerveza... jajajaja.  🤣
 
 Pero en serio, gracias por ser un buen amigo para nosotros!   
-Usted ha sido una buena influencia para nosotros Filipinos! 🇵🇭
+Usted ha sido una buena influencia para nosotros Filipinos! 
 
 ----------------------------------------------------------------------------------
 
