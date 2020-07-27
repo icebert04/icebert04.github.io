@@ -3,11 +3,11 @@ published: true
 ---
 ![Zero](/images/Emman.jpg)
 
-"FROM ZERO TO HERO"
+**"FROM ZERO TO HERO"**
 
-A "Watch Me Climb" Story... 📈
+A **"Watch Me Climb"** Story... 📈
 
-I'm fascinated with "Underdog" stories.
+I'm fascinated with **"Underdog"** stories.
 Nothing beats the thrill of seeing someone go from nobody to somebody.
 
 This is Emman.
@@ -21,7 +21,7 @@ They have been asking questions like...
 Who is this guy? Where did he come from?
 Does he have a family? How does he earn a living?
 
-In other words, our guests have this bad image of him that he is a "Bum". 🧔
+In other words, our guests have this bad image of him that he is a **"Bum"**. 🧔
 
 They see him as a person who avoids work and sponges on others.
 They think of him as a loafer, idler, someone who leads an idle or dissolute life.
@@ -39,7 +39,7 @@ When we sold our property in Quezon City, our so-called group got disbanded. And
 
 So I thought that was the end of it... until I saw him on Facebook.
 
-When I viewed Emman's FB profile, I was shocked to see him that he is a "Changed Man".
+When I viewed Emman's FB profile, I was shocked to see him that he is a **"Changed Man"**.
 He finally has a woman who fell in love with him wholeheartedly (Honestly, I thought that this won't ever happen).
 And he also has kids on top of that.
 
@@ -49,7 +49,7 @@ He is also working as a repair/maintenance guy for PAL Express for more than 3 y
 
 Our Covid situation is the only nuisance for me on giving me the chance of seeing him so that we can have a drink and give him a pat on the pack for his recent accomplishments.
 
-Emman is just one of the many "Watch Me Climb" stories that are happening in real life.
+Emman is just one of the many **"Watch Me Climb"** stories that are happening in real life.
 There are many more out there. There are some that you might know of.
 There are also some which include you.
 
