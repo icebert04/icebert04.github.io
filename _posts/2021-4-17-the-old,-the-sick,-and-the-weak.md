@@ -17,19 +17,19 @@ In summary, it is safe to say that we all went through that **"Survival Mode"**.
 Even up to this day, we still do...   
 After all, family comes first... di ba?   
 
-But little did we know that because of this "Survival Mode" we have somewhat become more reserved, more cautious, and if I may... more "Selfish".
-All of a sudden we have this "Me, Me, Me" attitude. 
-We got this wrong assumption that liking one's post on FB and offering prayers on social media would suffice. 
+But little did we know that because of this **"Survival Mode"** we have somewhat become more reserved, more cautious, and if I may... more **"Selfish"**.   
+All of a sudden we have this **"Me, Me, Me"** attitude.   
+We got this wrong assumption that liking one's post on FB and offering prayers on social media would suffice.   
 But honestly, it is not.   
 
-When was the last time you went to help somebody? 
-When was the last moment you personally comforted someone who's in dire need of emotional support?
-When was the last time you reached out to help a stranger?
+When was the last time you went to help somebody?   
+When was the last moment you personally comforted someone who's in dire need of emotional support?   
+When was the last time you reached out to help a stranger?   
 And when was the last time you help somebody in private?   
 
-Regardless of our religion, financial status, and our condition in life...  each one of us has the capability to help our fellow citizens who are in need.  
-I mean everyone, even the poor, can help. 
-In fact, it's the poor, who don't have much, who are more than willing to give out.
+Regardless of our religion, financial status, and our condition in life...  each one of us has the capability to help our fellow citizens who are in need.   
+I mean everyone, even the poor, can help.   
+In fact, it's the poor, who don't have much, who are more than willing to give out.   
 They help because they can relate. They know how it feels to be in need.   
 
 This what they call "2nd surge" has devastated and put a vast majority of us on the ground. 
