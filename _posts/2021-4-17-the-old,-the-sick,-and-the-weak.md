@@ -55,24 +55,24 @@ I do hope that this blog post will wake them up even a bit.   🧟‍♂️
 
 So I am writing to those who have some kindness in their heart to either continue what they are doing on helping others or for those who haven't started... it is not too late.   
 
-In the coming weeks, I will begin this journey of helping "The Old, The Sick, and the Weak". 
-Some of those will be posted on social media just to inspire people and hopefully spark their own journey.
+In the coming weeks, I will begin this journey of helping **"The Old, The Sick, and the Weak"**.   
+Some of those will be posted on social media just to inspire people and hopefully spark their own journey.   
 But the majority of my actions on helping, I will just keep it to myself and make it private.   
 Pope Francis mentioned in his video prayer during the Holy Week... that he is deeply touched by the Filipino's Kindness and Generosity.   
 
-We all have that genuine trait in us. Lahat tayo ay matulungin.
+We all have that genuine trait in us. Lahat tayo ay matulungin.   
 If the vast majority of our populace would share some of their blessings... 
 then it is very possible to see The Old getting 10 years younger and be more happier, witnessing The Sick feeling supported and loved (regardless of their health outcome), and a boost of morale to those who are Weak.   
 
-Our creator is watching us. He gave us talents in order to share it.
+Our creator is watching us. He gave us talents in order to share it.   
 Let's spread the love and show some good deeds.   ♥   
 
-There is a saying if you close your fists, you block all "Positive Things" that will enter your life.
-If you allow your fist to open even a little bit... 
-You will see some positivity coming in... 
+There is a saying if you close your fists, you block all **"Positive Things"** that will enter your life.   
+If you allow your fist to open even a little bit...   
+You will see some positivity coming in...   
 More blessings than you can imagine.   🌈   
 
-So open ninyo na ang mga kamao ninyo... 
+So open ninyo na ang mga kamao ninyo...   
 Try ninyo lang kahit one week, then balitaan mo ako after.   😍   
 
 Francis Isberto 
