@@ -32,25 +32,25 @@ I mean everyone, even the poor, can help.
 In fact, it's the poor, who don't have much, who are more than willing to give out.   
 They help because they can relate. They know how it feels to be in need.   
 
-This what they call "2nd surge" has devastated and put a vast majority of us on the ground. 
+This what they call **"2nd surge"** has devastated and put a vast majority of us on the ground.   
 We lost our jobs, our way of living, our freedom, and more painfully... we lost our loved ones due to Covid.   
 
-People need help more than ever. 
+People need help more than ever.   
 Instead of making excuses and pinpointing someone to blame... why don't we just act and help.
 If the government and our LGU's are slow to move, why don't we do something in our community? 
 It doesn't have to be big... your own small way of helping would inspire your neighbors to do the same.   
 
-The Old, The Sick, and the Weak need our attention. 
-I suggest that we start looking at the people around us first then gradually go outside of our circle. 
-You don't have to physically go to the hospital to help where you can potentially contract the virus.
+The Old, The Sick, and the Weak need our attention.   
+I suggest that we start looking at the people around us first then gradually go outside of our circle.   
+You don't have to physically go to the hospital to help where you can potentially contract the virus.   
 You can share a little of your cooking skills, bake some donuts, then send it to the tired and weary nurses in your localized hospital.   
 
-I am aware that some of you have been helping since this pandemic started and I am grateful for that... pero kulang pa..
+I am aware that some of you have been helping since this pandemic started and I am grateful for that... pero kulang pa..   
 Kulang na kulang pa...   
 
-Maraming pa rin tao dito sa atin ang "Walang Pake". 
-Wala silang Pake before Covid started... 
-At lalo nang "Wala silang Pake" during this pandemic. 
+Maraming pa rin tao dito sa atin ang **"Walang Pake"**.   
+Wala silang Pake before Covid started...   
+At lalo nang **"Wala silang Pake"** during this pandemic.   
 I do hope that this blog post will wake them up even a bit.   🧟‍♂️   
 
 So I am writing to those who have some kindness in their heart to either continue what they are doing on helping others or for those who haven't started... it is not too late.   
