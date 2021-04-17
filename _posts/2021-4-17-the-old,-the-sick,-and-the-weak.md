@@ -4,17 +4,17 @@ published: true
 
 ![Mang Ben](https://user-images.githubusercontent.com/15205481/115101291-57ebe700-9f75-11eb-90f4-30ca93572d07.jpg)
 
-"THE OLD, THE SICK, AND THE WEAK"   
+**"THE OLD, THE SICK, AND THE WEAK"**   
 
-"Kamusta na ba kalagayan nila?"   
+**"Kamusta na ba kalagayan nila?"**   
 
-These past few weeks, I took a break from social media.
+These past few weeks, I took a break from social media.   
 Since the Holy Week, I had a deep and meaningful soul searching just to properly aligned myself to this crazy pandemic world.   
 
-Ever since this Covid-19 outbreak started last year, people had gone to "Survival Mode". 
-Making sure that their families are taken care of from being infected from the unwavering virus and getting the basic needs that they needed and then some.
-In summary, it is safe to say that we all went through that "Survival Mode". 
-Even up to this day, we still do...
+Ever since this Covid-19 outbreak started last year, people had gone to **"Survival Mode"**. 
+Making sure that their families are taken care of from being infected from the unwavering virus and getting the basic needs that they needed and then some.   
+In summary, it is safe to say that we all went through that **"Survival Mode"**.   
+Even up to this day, we still do...   
 After all, family comes first... di ba?   
 
 But little did we know that because of this "Survival Mode" we have somewhat become more reserved, more cautious, and if I may... more "Selfish".
