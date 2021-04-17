@@ -75,5 +75,5 @@ More blessings than you can imagine.   🌈
 So open ninyo na ang mga kamao ninyo...   
 Try ninyo lang kahit one week, then balitaan mo ako after.   😍   
 
-Francis Isberto 
+Francis Isberto   
 Friendillion.com
